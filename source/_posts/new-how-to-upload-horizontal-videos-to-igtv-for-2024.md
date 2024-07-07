@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Upload Horizontal Videos to IGTV for 2024"
-date: 2024-05-21T19:28:17.909Z
-updated: 2024-05-22T19:28:17.909Z
+date: 2024-07-06T22:26:48.285Z
+updated: 2024-07-07T22:26:48.285Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] How to Upload Horizontal Videos to IGTV for 2024"
 excerpt: "This Article Describes [New] How to Upload Horizontal Videos to IGTV for 2024"
 keywords: "\"IGTV Video Upload Guide,Horizonal Video on IGTV,Tutorial: IGTV Video Posting,Syncing Videos for IGTV,Adding Horizontal Content to IGTV,IGTV Video Uploading Method,Optimizing Horizontal Images for IGTV\""
-thumbnail: https://www.lifewire.com/thmb/gZnowx2JtDk-nfa-Qpq0XcIEObA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-640608114-590235945f9b5810dcabd4b5.jpg
+thumbnail: https://thmb.techidaily.com/5eb42b490725ed54872c9c11b47aee171fe6d79191204bcd93add24c922b6881.jpg
 ---
 
 ## How to Upload Horizontal Videos to IGTV [3 Ways]

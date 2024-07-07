@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Insta-Vid Techniques  Scaling Videos to Perfect Size in FCPX\""
-date: 2024-05-21T20:26:21.751Z
-updated: 2024-05-22T20:26:21.751Z
+date: 2024-07-06T22:26:47.099Z
+updated: 2024-07-07T22:26:47.099Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Insta-Vid Techniques: Scaling Videos to Perfect Size in FCPX\""
 excerpt: "\"This Article Describes [New] In 2024, Insta-Vid Techniques: Scaling Videos to Perfect Size in FCPX\""
 keywords: "Video Resizing Tips,Scaling FCPX Media,FCPX Video Expansion,Optimize Video FCPX,Perfect Size Videography,FCPX Size Adjustment,Enhance FCPX Videos"
-thumbnail: https://www.lifewire.com/thmb/6d3Pk0OpPHgsMtYTh0RE0ehMopY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-758317893-3ab5c26f770448db8b4a58205fb549f1.jpg
+thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3ee5edf935baeb75dd083d47.jpg
 ---
 
 ## Insta-Vid Techniques: Scaling Videos to Perfect Size in FCPX

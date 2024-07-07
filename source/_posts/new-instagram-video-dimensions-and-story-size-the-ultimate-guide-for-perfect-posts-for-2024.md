@@ -1,7 +1,7 @@
 ---
 title: "[New] Instagram Video Dimensions & Story Size [The Ultimate Guide for Perfect Posts] for 2024"
-date: 2024-05-21T20:40:56.768Z
-updated: 2024-05-22T20:40:56.768Z
+date: 2024-07-06T22:26:44.534Z
+updated: 2024-07-07T22:26:44.534Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Instagram Video Dimensions & Story Size [The Ultimate Guide for Perfect Posts] for 2024"
 excerpt: "This Article Describes [New] Instagram Video Dimensions & Story Size [The Ultimate Guide for Perfect Posts] for 2024"
 keywords: "Insta Video Sizing,Story Post Guide,Ultimate Story Tips,Perfect Post Dimensions,Instagram Video Size,Ideal Story Length,Posting Dimension Guide"
-thumbnail: https://www.lifewire.com/thmb/5rZlM7ZLgAym5k88e0nwkresLeQ=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/152838720-56a6c46a5f9b58b7d0e47fcf.jpg
+thumbnail: https://thmb.techidaily.com/d108669ab03559524bb77121c4032c30df350e077c8698244c3203b72aed2547.jpg
 ---
 
 ## Instagram Video Dimensions & Story Size [The Ultimate Guide for Perfect Posts]

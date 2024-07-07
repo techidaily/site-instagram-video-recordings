@@ -1,7 +1,7 @@
 ---
 title: "\"Gauging Influence  Tracking Metrics that Predict IGTV Performance for 2024\""
-date: 2024-05-21T20:36:27.834Z
-updated: 2024-05-22T20:36:27.834Z
+date: 2024-07-06T22:26:45.266Z
+updated: 2024-07-07T22:26:45.266Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Gauging Influence: Tracking Metrics that Predict IGTV Performance for 2024\""
 excerpt: "\"This Article Describes Gauging Influence: Tracking Metrics that Predict IGTV Performance for 2024\""
 keywords: "IGTV Impact Score,Metrics for IGTV Success,IGTV Viewership Analysis,Influence Tracking on IGTV,Predictive IGTV Metrics,Monitoring IGTV Performance,Key IGTV Performance Indicators"
-thumbnail: https://www.lifewire.com/thmb/0ReomQ5wrb7WSffrn0hDnZKzgPU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5-things-to-consider-before-buying-a-gaming-laptop-5235493-145a8c941b9f46e99d9a90bdee387893.jpg
+thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1ab1cb47d3f2f93a3bce610c.jpg
 ---
 
 ## Gauging Influence: Tracking Metrics that Predict IGTV Performance

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Thrive on InstaVid  A Guide to Creating a Solid Video Marketing Framework\""
-date: 2024-05-21T20:26:42.726Z
-updated: 2024-05-22T20:26:42.726Z
+date: 2024-07-06T22:26:46.597Z
+updated: 2024-07-07T22:26:46.597Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Thrive on InstaVid: A Guide to Creating a Solid Video Marketing Framework\""
 excerpt: "\"This Article Describes [New] In 2024, Thrive on InstaVid: A Guide to Creating a Solid Video Marketing Framework\""
 keywords: "InstaVideo Thriving,VidMarketing Guide,VideoFramework Strategy,BrandedInstaVideos,EngagingVideo Content,MarketingVideo Tips,Framework for Videos"
-thumbnail: https://www.lifewire.com/thmb/zS1KzodK4IykQGo2jxig8PQhqso=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/apps-like-tiktok-the-best-alternatives-in-2020-9f3611f635da4198956585133eaf01cb.jpg
+thumbnail: https://thmb.techidaily.com/4f556f53b702be059c5baaa605e55372122aad0cd1b5268a8b5026540ff9ee16.jpg
 ---
 
 ## Thrive on InstaVid: A Guide to Creating a Solid Video Marketing Framework

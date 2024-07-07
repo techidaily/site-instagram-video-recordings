@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Social Media Mirrors  The Science of True IG Selfies for 2024\""
-date: 2024-05-21T19:32:24.709Z
-updated: 2024-05-22T19:32:24.709Z
+date: 2024-07-06T22:26:54.922Z
+updated: 2024-07-07T22:26:54.922Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Social Media Mirrors: The Science of True IG Selfies for 2024\""
 excerpt: "\"This Article Describes [New] Social Media Mirrors: The Science of True IG Selfies for 2024\""
 keywords: "Social Media Trends,IG Selfie Psychology,Digital Reflection,Online Image Authenticity,Social Media Influence,Virtual Identity Perception,Mirrored Social Presence"
-thumbnail: https://www.lifewire.com/thmb/CjhBnvJOq4UKhyjOd9LtaBPVVZA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2024-01-17at12.29.10PM-07a5a954b4ea4170a3796e706afbda42.png
+thumbnail: https://thmb.techidaily.com/9fc617880b7f763c252c5a9e983583a15e0501d81b43be135b81d00ad4f84b19.png
 ---
 
 ## Social Media Mirrors: The Science of True IG Selfies

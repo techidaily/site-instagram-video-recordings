@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering IGTV with a Phone or DSLR Camera  The Ultimate Guide\""
-date: 2024-05-21T19:57:13.415Z
-updated: 2024-05-22T19:57:13.415Z
+date: 2024-07-06T22:26:53.996Z
+updated: 2024-07-07T22:26:53.996Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Mastering IGTV with a Phone or DSLR Camera: The Ultimate Guide\""
 excerpt: "\"This Article Describes 2024 Approved: Mastering IGTV with a Phone or DSLR Camera: The Ultimate Guide\""
 keywords: "IGTV Mastery Tips,Photo/Video on IGTV,IGTV Camera Guide,Mobile/DSLR IGTV,Ultimate IGTV Techniques,IGTV Creation Basics,Advanced IGTV Editing"
-thumbnail: https://www.lifewire.com/thmb/KgjSvzxLL1eXMJCNvZxcbrcPyWA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ArtificialIntelligence-Chatbot-6921166a1d9e447eb0251f52694d919a.jpg
+thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36dfc8648cae868f4622fb576a.jpg
 ---
 
 ## Mastering IGTV with a Phone or DSLR Camera: The Ultimate Guide

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating Negative Space  How to Flip Vids on Instagram\""
-date: 2024-05-21T20:35:44.602Z
-updated: 2024-05-22T20:35:44.602Z
+date: 2024-07-06T22:26:43.848Z
+updated: 2024-07-07T22:26:43.848Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Navigating Negative Space: How to Flip Vids on Instagram\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Navigating Negative Space: How to Flip Vids on Instagram\""
 keywords: "Navigate NegSpace,FlipVidInsta,VidFlippingTips,NegSpaceEditing,SpaceConversion,VideoReverse,InstagramVideoHacks"
-thumbnail: https://www.lifewire.com/thmb/-PqPLcCaxGLc23vO2NcYLrrVNWo=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/jongsun-lee-F-pSZO_jeE8-unsplash-f3e7cedccf0c468eacc22b2b9b161def.jpg
+thumbnail: https://thmb.techidaily.com/700877a9102ebfac6b027a9da8135a8597355f7b411786ceebe675ffa9f20381.jpg
 ---
 
 ## Navigating Negative Space: How to Flip Vids on Instagram

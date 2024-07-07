@@ -1,7 +1,7 @@
 ---
 title: "[New] Uncover Recent Instagram Unfollow Patterns"
-date: 2024-05-21T19:48:11.649Z
-updated: 2024-05-22T19:48:11.649Z
+date: 2024-07-06T22:26:45.631Z
+updated: 2024-07-07T22:26:45.631Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Uncover Recent Instagram Unfollow Patterns"
 excerpt: "This Article Describes [New] Uncover Recent Instagram Unfollow Patterns"
 keywords: "Follow Pattern Analysis,Instagram Unfollow Trends,Insta Unfollowing Behavior,Social Media Unfollow Dynamics,Tracking Unfollow Frequency,Recent Unfollow Patterns,Instagram Fan Relationship"
-thumbnail: https://www.lifewire.com/thmb/XEmNY2XXmdFN8cULyGG57iImpok=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/outlookcopilot05-956518ea12234406945d579c7f351886.jpg
+thumbnail: https://thmb.techidaily.com/fd283428cd4cb2c0907e2d15b8c7aa3306b361f3c11c9903f383663675146f0a.jpg
 ---
 
 ## Uncover Recent Instagram Unfollow Patterns

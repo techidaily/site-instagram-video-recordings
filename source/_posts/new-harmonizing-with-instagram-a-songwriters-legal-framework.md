@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Harmonizing with Instagram  A Songwriter’s Legal Framework\""
-date: 2024-05-21T19:11:01.309Z
-updated: 2024-05-22T19:11:01.309Z
+date: 2024-07-06T22:26:50.321Z
+updated: 2024-07-07T22:26:50.321Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Harmonizing with Instagram: A Songwriter’s Legal Framework\""
 excerpt: "\"This Article Describes [New] Harmonizing with Instagram: A Songwriter’s Legal Framework\""
 keywords: "Music Copyright Laws,Songwriters' Rights,Digital Media Law,Creative Commons Usage,Intellectual Property Protection,Social Media Legalities,Music Industry Regulations"
-thumbnail: https://www.lifewire.com/thmb/q3inw24-h4v92CyIU7_fxjPM1JU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tiktok-messages-889fef4cdfac41babb84770288f32cf2.jpg
+thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a3dc9eccb9055a4b28f7166a.jpg
 ---
 
 ## Harmonizing with Instagram: A Songwriter’s Legal Framework

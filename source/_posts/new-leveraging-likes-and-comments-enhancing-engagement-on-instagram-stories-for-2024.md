@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Leveraging Likes and Comments  Enhancing Engagement on Instagram Stories for 2024\""
-date: 2024-05-21T18:44:49.621Z
-updated: 2024-05-22T18:44:49.621Z
+date: 2024-07-06T22:26:51.115Z
+updated: 2024-07-07T22:26:51.115Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Leveraging Likes and Comments: Enhancing Engagement on Instagram Stories for 2024\""
 excerpt: "\"This Article Describes [New] Leveraging Likes and Comments: Enhancing Engagement on Instagram Stories for 2024\""
 keywords: "Engage via InstaStories,Boosting Instagram Interaction,Improve Story Likes/Comments,Enhance Social Media Engagement,Amplify InstaStory Impact,Elevate Content Interactions,Maximize User Engagement on Stories"
-thumbnail: https://www.lifewire.com/thmb/4OpZUmrUm09wuyKaxQzrFai2HEQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2023-09-12at11.00.18AM-9bce49c3f0784762bc4792fe43286cc8.png
+thumbnail: https://thmb.techidaily.com/76bc2de184e61e693dbac8bc5f62288cf6610a7d170abd91534f7a21873e1f18.png
 ---
 
 ## Leveraging Likes and Comments: Enhancing Engagement on Instagram Stories
