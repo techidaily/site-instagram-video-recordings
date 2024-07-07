@@ -1,0 +1,607 @@
+---
+title: "\"[Updated] In 2024, Navigating and Mastering Instagram Filters  A 2023 Guide\""
+date: 2024-05-21T19:48:44.046Z
+updated: 2024-05-22T19:48:44.046Z
+tags:
+  - ai video
+  - ai instagram
+  - ai instagram video
+categories:
+  - ai
+  - instagram
+description: "\"This Article Describes [Updated] In 2024, Navigating and Mastering Instagram Filters: A 2023 Guide\""
+excerpt: "\"This Article Describes [Updated] In 2024, Navigating and Mastering Instagram Filters: A 2023 Guide\""
+keywords: "Instagram Filter Guide,Mastering Instagram Effects,Instagram Image Enhancement,Instagram Filter Techniques,Digital Art Filters Tips,Social Media Editing Tools,Online Photo Filtering Hacks"
+thumbnail: https://www.lifewire.com/thmb/A1vcewoFXU2zKy4SyXWeP5hd2yM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/170956483-56a104603df78cafdaa7e0cb.jpg
+---
+
+## Navigating and Mastering Instagram Filters: A 2023 Guide
+
+# How to Use Filters on Instagram?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+With the new Instagram update, many individuals have noticed that the layout has become a bit complex. Similarly, the feature to apply filters has also become complicated, making the users wonder **how to use filters on Insta**? If you are experiencing the same issue, then don't worry! You have strolled upon the right article. In this article, you'll discover how to use Instagram filters on feed posts, stories, and reels. So, make sure to skim through the whole article to apply filters on Instagram successfully.
+
+* [Part 1: What is an Instagram Filter?](#part1)
+* [Part 2: How to Add Filters on Instagram Story?](#part2)
+* [Part 3: How to Apply Filters to Instagram Posts?](#part3)
+* [Part 4: How to Add Filters on Instagram Reels?](#part4)
+* [Part 5: How to Organize the Instagram Filters?](#part5)
+
+---
+
+## Part 1: What is an Instagram Filter?
+
+The Instagram filter is a valuable tool that enables you to alter your picture with a single click by making relevant adjustments to the photo on Instagram. The feature for the Instagram filter was released in 2011 with a few basic choices for filtering your image. It provides the user with multiple ways to edit a picture with more excellent quality, an extra border, and even some significant tilt-shift effects. Because of the easy and friendly layout of Instagram, it is much easier for the user to apply filters. And, it is better to keep your application updated as Instagram is constantly releasing new layouts for the convenience of its users.
+
+This feature, although user-friendly, might be confusing for some. That is why we will show you how to enhance your posts and stories in a few simple steps.
+
+## Part 2: How to Add Filters to a Photo and Video on Instagram Story?
+
+With the easy layout provided by Instagram, it is incredibly easy to edit your pictures. Specifically, talking about adding filters to a photo or video on the Instagram story is probably the easiest thing to do on Instagram, and it does not even take much time. Adding filters to your photo or video can take a maximum of five minutes to do so.
+
+Following are the steps to add filters to a photo and video on Instagram Story, so you no longer have to worry about **how to use filters on Insta**. Make sure you follow every step so you can successfully get the job done.
+
+**Step 1: Select or Capture a Photo/Video**
+
+The initial step is to open your camera on Instagram and swipe up to select an existing picture/video or capture a photo/video to apply a filter.
+
+**Note:** Another way to add an existing picture is to tap on the bottom left corner, where you can see the photo gallery icon. Next, tap on the image you want to apply the filter on.
+
+**Step 2: Tap on a Filter**
+
+Now that you have selected a photo, an editing screen will be displayed on your device. Tap on a specific filter of your choice by swiping through the effects displayed on the editing screen to add effects to your existing picture/video.
+
+**Note:** If you do not like the effects displayed on the screen, browse other filters by tapping on the search option.
+
+![Use Ins filters](https://images.wondershare.com/filmora/article-images/instagram-story-filters-effects-option.jpg)
+
+**Step 3: Add the Picture/Video to Story**
+
+Tap on **Done** once you have chosen a filter. And then, add the picture/video to your Instagram story by clicking on the icon labeled **Your** **Story**.
+
+![add  filters to Ins Story](https://images.wondershare.com/filmora/article-images/add-filters-to-instagram-story.jpg)
+
+## Part 3: How to Apply Filters to Instagram Posts and Carousel Posts?b
+
+Applying filters to your Instagram posts is just as easy as adding filters to an Instagram story. Adding filters to your posts can make your profile look more attractive and thus improve engagement. Though the method is different for both cases, they have the same effect. Applying filters to your posts can enhance their quality and result in more likes and comments.
+
+Follow the steps given below to add filters to your Instagram post or carousel post effortlessly.
+
+**Step 1: Tap on the Plus Icon**
+
+The initial step is to tap on the **Plus icon** at the bottom of the screen. Then select an existing picture or capture a photo for further editing.
+
+**Note:** For a carousel post, long press on a picture and select other pictures you want to add to your Instagram post.
+
+**Step 2: Tap on Next Post**
+
+Next, tap on the **Next** icon present at the top right corner to apply filters to your photo. Then tap on the specific picture you want to apply a filter on and tap on a filter to add it. You can even further edit by tapping on the option to **Edit** at the bottom right corner.
+
+**Note:** If you tap on the filter for the second time, an option to control the filter's intensity will be shown. Adjust it accordingly to your preference.
+
+![add  filters to Ins carousel post](https://images.wondershare.com/filmora/article-images/apply-filters-instagram-carousel-post-add-post.jpg)
+
+**Step 3: Share your Post**
+
+Once you are done with all the relevant editing needed, tap on the **Done**. A screen will be displayed to add a caption and location. Once you have completed editing your photo, tap on the **Share** option at the top right corner.
+
+## Part 4: How to Add Filters on Instagram Reels?
+
+Instagram Reels are very similar to TikTok videos, with the iconic feature of uploading entertaining short fifteen-second videos as Instagram Reels. Instagram reels are one of the most prominent features of the new updated version of the Instagram Application.
+
+This method is quite similar to that of applying filters to Instagram stories. For your ease, we have listed a step-by-step guide below to add filters on Instagram reels.
+
+**Step 1: Go to Create Mode**
+
+Tap on the camera icon on the top left corner of the screen. And then, tap on the Reels option to go to Instagram reels create mode.
+
+**Note:** Another way to create an Instagram Reel is to go to the reels explore page and tap on the camera icon present at the top right corner of the screen.
+
+**Step 2: Tap on the Smiley Face Icon**
+
+Next, tap on the **Smiley Face Icon** to add filters. Choose from the variety of available filters. Then tap on the chosen filter to apply it to your Instagram reel.
+
+**Step 3: Start Recording**
+
+Once you are done selecting the desired filter for your Instagram reel, start recording. After the recording is done, you will notice the filter added to the whole Instagram reel you just shot.
+
+## Part 5: How to Organize the Instagram Filters for Post/Reels/Feed?
+
+Instagram is a great application that offers a wide range of filters to its users. Even though it's a great feature and very beneficial for the users to choose among the variety, it can be annoying to skim through the long list to find a specific filter. For that sole reason, Instagram provides the user with the option to hide certain filters or rearrange them to find a filter of your preference easily.
+
+The steps below are a guide to organizing the filters for your Instagram Post/Reels/Feed.
+
+**Step 1: Tap on Manage Option**
+
+The initial step is to select or capture a photo/video. Go to the filters screen and scroll to the end of the list to tap on the **Manage** option. It is a settings option specifically for the filters feature.
+
+![ins  filters manage](https://images.wondershare.com/filmora/article-images/instagram-filter-manage.jpg)
+
+**Step 2: Rearrange or Hide Filters**
+
+For rearranging your filters, hold and drag the three lines on the left side of the specified filter to wherever you want it to be. As for hiding a specific filter, tap on the circle present at the right side of the filter. When the tick sign disappears and the color of the title of the filter fades, it means that the filter has been hidden.
+
+**Note:** Another way to rearrange or hide filters is to do it from the filters screen. Long press on the specified filter and drag it to the position you want it to be. And drop the filter on the **Drag to hide** option to hide the selected filter. You can always turn off this feature from the manage menu.
+
+![arrange ins  filters](https://images.wondershare.com/filmora/article-images/arrange-hide-instagram-filters.jpg)
+
+**Step 3: Tap Done**
+
+Once you have made the required adjustments, tap on the **Done** option present at the top right corner of the screen. And you are done rearranging the filters!
+
+**Conclusion**
+
+For many individuals, using Instagram might not be as easy as it is for the new generation. It could be because some individuals find the layout to be a bit complicated, which might be the reason why they are not able to apply filters.
+
+But don't panic! In this article, we have talked about the nitty-gritty on **how to use filters on Insta**. And that's about it on how to use filters on Instagram.
+
+Even though keeping the application updated is crucial, it is also essential to follow each step thoroughly to add filters to your Instagram Post/Feed/Story effortlessly. You won't face any issue if you follow the steps exactly as mentioned.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+With the new Instagram update, many individuals have noticed that the layout has become a bit complex. Similarly, the feature to apply filters has also become complicated, making the users wonder **how to use filters on Insta**? If you are experiencing the same issue, then don't worry! You have strolled upon the right article. In this article, you'll discover how to use Instagram filters on feed posts, stories, and reels. So, make sure to skim through the whole article to apply filters on Instagram successfully.
+
+* [Part 1: What is an Instagram Filter?](#part1)
+* [Part 2: How to Add Filters on Instagram Story?](#part2)
+* [Part 3: How to Apply Filters to Instagram Posts?](#part3)
+* [Part 4: How to Add Filters on Instagram Reels?](#part4)
+* [Part 5: How to Organize the Instagram Filters?](#part5)
+
+---
+
+## Part 1: What is an Instagram Filter?
+
+The Instagram filter is a valuable tool that enables you to alter your picture with a single click by making relevant adjustments to the photo on Instagram. The feature for the Instagram filter was released in 2011 with a few basic choices for filtering your image. It provides the user with multiple ways to edit a picture with more excellent quality, an extra border, and even some significant tilt-shift effects. Because of the easy and friendly layout of Instagram, it is much easier for the user to apply filters. And, it is better to keep your application updated as Instagram is constantly releasing new layouts for the convenience of its users.
+
+This feature, although user-friendly, might be confusing for some. That is why we will show you how to enhance your posts and stories in a few simple steps.
+
+## Part 2: How to Add Filters to a Photo and Video on Instagram Story?
+
+With the easy layout provided by Instagram, it is incredibly easy to edit your pictures. Specifically, talking about adding filters to a photo or video on the Instagram story is probably the easiest thing to do on Instagram, and it does not even take much time. Adding filters to your photo or video can take a maximum of five minutes to do so.
+
+Following are the steps to add filters to a photo and video on Instagram Story, so you no longer have to worry about **how to use filters on Insta**. Make sure you follow every step so you can successfully get the job done.
+
+**Step 1: Select or Capture a Photo/Video**
+
+The initial step is to open your camera on Instagram and swipe up to select an existing picture/video or capture a photo/video to apply a filter.
+
+**Note:** Another way to add an existing picture is to tap on the bottom left corner, where you can see the photo gallery icon. Next, tap on the image you want to apply the filter on.
+
+**Step 2: Tap on a Filter**
+
+Now that you have selected a photo, an editing screen will be displayed on your device. Tap on a specific filter of your choice by swiping through the effects displayed on the editing screen to add effects to your existing picture/video.
+
+**Note:** If you do not like the effects displayed on the screen, browse other filters by tapping on the search option.
+
+![Use Ins filters](https://images.wondershare.com/filmora/article-images/instagram-story-filters-effects-option.jpg)
+
+**Step 3: Add the Picture/Video to Story**
+
+Tap on **Done** once you have chosen a filter. And then, add the picture/video to your Instagram story by clicking on the icon labeled **Your** **Story**.
+
+![add  filters to Ins Story](https://images.wondershare.com/filmora/article-images/add-filters-to-instagram-story.jpg)
+
+## Part 3: How to Apply Filters to Instagram Posts and Carousel Posts?b
+
+Applying filters to your Instagram posts is just as easy as adding filters to an Instagram story. Adding filters to your posts can make your profile look more attractive and thus improve engagement. Though the method is different for both cases, they have the same effect. Applying filters to your posts can enhance their quality and result in more likes and comments.
+
+Follow the steps given below to add filters to your Instagram post or carousel post effortlessly.
+
+**Step 1: Tap on the Plus Icon**
+
+The initial step is to tap on the **Plus icon** at the bottom of the screen. Then select an existing picture or capture a photo for further editing.
+
+**Note:** For a carousel post, long press on a picture and select other pictures you want to add to your Instagram post.
+
+**Step 2: Tap on Next Post**
+
+Next, tap on the **Next** icon present at the top right corner to apply filters to your photo. Then tap on the specific picture you want to apply a filter on and tap on a filter to add it. You can even further edit by tapping on the option to **Edit** at the bottom right corner.
+
+**Note:** If you tap on the filter for the second time, an option to control the filter's intensity will be shown. Adjust it accordingly to your preference.
+
+![add  filters to Ins carousel post](https://images.wondershare.com/filmora/article-images/apply-filters-instagram-carousel-post-add-post.jpg)
+
+**Step 3: Share your Post**
+
+Once you are done with all the relevant editing needed, tap on the **Done**. A screen will be displayed to add a caption and location. Once you have completed editing your photo, tap on the **Share** option at the top right corner.
+
+## Part 4: How to Add Filters on Instagram Reels?
+
+Instagram Reels are very similar to TikTok videos, with the iconic feature of uploading entertaining short fifteen-second videos as Instagram Reels. Instagram reels are one of the most prominent features of the new updated version of the Instagram Application.
+
+This method is quite similar to that of applying filters to Instagram stories. For your ease, we have listed a step-by-step guide below to add filters on Instagram reels.
+
+**Step 1: Go to Create Mode**
+
+Tap on the camera icon on the top left corner of the screen. And then, tap on the Reels option to go to Instagram reels create mode.
+
+**Note:** Another way to create an Instagram Reel is to go to the reels explore page and tap on the camera icon present at the top right corner of the screen.
+
+**Step 2: Tap on the Smiley Face Icon**
+
+Next, tap on the **Smiley Face Icon** to add filters. Choose from the variety of available filters. Then tap on the chosen filter to apply it to your Instagram reel.
+
+**Step 3: Start Recording**
+
+Once you are done selecting the desired filter for your Instagram reel, start recording. After the recording is done, you will notice the filter added to the whole Instagram reel you just shot.
+
+## Part 5: How to Organize the Instagram Filters for Post/Reels/Feed?
+
+Instagram is a great application that offers a wide range of filters to its users. Even though it's a great feature and very beneficial for the users to choose among the variety, it can be annoying to skim through the long list to find a specific filter. For that sole reason, Instagram provides the user with the option to hide certain filters or rearrange them to find a filter of your preference easily.
+
+The steps below are a guide to organizing the filters for your Instagram Post/Reels/Feed.
+
+**Step 1: Tap on Manage Option**
+
+The initial step is to select or capture a photo/video. Go to the filters screen and scroll to the end of the list to tap on the **Manage** option. It is a settings option specifically for the filters feature.
+
+![ins  filters manage](https://images.wondershare.com/filmora/article-images/instagram-filter-manage.jpg)
+
+**Step 2: Rearrange or Hide Filters**
+
+For rearranging your filters, hold and drag the three lines on the left side of the specified filter to wherever you want it to be. As for hiding a specific filter, tap on the circle present at the right side of the filter. When the tick sign disappears and the color of the title of the filter fades, it means that the filter has been hidden.
+
+**Note:** Another way to rearrange or hide filters is to do it from the filters screen. Long press on the specified filter and drag it to the position you want it to be. And drop the filter on the **Drag to hide** option to hide the selected filter. You can always turn off this feature from the manage menu.
+
+![arrange ins  filters](https://images.wondershare.com/filmora/article-images/arrange-hide-instagram-filters.jpg)
+
+**Step 3: Tap Done**
+
+Once you have made the required adjustments, tap on the **Done** option present at the top right corner of the screen. And you are done rearranging the filters!
+
+**Conclusion**
+
+For many individuals, using Instagram might not be as easy as it is for the new generation. It could be because some individuals find the layout to be a bit complicated, which might be the reason why they are not able to apply filters.
+
+But don't panic! In this article, we have talked about the nitty-gritty on **how to use filters on Insta**. And that's about it on how to use filters on Instagram.
+
+Even though keeping the application updated is crucial, it is also essential to follow each step thoroughly to add filters to your Instagram Post/Feed/Story effortlessly. You won't face any issue if you follow the steps exactly as mentioned.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+With the new Instagram update, many individuals have noticed that the layout has become a bit complex. Similarly, the feature to apply filters has also become complicated, making the users wonder **how to use filters on Insta**? If you are experiencing the same issue, then don't worry! You have strolled upon the right article. In this article, you'll discover how to use Instagram filters on feed posts, stories, and reels. So, make sure to skim through the whole article to apply filters on Instagram successfully.
+
+* [Part 1: What is an Instagram Filter?](#part1)
+* [Part 2: How to Add Filters on Instagram Story?](#part2)
+* [Part 3: How to Apply Filters to Instagram Posts?](#part3)
+* [Part 4: How to Add Filters on Instagram Reels?](#part4)
+* [Part 5: How to Organize the Instagram Filters?](#part5)
+
+---
+
+## Part 1: What is an Instagram Filter?
+
+The Instagram filter is a valuable tool that enables you to alter your picture with a single click by making relevant adjustments to the photo on Instagram. The feature for the Instagram filter was released in 2011 with a few basic choices for filtering your image. It provides the user with multiple ways to edit a picture with more excellent quality, an extra border, and even some significant tilt-shift effects. Because of the easy and friendly layout of Instagram, it is much easier for the user to apply filters. And, it is better to keep your application updated as Instagram is constantly releasing new layouts for the convenience of its users.
+
+This feature, although user-friendly, might be confusing for some. That is why we will show you how to enhance your posts and stories in a few simple steps.
+
+## Part 2: How to Add Filters to a Photo and Video on Instagram Story?
+
+With the easy layout provided by Instagram, it is incredibly easy to edit your pictures. Specifically, talking about adding filters to a photo or video on the Instagram story is probably the easiest thing to do on Instagram, and it does not even take much time. Adding filters to your photo or video can take a maximum of five minutes to do so.
+
+Following are the steps to add filters to a photo and video on Instagram Story, so you no longer have to worry about **how to use filters on Insta**. Make sure you follow every step so you can successfully get the job done.
+
+**Step 1: Select or Capture a Photo/Video**
+
+The initial step is to open your camera on Instagram and swipe up to select an existing picture/video or capture a photo/video to apply a filter.
+
+**Note:** Another way to add an existing picture is to tap on the bottom left corner, where you can see the photo gallery icon. Next, tap on the image you want to apply the filter on.
+
+**Step 2: Tap on a Filter**
+
+Now that you have selected a photo, an editing screen will be displayed on your device. Tap on a specific filter of your choice by swiping through the effects displayed on the editing screen to add effects to your existing picture/video.
+
+**Note:** If you do not like the effects displayed on the screen, browse other filters by tapping on the search option.
+
+![Use Ins filters](https://images.wondershare.com/filmora/article-images/instagram-story-filters-effects-option.jpg)
+
+**Step 3: Add the Picture/Video to Story**
+
+Tap on **Done** once you have chosen a filter. And then, add the picture/video to your Instagram story by clicking on the icon labeled **Your** **Story**.
+
+![add  filters to Ins Story](https://images.wondershare.com/filmora/article-images/add-filters-to-instagram-story.jpg)
+
+## Part 3: How to Apply Filters to Instagram Posts and Carousel Posts?b
+
+Applying filters to your Instagram posts is just as easy as adding filters to an Instagram story. Adding filters to your posts can make your profile look more attractive and thus improve engagement. Though the method is different for both cases, they have the same effect. Applying filters to your posts can enhance their quality and result in more likes and comments.
+
+Follow the steps given below to add filters to your Instagram post or carousel post effortlessly.
+
+**Step 1: Tap on the Plus Icon**
+
+The initial step is to tap on the **Plus icon** at the bottom of the screen. Then select an existing picture or capture a photo for further editing.
+
+**Note:** For a carousel post, long press on a picture and select other pictures you want to add to your Instagram post.
+
+**Step 2: Tap on Next Post**
+
+Next, tap on the **Next** icon present at the top right corner to apply filters to your photo. Then tap on the specific picture you want to apply a filter on and tap on a filter to add it. You can even further edit by tapping on the option to **Edit** at the bottom right corner.
+
+**Note:** If you tap on the filter for the second time, an option to control the filter's intensity will be shown. Adjust it accordingly to your preference.
+
+![add  filters to Ins carousel post](https://images.wondershare.com/filmora/article-images/apply-filters-instagram-carousel-post-add-post.jpg)
+
+**Step 3: Share your Post**
+
+Once you are done with all the relevant editing needed, tap on the **Done**. A screen will be displayed to add a caption and location. Once you have completed editing your photo, tap on the **Share** option at the top right corner.
+
+## Part 4: How to Add Filters on Instagram Reels?
+
+Instagram Reels are very similar to TikTok videos, with the iconic feature of uploading entertaining short fifteen-second videos as Instagram Reels. Instagram reels are one of the most prominent features of the new updated version of the Instagram Application.
+
+This method is quite similar to that of applying filters to Instagram stories. For your ease, we have listed a step-by-step guide below to add filters on Instagram reels.
+
+**Step 1: Go to Create Mode**
+
+Tap on the camera icon on the top left corner of the screen. And then, tap on the Reels option to go to Instagram reels create mode.
+
+**Note:** Another way to create an Instagram Reel is to go to the reels explore page and tap on the camera icon present at the top right corner of the screen.
+
+**Step 2: Tap on the Smiley Face Icon**
+
+Next, tap on the **Smiley Face Icon** to add filters. Choose from the variety of available filters. Then tap on the chosen filter to apply it to your Instagram reel.
+
+**Step 3: Start Recording**
+
+Once you are done selecting the desired filter for your Instagram reel, start recording. After the recording is done, you will notice the filter added to the whole Instagram reel you just shot.
+
+## Part 5: How to Organize the Instagram Filters for Post/Reels/Feed?
+
+Instagram is a great application that offers a wide range of filters to its users. Even though it's a great feature and very beneficial for the users to choose among the variety, it can be annoying to skim through the long list to find a specific filter. For that sole reason, Instagram provides the user with the option to hide certain filters or rearrange them to find a filter of your preference easily.
+
+The steps below are a guide to organizing the filters for your Instagram Post/Reels/Feed.
+
+**Step 1: Tap on Manage Option**
+
+The initial step is to select or capture a photo/video. Go to the filters screen and scroll to the end of the list to tap on the **Manage** option. It is a settings option specifically for the filters feature.
+
+![ins  filters manage](https://images.wondershare.com/filmora/article-images/instagram-filter-manage.jpg)
+
+**Step 2: Rearrange or Hide Filters**
+
+For rearranging your filters, hold and drag the three lines on the left side of the specified filter to wherever you want it to be. As for hiding a specific filter, tap on the circle present at the right side of the filter. When the tick sign disappears and the color of the title of the filter fades, it means that the filter has been hidden.
+
+**Note:** Another way to rearrange or hide filters is to do it from the filters screen. Long press on the specified filter and drag it to the position you want it to be. And drop the filter on the **Drag to hide** option to hide the selected filter. You can always turn off this feature from the manage menu.
+
+![arrange ins  filters](https://images.wondershare.com/filmora/article-images/arrange-hide-instagram-filters.jpg)
+
+**Step 3: Tap Done**
+
+Once you have made the required adjustments, tap on the **Done** option present at the top right corner of the screen. And you are done rearranging the filters!
+
+**Conclusion**
+
+For many individuals, using Instagram might not be as easy as it is for the new generation. It could be because some individuals find the layout to be a bit complicated, which might be the reason why they are not able to apply filters.
+
+But don't panic! In this article, we have talked about the nitty-gritty on **how to use filters on Insta**. And that's about it on how to use filters on Instagram.
+
+Even though keeping the application updated is crucial, it is also essential to follow each step thoroughly to add filters to your Instagram Post/Feed/Story effortlessly. You won't face any issue if you follow the steps exactly as mentioned.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+With the new Instagram update, many individuals have noticed that the layout has become a bit complex. Similarly, the feature to apply filters has also become complicated, making the users wonder **how to use filters on Insta**? If you are experiencing the same issue, then don't worry! You have strolled upon the right article. In this article, you'll discover how to use Instagram filters on feed posts, stories, and reels. So, make sure to skim through the whole article to apply filters on Instagram successfully.
+
+* [Part 1: What is an Instagram Filter?](#part1)
+* [Part 2: How to Add Filters on Instagram Story?](#part2)
+* [Part 3: How to Apply Filters to Instagram Posts?](#part3)
+* [Part 4: How to Add Filters on Instagram Reels?](#part4)
+* [Part 5: How to Organize the Instagram Filters?](#part5)
+
+---
+
+## Part 1: What is an Instagram Filter?
+
+The Instagram filter is a valuable tool that enables you to alter your picture with a single click by making relevant adjustments to the photo on Instagram. The feature for the Instagram filter was released in 2011 with a few basic choices for filtering your image. It provides the user with multiple ways to edit a picture with more excellent quality, an extra border, and even some significant tilt-shift effects. Because of the easy and friendly layout of Instagram, it is much easier for the user to apply filters. And, it is better to keep your application updated as Instagram is constantly releasing new layouts for the convenience of its users.
+
+This feature, although user-friendly, might be confusing for some. That is why we will show you how to enhance your posts and stories in a few simple steps.
+
+## Part 2: How to Add Filters to a Photo and Video on Instagram Story?
+
+With the easy layout provided by Instagram, it is incredibly easy to edit your pictures. Specifically, talking about adding filters to a photo or video on the Instagram story is probably the easiest thing to do on Instagram, and it does not even take much time. Adding filters to your photo or video can take a maximum of five minutes to do so.
+
+Following are the steps to add filters to a photo and video on Instagram Story, so you no longer have to worry about **how to use filters on Insta**. Make sure you follow every step so you can successfully get the job done.
+
+**Step 1: Select or Capture a Photo/Video**
+
+The initial step is to open your camera on Instagram and swipe up to select an existing picture/video or capture a photo/video to apply a filter.
+
+**Note:** Another way to add an existing picture is to tap on the bottom left corner, where you can see the photo gallery icon. Next, tap on the image you want to apply the filter on.
+
+**Step 2: Tap on a Filter**
+
+Now that you have selected a photo, an editing screen will be displayed on your device. Tap on a specific filter of your choice by swiping through the effects displayed on the editing screen to add effects to your existing picture/video.
+
+**Note:** If you do not like the effects displayed on the screen, browse other filters by tapping on the search option.
+
+![Use Ins filters](https://images.wondershare.com/filmora/article-images/instagram-story-filters-effects-option.jpg)
+
+**Step 3: Add the Picture/Video to Story**
+
+Tap on **Done** once you have chosen a filter. And then, add the picture/video to your Instagram story by clicking on the icon labeled **Your** **Story**.
+
+![add  filters to Ins Story](https://images.wondershare.com/filmora/article-images/add-filters-to-instagram-story.jpg)
+
+## Part 3: How to Apply Filters to Instagram Posts and Carousel Posts?b
+
+Applying filters to your Instagram posts is just as easy as adding filters to an Instagram story. Adding filters to your posts can make your profile look more attractive and thus improve engagement. Though the method is different for both cases, they have the same effect. Applying filters to your posts can enhance their quality and result in more likes and comments.
+
+Follow the steps given below to add filters to your Instagram post or carousel post effortlessly.
+
+**Step 1: Tap on the Plus Icon**
+
+The initial step is to tap on the **Plus icon** at the bottom of the screen. Then select an existing picture or capture a photo for further editing.
+
+**Note:** For a carousel post, long press on a picture and select other pictures you want to add to your Instagram post.
+
+**Step 2: Tap on Next Post**
+
+Next, tap on the **Next** icon present at the top right corner to apply filters to your photo. Then tap on the specific picture you want to apply a filter on and tap on a filter to add it. You can even further edit by tapping on the option to **Edit** at the bottom right corner.
+
+**Note:** If you tap on the filter for the second time, an option to control the filter's intensity will be shown. Adjust it accordingly to your preference.
+
+![add  filters to Ins carousel post](https://images.wondershare.com/filmora/article-images/apply-filters-instagram-carousel-post-add-post.jpg)
+
+**Step 3: Share your Post**
+
+Once you are done with all the relevant editing needed, tap on the **Done**. A screen will be displayed to add a caption and location. Once you have completed editing your photo, tap on the **Share** option at the top right corner.
+
+## Part 4: How to Add Filters on Instagram Reels?
+
+Instagram Reels are very similar to TikTok videos, with the iconic feature of uploading entertaining short fifteen-second videos as Instagram Reels. Instagram reels are one of the most prominent features of the new updated version of the Instagram Application.
+
+This method is quite similar to that of applying filters to Instagram stories. For your ease, we have listed a step-by-step guide below to add filters on Instagram reels.
+
+**Step 1: Go to Create Mode**
+
+Tap on the camera icon on the top left corner of the screen. And then, tap on the Reels option to go to Instagram reels create mode.
+
+**Note:** Another way to create an Instagram Reel is to go to the reels explore page and tap on the camera icon present at the top right corner of the screen.
+
+**Step 2: Tap on the Smiley Face Icon**
+
+Next, tap on the **Smiley Face Icon** to add filters. Choose from the variety of available filters. Then tap on the chosen filter to apply it to your Instagram reel.
+
+**Step 3: Start Recording**
+
+Once you are done selecting the desired filter for your Instagram reel, start recording. After the recording is done, you will notice the filter added to the whole Instagram reel you just shot.
+
+## Part 5: How to Organize the Instagram Filters for Post/Reels/Feed?
+
+Instagram is a great application that offers a wide range of filters to its users. Even though it's a great feature and very beneficial for the users to choose among the variety, it can be annoying to skim through the long list to find a specific filter. For that sole reason, Instagram provides the user with the option to hide certain filters or rearrange them to find a filter of your preference easily.
+
+The steps below are a guide to organizing the filters for your Instagram Post/Reels/Feed.
+
+**Step 1: Tap on Manage Option**
+
+The initial step is to select or capture a photo/video. Go to the filters screen and scroll to the end of the list to tap on the **Manage** option. It is a settings option specifically for the filters feature.
+
+![ins  filters manage](https://images.wondershare.com/filmora/article-images/instagram-filter-manage.jpg)
+
+**Step 2: Rearrange or Hide Filters**
+
+For rearranging your filters, hold and drag the three lines on the left side of the specified filter to wherever you want it to be. As for hiding a specific filter, tap on the circle present at the right side of the filter. When the tick sign disappears and the color of the title of the filter fades, it means that the filter has been hidden.
+
+**Note:** Another way to rearrange or hide filters is to do it from the filters screen. Long press on the specified filter and drag it to the position you want it to be. And drop the filter on the **Drag to hide** option to hide the selected filter. You can always turn off this feature from the manage menu.
+
+![arrange ins  filters](https://images.wondershare.com/filmora/article-images/arrange-hide-instagram-filters.jpg)
+
+**Step 3: Tap Done**
+
+Once you have made the required adjustments, tap on the **Done** option present at the top right corner of the screen. And you are done rearranging the filters!
+
+**Conclusion**
+
+For many individuals, using Instagram might not be as easy as it is for the new generation. It could be because some individuals find the layout to be a bit complicated, which might be the reason why they are not able to apply filters.
+
+But don't panic! In this article, we have talked about the nitty-gritty on **how to use filters on Insta**. And that's about it on how to use filters on Instagram.
+
+Even though keeping the application updated is crucial, it is also essential to follow each step thoroughly to add filters to your Instagram Post/Feed/Story effortlessly. You won't face any issue if you follow the steps exactly as mentioned.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevate-your-posts-with-4-effective-video-loop-techniques-for-2024/"><u>[New] Elevate Your Posts with 4 Effective Video Loop Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-tracing-gaps-in-your-instagram-circle/"><u>In 2024, Tracing Gaps in Your Instagram Circle</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/essential-apps-for-invisible-story-watching-for-2024/"><u>Essential Apps for Invisible Story Watching for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-refining-your-craft-making-youtube-friendly-videos/"><u>[New] Refining Your Craft  Making YouTube-Friendly Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-tricks-to-faster-and-smoother-instagram-media/"><u>In 2024, Tricks to Faster and Smoother Instagram Media</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-video-wisdom-strategies-that-score-big/"><u>[Updated] 2024 Approved  Instagram Video Wisdom  Strategies That Score Big</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-proven-instagram-analysis-apps-enhance-engagement-growth-and-conversion-rates/"><u>[New] 2024 Approved  Proven Instagram Analysis Apps  Enhance Engagement, Growth & Conversion Rates</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unlocking-the-secrets-of-instagrams-video-capsule/"><u>[New] In 2024, Unlocking the Secrets of Instagram's Video Capsule</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-your-reel-game-on-insta-with-tiktoks-best-practices/"><u>[Updated] Elevate Your Reel Game on Insta with TikTok's Best Practices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-best-chosen-templates-for-viral-ae-content/"><u>[New] In 2024, Best Chosen Templates for Viral AE Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-become-a-pro-with-our-instagram-story-insights/"><u>2024 Approved  Become a Pro with Our Instagram Story Insights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-from-capture-to-share-precision-cropping-and-export-tips-for-instagram/"><u>[Updated] 2024 Approved  From Capture to Share  Precision Cropping & Export Tips for Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-video-limits-explained-in-detail-for-2024/"><u>Instagram Video Limits Explained in Detail for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-instagram-filter-techniques/"><u>[New] In 2024, Mastering Instagram Filter Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-rhythm-and-reels-for-music-masters-on-ig/"><u>[Updated] 2024 Approved  Rhythm & Reels for Music Masters on IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-borders-on-instagrams-short-films/"><u>[New] Mastering Borders on Instagram's Short Films</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-loop-video-magic-keep-your-followers-hooked-with-instagram-boomers/"><u>[Updated] Loop Video Magic  Keep Your Followers Hooked with Instagram Boomers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/visual-storytelling-for-social-media-editing-vt-videos-in-fcpx/"><u>Visual Storytelling for Social Media  Editing VT Videos in FCPX</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-smarter-video-sharing-with-igtv-a-guide-to-flipping-videos-right/"><u>[Updated] Smarter Video Sharing with IGTV  A Guide to Flipping Videos Right</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unearthing-timeless-treasures-a-classic-lit-exploration/"><u>[New] In 2024, Unearthing Timeless Treasures  A Classic Lit Exploration</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-perfectly-permanent-images-instagram-photowatermark-techniques/"><u>[Updated] Perfectly Permanent Images  Instagram Photowatermark Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/discover-these-eight-handy-apps-to-upload-reels-on-instagram-for-2024/"><u>Discover These Eight Handy Apps to Upload Reels on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-crack-your-smile-with-these-laughing-and-tearful-ig-meme-pages/"><u>2024 Approved  Crack Your Smile with These Laughing & Tearful IG Meme Pages</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-boost-your-creativity-on-instagram-with-free-filters-for-2024/"><u>[New] Boost Your Creativity on Instagram with Free Filters for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-vivo-x100-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-y100a-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Vivo Y100A</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-create-unforgettable-moments-best-online-collage-makers/"><u>New 2024 Approved Create Unforgettable Moments Best Online Collage Makers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-expert-tips-for-mastering-screencastifys-features-for-2024/"><u>[New] Expert Tips for Mastering Screencastify's Features for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-f34-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy F34 5Gwith/without a PC</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-top-tips-for-efficient-film-recording-on-pc-and-mobile-for-2024/"><u>[Updated] Top Tips for Efficient Film Recording on PC & Mobile for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-nokia-130-music-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Nokia 130 Music to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-lava-blaze-2-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Lava Blaze 2 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-screen-capture-savvy-top-four-techniques-for-recording-games/"><u>[Updated] 2024 Approved  Screen Capture Savvy  Top Four Techniques for Recording Games</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-no-copyright-worries-top-public-domain-video-download-sites/"><u>New No Copyright Worries Top Public Domain Video Download Sites</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Vivo Y36? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-d3dgear-screen-recorder-review/"><u>[New] D3DGear Screen Recorder Review</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-samsung-galaxy-m14-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Samsung Galaxy M14 5G Phones? | Dr.fone</u></a></li>
+</ul></div>
+
