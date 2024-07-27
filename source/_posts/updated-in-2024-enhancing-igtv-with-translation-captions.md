@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Enhancing IGTV with Translation Captions"
-date: 2024-05-21T19:32:02.819Z
-updated: 2024-05-22T19:32:02.819Z
+date: 2024-07-26T01:00:49.654Z
+updated: 2024-07-27T01:00:49.654Z
 tags:
   - ai video
   - ai instagram
@@ -12,13 +12,16 @@ categories:
 description: "This Article Describes [Updated] In 2024, Enhancing IGTV with Translation Captions"
 excerpt: "This Article Describes [Updated] In 2024, Enhancing IGTV with Translation Captions"
 keywords: "\"IGTV Caption Translate,Enhance IGTV Subtitles,Video Captions in IGTV,Multilingual IGTV Support,Subtitle Addition for IGTV,IGTV Language Options,Real-Time Translation on IGTV\""
-thumbnail: https://www.lifewire.com/thmb/w__b5H1ALARvE9PEAJwyPXbsJbU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1223359568-22a7c4307de54e4cb8138418119b6f50.jpg
+thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b238b26870bf6daec55fc8dc.jpg
 ---
 
 ## Enhancing IGTV with Translation Captions
 
 # How to Add Subtitles to IGTV Videos?
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -27,6 +30,9 @@ thumbnail: https://www.lifewire.com/thmb/w__b5H1ALARvE9PEAJwyPXbsJbU=/400x300/fi
 
 During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
 
 IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
@@ -35,6 +41,9 @@ IGTV videos are vertically oriented, so you can’t just create an SRT file that
 
 We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/new-project-9.jpg)
 
 Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
@@ -53,10 +62,93 @@ You can then cut or trim the video, add filters or perform any other video editi
 
 Once you have all the text ready, you should go to the **Titles panel** and click on the **Subtitles** submenu. Filmora features a huge library of fully customizable subtitles, so you should just pick the option that you like the most and add it to the timeline. Add a subtitle file to the exact location on the timeline where particular words are said, and then double-click on it to start adding the text to your IGTV video. Keep in mind that you are going to have to go through the same process for each new sentence.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
 You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
 
+![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
+
+Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
+
+Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
+
+## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
+
+In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## Tips for Adding Subtitles to IGTV Videos
+
+While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
+
+**Conclusion**
+
+Even though adding subtitles to videos can require a lot of precision and attention to detail, it can help you produce content that attracts a lot of attention on IGTV. However, most videos shared on IGTV don’t surpass a two-minute mark, so even if there is a lot of dialogue, you can add hardcoded subtitles to a video in a relatively short period of time. What is your favorite method of adding subtitles to the videos you upload to your IGTV channel? Leave a comment below and share your experiences with us.
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
+
+IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
+![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/new-project-9.jpg)
+
+Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
+
+![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
+
+Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
+
+Place the video file on the timeline, and then return to the **File menu**, and click on the **Preferences** option. Click on the **Editing tab** in the **Preferences window** and make sure that the **Crop to Fit feature** is selected in the **Photo Placement drop-down** menu.
+
+Click on the **Ok button** to confirm the changes, and then proceed to add the **Basic Blur effect** to the video from the **Background Blur submenu** in the **Effects** panel.
+
+![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-background-blur-effects-1.jpg)
+
+You can then cut or trim the video, add filters or perform any other video editing action you want. Keep in mind **that you shouldn’t start adding subtitles before you finish editing your IGTV video.** When you have the final draft of the video ready, you should **make a transcript**. You can do this by exporting the video from Filmora, and uploading it to YouTube in order to automatically create closed captions, but it is much better if you create the transcript manually, because that way you will reduce the chances of making a mistake.
+
+Once you have all the text ready, you should go to the **Titles panel** and click on the **Subtitles** submenu. Filmora features a huge library of fully customizable subtitles, so you should just pick the option that you like the most and add it to the timeline. Add a subtitle file to the exact location on the timeline where particular words are said, and then double-click on it to start adding the text to your IGTV video. Keep in mind that you are going to have to go through the same process for each new sentence.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
+![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
+
+You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
 
 Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
@@ -93,6 +185,9 @@ During the process of editing an IGTV video, you have to think about the audienc
 
 IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
@@ -119,6 +214,13 @@ Once you have all the text ready, you should go to the **Titles panel** and clic
 
 You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
 
 Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
@@ -129,6 +231,9 @@ Once you’re done adding the subtitles you should click on the **Photo Camera i
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Adding Subtitles to IGTV Videos
 
 While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
@@ -137,6 +242,9 @@ While adding text to your IGTV you must **pay close attention that the text is c
 
 Even though adding subtitles to videos can require a lot of precision and attention to detail, it can help you produce content that attracts a lot of attention on IGTV. However, most videos shared on IGTV don’t surpass a two-minute mark, so even if there is a lot of dialogue, you can add hardcoded subtitles to a video in a relatively short period of time. What is your favorite method of adding subtitles to the videos you upload to your IGTV channel? Leave a comment below and share your experiences with us.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -151,10 +259,18 @@ Follow @Shanoon Cox
 
 During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
 
 IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
@@ -163,6 +279,9 @@ We are going to show you how to add subtitles to videos in Filmora because you d
 
 Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
 
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
@@ -191,6 +310,9 @@ Once you’re done adding the subtitles you should click on the **Photo Camera i
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Tips for Adding Subtitles to IGTV Videos
 
 While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
@@ -199,68 +321,9 @@ While adding text to your IGTV you must **pay close attention that the text is c
 
 Even though adding subtitles to videos can require a lot of precision and attention to detail, it can help you produce content that attracts a lot of attention on IGTV. However, most videos shared on IGTV don’t surpass a two-minute mark, so even if there is a lot of dialogue, you can add hardcoded subtitles to a video in a relatively short period of time. What is your favorite method of adding subtitles to the videos you upload to your IGTV channel? Leave a comment below and share your experiences with us.
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
-
-## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
-
-IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
-
-![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/new-project-9.jpg)
-
-Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
-
-![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
-
-Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
-
-Place the video file on the timeline, and then return to the **File menu**, and click on the **Preferences** option. Click on the **Editing tab** in the **Preferences window** and make sure that the **Crop to Fit feature** is selected in the **Photo Placement drop-down** menu.
-
-Click on the **Ok button** to confirm the changes, and then proceed to add the **Basic Blur effect** to the video from the **Background Blur submenu** in the **Effects** panel.
-
-![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-background-blur-effects-1.jpg)
-
-You can then cut or trim the video, add filters or perform any other video editing action you want. Keep in mind **that you shouldn’t start adding subtitles before you finish editing your IGTV video.** When you have the final draft of the video ready, you should **make a transcript**. You can do this by exporting the video from Filmora, and uploading it to YouTube in order to automatically create closed captions, but it is much better if you create the transcript manually, because that way you will reduce the chances of making a mistake.
-
-Once you have all the text ready, you should go to the **Titles panel** and click on the **Subtitles** submenu. Filmora features a huge library of fully customizable subtitles, so you should just pick the option that you like the most and add it to the timeline. Add a subtitle file to the exact location on the timeline where particular words are said, and then double-click on it to start adding the text to your IGTV video. Keep in mind that you are going to have to go through the same process for each new sentence.
-
-![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
-
-You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
-
-![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
-
-Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
-
-Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
-
-## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
-
-In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
-
-## Tips for Adding Subtitles to IGTV Videos
-
-While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
-
-**Conclusion**
-
-Even though adding subtitles to videos can require a lot of precision and attention to detail, it can help you produce content that attracts a lot of attention on IGTV. However, most videos shared on IGTV don’t surpass a two-minute mark, so even if there is a lot of dialogue, you can add hardcoded subtitles to a video in a relatively short period of time. What is your favorite method of adding subtitles to the videos you upload to your IGTV channel? Leave a comment below and share your experiences with us.
-
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -292,3 +355,40 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-from-content-creator-to-brand-ambassador-unlocking-instagram-sponsorship/"><u>[New] 2024 Approved  From Content Creator to Brand Ambassador  Unlocking Instagram Sponsorship</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-crafting-stunning-insta-films-templates-plus-hacks/"><u>[New] In 2024, Crafting Stunning Insta Films  Templates + Hacks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-efficiently-storing-instagram-reels-two-simplified-techniques/"><u>[New] In 2024, Efficiently Storing Instagram Reels  Two Simplified Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-social-media-savants-guide-to-stellar-instagram-posts/"><u>[New] In 2024, The Social Media Savant's Guide to Stellar Instagram Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instastorysaver-free-storage-beyond-counts-for-2024/"><u>[New] InstaStorySaver  Free Storage Beyond Counts for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-leading-the-pack-10-crucial-apps-for-insta-video-marketers-for-2024/"><u>[New] Leading the Pack  10 Crucial Apps for Insta Video Marketers for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-real-time-unfollowers-detection-on-insta-for-2024/"><u>[New] Real-Time Unfollowers Detection on Insta for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-borders-enhancing-images-with-style-on-social-platforms/"><u>[New] Step By Step Borders  Enhancing Images with Style on Social Platforms</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-by-step-guide-to-snapchats-captivating-boomers/"><u>[New] Step-By-Step Guide to Snapchat's Captivating Boomers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-utilities-free-and-paid-macpc-bd-software-compared/"><u>[New] Ultimate Utilities  Free & Paid Mac/PC BD Software Compared</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-rotate-videos-for-instagram-a-guide-for-desktop-and-mobile-users-alke/"><u>[Updated] 2024 Approved  Rotate Videos for Instagram  A Guide for Desktop and Mobile Users Alke</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-secure-your-insta-reels-with-simple-download-strategies/"><u>[Updated] 2024 Approved  Secure Your Insta Reels with Simple Download Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-unlock-social-media-success-hashtag-utilization-on-instagram/"><u>[Updated] 2024 Approved  Unlock Social Media Success  Hashtag Utilization on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-amplify-reach-todays-most-effective-instagram-tag-strategies/"><u>[Updated] In 2024, Amplify Reach  Today's Most Effective Instagram Tag Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-projecting-yourself-to-the-world-with-insta-captions/"><u>[Updated] In 2024, Projecting Yourself to the World with Insta Captions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-building-a-profitable-instagram-empire/"><u>[Updated] Step-by-Step  Building a Profitable Instagram Empire</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-perfect-frame-a-guide-to-polishing-videos-with-instagram-edits-for-2024/"><u>[Updated] The Perfect Frame  A Guide to Polishing Videos with Instagram Edits for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-the-secrets-to-outro-mastery-free-tutorials-1-6/"><u>[Updated] Unlocking the Secrets to Outro Mastery (FREE Tutorials 1-6)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-crafting-personalized-instagram-story-sections/"><u>2024 Approved  Crafting Personalized Instagram Story Sections</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-excellence-in-starting-points-for-panzoids/"><u>2024 Approved  Excellence in Starting Points for Panzoids</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/amplify-your-messages-a-guide-to-effective-telegram-advertising-for-2024/"><u>Amplify Your Messages  A Guide to Effective Telegram Advertising for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/beat-infused-imagery-mobile-video-making-on-iphone-for-2024/"><u>Beat-Infused Imagery  Mobile Video Making on iPhone for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-m34-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy M34 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-apple-iphone-8-plus-by-name-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Apple iPhone 8 Plus by Name | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-how-to-edit-titles-and-descriptions-of-igtv-videos/"><u>In 2024, How to Edit Titles and Descriptions of IGTV Videos?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-securing-your-social-media-visuals-instagram-edition/"><u>In 2024, Securing Your Social Media Visuals  Instagram Edition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-step-by-step-guide-to-creating-and-changing-igtv-cover-photos/"><u>In 2024, Step-By-Step Guide to Creating & Changing IGTV Cover Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-understanding-the-impact-activating-auto-hdr-feature-on-windows-11/"><u>In 2024, Understanding the Impact  Activating Auto HDR Feature on Windows 11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/interactive-link-integration-for-instagram-users/"><u>Interactive Link Integration for Instagram Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-social-media-metrics-the-igtv-hashtag-connection-for-2024/"><u>Mastering Social Media Metrics  The IGTV Hashtag Connection for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/share-across-platforms-instagram-meets-facebook-for-2024/"><u>Share Across Platforms  Instagram Meets Facebook for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlock-social-media-success-hashtag-utilization-on-instagram/"><u>Unlock Social Media Success  Hashtag Utilization on Instagram</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlock-your-creative-potential-best-free-premiere-pro-libraries/"><u>Unlock Your Creative Potential  Best Free Premiere Pro Libraries</u></a></li>
+</ul></div>

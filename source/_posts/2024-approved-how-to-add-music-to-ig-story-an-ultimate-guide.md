@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Add Music to IG Story – an Ultimate Guide\""
-date: 2024-06-19T16:26:19.873Z
-updated: 2024-06-20T16:26:19.873Z
+date: 2024-07-26T00:28:02.568Z
+updated: 2024-07-27T00:28:02.568Z
 tags:
   - ai video
   - ai instagram
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
 # How to Add Music to IG Story – an Ultimate Guide
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -29,8 +32,14 @@ _I see a lot of Instagram stories with songs posted, but I don’t know how to d
 
 If you are also an avid Instagram user who would like to post stories on the app, then you can have a similar query. Although, the feature of Instagram Music was only available in selected countries in 2018 – today, it is accessible almost everywhere. It lets us add a song (and its lyrics) to our Instagram story for our viewers with tons of customized options. Since it makes our stories more fun, a lot of people add music to IG story every now and then. Without much ado, let’s proceed and learn how to put music on IG story in detail.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A Step-by-step Guide for Adding Music to IG Story
 
 To make it easier for us to post interesting stories, Instagram has come up with the Music feature. Using it, we can look for tons of popular songs in different languages and add our favorite snippets to our story. Presently, the feature of Instagram Music is available for English, German, French, Hindi, and a few other local languages. Also, you can post a snippet of at most 15 seconds since that is the maximum duration of an Instagram story. To learn how to add music to the IG story, you can follow these simple steps right away:
@@ -39,10 +48,16 @@ To make it easier for us to post interesting stories, Instagram has come up with
 
 To start with, just launch the Instagram application on your phone and tap on the “Add Story” button. You can find it on the top-left corner of the screen, depicted by a “+” sign with your profile picture.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Add Story Button](https://images.wondershare.com/filmora/article-images/add-story.jpg)
 
 This will launch a dedicated interface for Instagram Story. Here, you can use your camera to click a picture or record a mini video. If you want, you can also upload an existing picture or video as your story as well. Once you have taken a snap, just scroll up your screen to get various add-on features for your story. From here, just tap on the “Music” option to add music to IG story.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add Music](https://images.wondershare.com/filmora/article-images/select-music.jpg)
 
 #### 2. Select any song of your choice
@@ -53,12 +68,18 @@ As of now, Instagram music has an extensive catalog with millions of songs in di
 
 Once you find the song of your choice, just tap on it and it will be loaded on the Instagram Story interface. Although the entire song would be loaded, you would now have to clip a snippet of at most 15 seconds from it. There is a slider at the bottom that you can move and adjust to clip the specific part and even view its lyrics sliding as you move.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
 
 #### 3. Make optional edits to customize the story
 
 If you want, you can just post the song right away after learning how to put music on IG story. Though, a lot of people would like to make changes in the story to make it look presentable. For instance, you can see a timer (that is set to 15 seconds by default) at the bottom-left panel. Just tap on it and adjust the duration for your story that can be anywhere from 2 to 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![Edit IG Story](https://images.wondershare.com/filmora/article-images/edit-story.jpg)
 
 After when you add music to IG story, you can further change how it looks. You can see different ways to display the lyrics right above the snippet selection. If you want, you can zoom in or out the text and move it to display it the way you like. Furthermore, there is a color radiant option on the top that you can select to change the text color and background.
@@ -67,6 +88,9 @@ After when you add music to IG story, you can further change how it looks. You c
 
 If you don’t want to display the lyrics, then just swipe the text options at the bottom and select the sticker feature. This will only display the sticker of the track on the story. You can also tap on the sticker to get different display options for it.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
 
 #### 4. Post your IG Story on your Profile
@@ -95,6 +119,9 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
 
 #### Ask questions to interact with your audience
@@ -105,6 +132,15 @@ Polls and Questions are some of the best ways to increase interaction in your st
 
 If you plan to add video content to your Instagram stories, then consider using a professional tool like Filmora. It is a user-friendly and sophisticated application that has tons of inbuilt features and special effects. You can trim your videos, add its presets, and explore media effects to make your Instagram stories look stunning. This will elevate the overall aesthetic appeal of your videos, catching the attention of your audience for sure.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
@@ -125,6 +161,9 @@ _I see a lot of Instagram stories with songs posted, but I don’t know how to d
 
 If you are also an avid Instagram user who would like to post stories on the app, then you can have a similar query. Although, the feature of Instagram Music was only available in selected countries in 2018 – today, it is accessible almost everywhere. It lets us add a song (and its lyrics) to our Instagram story for our viewers with tons of customized options. Since it makes our stories more fun, a lot of people add music to IG story every now and then. Without much ado, let’s proceed and learn how to put music on IG story in detail.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
 ## A Step-by-step Guide for Adding Music to IG Story
@@ -135,6 +174,9 @@ To make it easier for us to post interesting stories, Instagram has come up with
 
 To start with, just launch the Instagram application on your phone and tap on the “Add Story” button. You can find it on the top-left corner of the screen, depicted by a “+” sign with your profile picture.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add Story Button](https://images.wondershare.com/filmora/article-images/add-story.jpg)
 
 This will launch a dedicated interface for Instagram Story. Here, you can use your camera to click a picture or record a mini video. If you want, you can also upload an existing picture or video as your story as well. Once you have taken a snap, just scroll up your screen to get various add-on features for your story. From here, just tap on the “Music” option to add music to IG story.
@@ -145,6 +187,9 @@ This will launch a dedicated interface for Instagram Story. Here, you can use yo
 
 As of now, Instagram music has an extensive catalog with millions of songs in different languages and genres. As you would tap on the “Music” option, it will automatically suggest numerous songs that are trending. If you want, you can tap on the search bar and enter keywords for songs, artists, albums, etc. to look for anything specific.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Select Taylor Swift Songs](https://images.wondershare.com/filmora/article-images/select-taylor-swift-songs.jpg)
 
 Once you find the song of your choice, just tap on it and it will be loaded on the Instagram Story interface. Although the entire song would be loaded, you would now have to clip a snippet of at most 15 seconds from it. There is a slider at the bottom that you can move and adjust to clip the specific part and even view its lyrics sliding as you move.
@@ -163,6 +208,9 @@ After when you add music to IG story, you can further change how it looks. You c
 
 If you don’t want to display the lyrics, then just swipe the text options at the bottom and select the sticker feature. This will only display the sticker of the track on the story. You can also tap on the sticker to get different display options for it.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
 
 #### 4. Post your IG Story on your Profile
@@ -171,6 +219,9 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 
 ![Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
 You might already know how popular Instagram Stories have become in just a few years. The feature is used by over 500 million people and can be an excellent tool to reach out to your audience. Apart from learning how to put music on IG story, there are several other things that you can also do to make your stories more captivating and eye-catching.
@@ -179,6 +230,9 @@ You might already know how popular Instagram Stories have become in just a few y
 
 Boomerangs are extremely popular in Instagram stories due to their quick yet interesting visual appeal. It will make a small clip play in reverse and back a few times, focusing on the movement. You can just go to your Instagram Story interface and swipe the bottom slider to use your camera to record a boomerang. Apart from that, you can also play with different layouts here to post multiple pictures as a single story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ![Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
 #### Use inbuilt Instagram filters
@@ -201,10 +255,16 @@ Polls and Questions are some of the best ways to increase interaction in your st
 
 If you plan to add video content to your Instagram stories, then consider using a professional tool like Filmora. It is a user-friendly and sophisticated application that has tons of inbuilt features and special effects. You can trim your videos, add its presets, and explore media effects to make your Instagram stories look stunning. This will elevate the overall aesthetic appeal of your videos, catching the attention of your audience for sure.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -223,6 +283,9 @@ If you are also an avid Instagram user who would like to post stories on the app
 
 ![Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## A Step-by-step Guide for Adding Music to IG Story
 
 To make it easier for us to post interesting stories, Instagram has come up with the Music feature. Using it, we can look for tons of popular songs in different languages and add our favorite snippets to our story. Presently, the feature of Instagram Music is available for English, German, French, Hindi, and a few other local languages. Also, you can post a snippet of at most 15 seconds since that is the maximum duration of an Instagram story. To learn how to add music to the IG story, you can follow these simple steps right away:
@@ -235,6 +298,9 @@ To start with, just launch the Instagram application on your phone and tap on th
 
 This will launch a dedicated interface for Instagram Story. Here, you can use your camera to click a picture or record a mini video. If you want, you can also upload an existing picture or video as your story as well. Once you have taken a snap, just scroll up your screen to get various add-on features for your story. From here, just tap on the “Music” option to add music to IG story.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add Music](https://images.wondershare.com/filmora/article-images/select-music.jpg)
 
 #### 2. Select any song of your choice
@@ -259,12 +325,18 @@ After when you add music to IG story, you can further change how it looks. You c
 
 If you don’t want to display the lyrics, then just swipe the text options at the bottom and select the sticker feature. This will only display the sticker of the track on the story. You can also tap on the sticker to get different display options for it.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
 
 #### 4. Post your IG Story on your Profile
 
 That’s it! In this way, you can learn how to add music to IG story and customize it however you like. If you are satisfied with the changes, then just tap on the “Send to” option to get different ways to share your story. You can send it to any selective friend, post it just for your close friends, or share your IG story for all followers.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
 ## How to Create Stunning IG Stories to Captivate Your Audience?
@@ -275,12 +347,18 @@ You might already know how popular Instagram Stories have become in just a few y
 
 Boomerangs are extremely popular in Instagram stories due to their quick yet interesting visual appeal. It will make a small clip play in reverse and back a few times, focusing on the movement. You can just go to your Instagram Story interface and swipe the bottom slider to use your camera to record a boomerang. Apart from that, you can also play with different layouts here to post multiple pictures as a single story.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
 #### Use inbuilt Instagram filters
 
 Instagram also keeps rotating different filters that we can add to our stories. You can explore them from the bottom panel and make your stories look visually appealing. There are tons of gradients and stickers here that you can explore and easily add to your story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
 #### Add polls, challenges, countdowns, and more
@@ -297,6 +375,9 @@ Polls and Questions are some of the best ways to increase interaction in your st
 
 If you plan to add video content to your Instagram stories, then consider using a professional tool like Filmora. It is a user-friendly and sophisticated application that has tons of inbuilt features and special effects. You can trim your videos, add its presets, and explore media effects to make your Instagram stories look stunning. This will elevate the overall aesthetic appeal of your videos, catching the attention of your audience for sure.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
@@ -317,6 +398,18 @@ _I see a lot of Instagram stories with songs posted, but I don’t know how to d
 
 If you are also an avid Instagram user who would like to post stories on the app, then you can have a similar query. Although, the feature of Instagram Music was only available in selected countries in 2018 – today, it is accessible almost everywhere. It lets us add a song (and its lyrics) to our Instagram story for our viewers with tons of customized options. Since it makes our stories more fun, a lot of people add music to IG story every now and then. Without much ado, let’s proceed and learn how to put music on IG story in detail.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
 ## A Step-by-step Guide for Adding Music to IG Story
@@ -337,10 +430,16 @@ This will launch a dedicated interface for Instagram Story. Here, you can use yo
 
 As of now, Instagram music has an extensive catalog with millions of songs in different languages and genres. As you would tap on the “Music” option, it will automatically suggest numerous songs that are trending. If you want, you can tap on the search bar and enter keywords for songs, artists, albums, etc. to look for anything specific.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Select Taylor Swift Songs](https://images.wondershare.com/filmora/article-images/select-taylor-swift-songs.jpg)
 
 Once you find the song of your choice, just tap on it and it will be loaded on the Instagram Story interface. Although the entire song would be loaded, you would now have to clip a snippet of at most 15 seconds from it. There is a slider at the bottom that you can move and adjust to clip the specific part and even view its lyrics sliding as you move.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
 
 #### 3. Make optional edits to customize the story
@@ -351,10 +450,16 @@ If you want, you can just post the song right away after learning how to put mus
 
 After when you add music to IG story, you can further change how it looks. You can see different ways to display the lyrics right above the snippet selection. If you want, you can zoom in or out the text and move it to display it the way you like. Furthermore, there is a color radiant option on the top that you can select to change the text color and background.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Customize IG Story](https://images.wondershare.com/filmora/article-images/customize-story.jpg)
 
 If you don’t want to display the lyrics, then just swipe the text options at the bottom and select the sticker feature. This will only display the sticker of the track on the story. You can also tap on the sticker to get different display options for it.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
 
 #### 4. Post your IG Story on your Profile
@@ -428,3 +533,40 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-cross-platform-connection-masterclass-instagramfacebook/"><u>[New] 2024 Approved  Cross-Platform Connection Masterclass  Instagram/Facebook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-secure-social-space-end-following-protocols/"><u>[New] 2024 Approved  Secure Social Space  End Following Protocols</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-superior-5-sites-matching-twitters-features/"><u>[New] 2024 Approved  Superior 5 Sites Matching Twitter's Features</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-capture-chronicles-reviewing-the-best-screencasters/"><u>[New] Capture Chronicles  Reviewing the Best Screencasters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-driving-traffic-and-likes-a-guide-for-instagram-pros-for-2024/"><u>[New] Driving Traffic & Likes  A Guide for Instagram Pros for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-genres-to-gems-building-a-personalized-youtube-music-mix-onlinemobile-for-2024/"><u>[New] From Genres to Gems  Building a Personalized YouTube Music Mix Online/Mobile for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-hidden-media-strategies-for-displaying-on-your-timeline/"><u>[New] Hidden Media  Strategies for Displaying on Your Timeline</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-complete-guide-to-crafting-perfect-instagram-stories/"><u>[New] In 2024, The Complete Guide to Crafting Perfect Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-techniques-to-decrease-film-duration-on-macos-for-insta-for-2024/"><u>[New] Techniques to Decrease Film Duration on macOS for Insta for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-shooting-guide-to-immersive-video-top-9-techniques/"><u>[New] The Ultimate Shooting Guide to Immersive Video (Top 9 Techniques)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unveiling-the-secrets-to-stellar-igtv-footage-capture-for-2024/"><u>[New] Unveiling the Secrets to Stellar IGTV Footage Capture for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-upload-with-ease-instagram-and-vimeo-harmony/"><u>[New] Upload with Ease  Instagram and Vimeo Harmony</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-craft-your-storyline-three-ways-to-border-instagram-videos/"><u>[Updated] Craft Your Storyline  Three Ways to Border Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-deactivation-done-right-the-ultimate-instagram-guide-for-2024/"><u>[Updated] Deactivation Done Right  The Ultimate Instagram Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-accelerating-the-playback-of-instagram-videos-tips/"><u>[Updated] In 2024, Accelerating the Playback of Instagram Videos (Tips)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagrams-latest-trends-for-successful-influencer-journeys/"><u>[Updated] In 2024, Instagram's Latest Trends for Successful Influencer Journeys</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultimate-soundscapes-for-visual-storytelling/"><u>[Updated] Ultimate Soundscapes for Visual Storytelling</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unmasking-momentum-makers-seeking-out-niche-influencers/"><u>[Updated] Unmasking Momentum Makers  Seeking Out Niche Influencers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-from-fast-paced-footage-to-staggeringly-slow-motion-videos-a-comprehensive-ig-reel-guide/"><u>2024 Approved  From Fast-Paced Footage to Staggeringly Slow Motion Videos  A Comprehensive IG Reel Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-precision-in-photos-mastering-insta-story-zoom-levels/"><u>2024 Approved  Precision in Photos  Mastering Insta Story Zoom Levels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/customize-your-video-to-fit-seamlessly-in-instagram-for-2024/"><u>Customize Your Video to Fit Seamlessly in Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-followers-to-earnings-instagrams-complete-guide-for-2024/"><u>From Followers to Earnings  Instagram's Complete Guide for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-samsung-galaxy-s23-fe-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-iphone-8-icloud-activation-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing iPhone 8 iCloud Activation Lock</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-performance-in-a-package-that-pleases-your-pocket/"><u>In 2024, Premium Performance in a Package That Pleases Your Pocket</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-scrutinizing-the-importance-of-honesty-in-online-self-portraits/"><u>In 2024, Scrutinizing the Importance of Honesty in Online Self-Portraits</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-healing-power-of-asmr-explained-here/"><u>In 2024, The Healing Power of ASMR Explained Here</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-key-to-successful-large-scale-instagram-videos/"><u>In 2024, The Key to Successful Large-Scale Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/make-your-instagram-posts-pop-with-correct-video-dimensions-for-2024/"><u>Make Your Instagram Posts Pop with Correct Video Dimensions for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-multi-image-instagram-stories-a-step-by-step-tutorial-for-2024/"><u>Mastering Multi-Image Instagram Stories  A Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/methods-for-turning-vimeo-content-into-mp3-for-2024/"><u>Methods for Turning Vimeo Content Into MP3 for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-concealed-aspects-understanding-the-unique-stories-of-followers/"><u>The Concealed Aspects  Understanding the Unique Stories of Followers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unmask-phony-followers-a-speedy-cost-free-approach-for-instagram/"><u>Unmask Phony Followers  A Speedy, Cost-Free Approach for Instagram</u></a></li>
+</ul></div>

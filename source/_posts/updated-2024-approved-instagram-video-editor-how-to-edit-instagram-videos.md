@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Instagram Video Editor  How to Edit Instagram Videos\""
-date: 2024-05-21T19:04:50.323Z
-updated: 2024-05-22T19:04:50.323Z
+date: 2024-07-25T23:55:37.735Z
+updated: 2024-07-26T23:55:37.735Z
 tags:
   - ai video
   - ai instagram
@@ -12,13 +12,16 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Instagram Video Editor: How to Edit Instagram Videos\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Instagram Video Editor: How to Edit Instagram Videos\""
 keywords: "Instagram Video Editing,Editing Instagram Media,Professional Instagram Edits,Enhancing Instagram Visuals,InstaVideo Cutting Techniques,Streamlining Instagram Content,Elevating Instagram Videos"
-thumbnail: https://www.lifewire.com/thmb/u2CGdSfM3QAZqf1i_jqJ0Yphm2Q=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/NatalieHeadshot1-fc42e637c3174b46a7a99cb5adcfccb4.jpg
+thumbnail: https://thmb.techidaily.com/42db527a5e8afa7e682e92b7b056d02f1f5ec85f1c2a7e4bae6cede878df1e2d.jpg
 ---
 
 ## Cutting-Edge Tactics for Polishing Your Social Media Vids on Instagram
 
 # Instagram Video Editor: How to Edit Instagram Videos
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -41,6 +44,9 @@ You May also like
 
 ## Best Video Editor for Editing Instagram Video: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Instagram has launched a new longer-form video app for content creators named IGTV on June 2018, which allows you to upload a longer video, while in Instagram Stories, the video length is limited to 15 seconds, and the video in main feeds can be 60 seconds.
@@ -51,6 +57,9 @@ We recommend you to use Filmora video editor to edit your Instagram videos becau
 
 * Filmora allows you to customize your Instagram video project to any ratio you want, besides the common 1:1, 16:9, 9:16, 4:3 and 21:9 aspect ratio. You can open Filmora, go to File-Project Settings, and then input the resolution you want to customize the project ratio.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![custom-project-ratio.jpg](https://images.wondershare.com/filmora/article-images/custom-project-ratio.jpg)
 
 * Filmora provides plentiful filters such as Instagram-like filters, background blur filters specially built for Instagram videos.
@@ -59,6 +68,9 @@ We recommend you to use Filmora video editor to edit your Instagram videos becau
 
 * Filmora supports various formats & devices, and enables you to change the frame rate and resolution etc. as well as upload video to other social platform like YouTube and Vimeo.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
 New to video editing world? Check this [ultimate guide to Editing Video](https://tools.techidaily.com/wondershare/filmora/download/) to learn video editing step by step.
@@ -74,6 +86,9 @@ Video editing in Instagram video system is relatively straightforward. All you n
 
 **Record:** After launching Instagram, tap the Plus icon at the bottom of the screen. And then tap **Video** button to continue. Tap and hold the circle button at the screen to start recording. You can release it when you want to stop recording. You can tap and hold the button again to record multiple video clips. You can also tap the switch button to switch between cameras.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![add video instagram](https://images.wondershare.com/filmora/article-images/add-video-instagram.jpg)
 
 **Delete:** Is there a clip that you don’t want? You can get rid of the most recent clip that you recorded quickly. All you need to do is tap the **Delete** button and tap it again to confirm.
@@ -86,6 +101,9 @@ Video editing in Instagram video system is relatively straightforward. All you n
 
 **Add Cover Frame:** Once you have completed adding a filter to your video, you can select a cover. The cover frame is one particular frame from the video and it will be in the front of the video. It is important to choose an interesting cover to attract your friends to watch.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram cover](https://images.wondershare.com/filmora/article-images/instagram-cover.JPG)
 
 Recommend to choose a handheld stabilizer for your phone to make your video footage to next level
@@ -94,14 +112,23 @@ Recommend to choose a handheld stabilizer for your phone to make your video foot
 
 [Check at Amazon](https://www.amazon.com/gp/product/B017K42FVA/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-pop-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B017K42FVA&linkId=239170a7361e67e8d0d848644e4b1f99)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Advanced Video Editing in [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) for Instagram Videos
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![start-filmora9-editing](https://images.wondershare.com/filmora/article-images/start-filmora9-editing.jpg)
 
 You can just do some basic video editing within the Instagram app. However, if you want more control over how your video is edited, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It's a simple yet powerful editing tool that provides you with far more options to edit your video clips. You can do the edits quickly with far more options and get exactly what you want. There are more than 300 new effects available in Filmora, you can add titles, motion elements, overlays and music sound to your video clip, which will make your video more attractive. What's more, if you need some more professional look in your video, you can apply our Filmstock Effect Packs. And you can get some [Effects Packs for free in Filmora Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) now.
 
 Download it now and follow the steps below to edit your Instagram videos quickly and easily.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 1\.  Import videos to the program
@@ -126,10 +153,17 @@ You can choose from many different graphics, transitions, sound effects, texts a
 
 Once your video clip is ready, just save it to your local folder or device in mp4 or other supported formats, and then upload it to Instagram and let it play for the world! You can also change the video settings like resolution, bit rate. Besides that, you can also share your video to Youtube, Vimeo, or burn a DVD collection if you need.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg "edit instagram")
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Making Instagram Video More Attractive with Filmora Effects Packs
 
 Want to make your video standing out in your Instagram community? Try the Filters and Effects provided by Filmora Filmstock. It provides various unique amazing texts, filters, overlays and motion elements, which will help to make the stunning videos for you. Currently, there are 333 specially designed Effect Packs available, including Beauty series, Fashion series, Fitness series, Food series, Travel series, Education series and Holiday series. What's more, Filmstock has After Effects available for the users to download. And the good news is, you can get some Effects Packs, such as Spring Pack, Crayons Pack, Japanese Graduation Pack, Animated Emoji Pack,and Paris Sketchbook Pack, etc. for free and the design team will update and add the Filmstock effect packs monthly, which allows you to enjoy different new effects per month. You can visit [Filmora Filmstock](https://filmstock.wondershare.com/) to get the detailed completed information.
@@ -144,6 +178,185 @@ Watch the video below about Filmora effect packs in Beauty series :
 
 You can also add photo effects to your Instagram images. Click [here to check the photo editor which provides more than 200 photo effects](https://tools.techidaily.com/wondershare/fotophire/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+Instagram is known as one of the most prominent community where you can capture and share your moments simply and beautifully on the Internet. Beside photo editing and sharing, it has expanded their services to include uploading, editing and posting video as well. So far, Instagram allows you to post up to 60 seconds of video.
+
+You can edit your videos using the relatively simple built-in program that Instagram provides, or you can make your video more attractive in your Instagram community by using some extra filters and effects provided by Filmora Filmstock, and edit your video with Filmora video editor on your PC or Mac to make it more fantastic in your [business](https://tools.techidaily.com/wondershare/filmora/download/). In this article, we will show you how to edit video clips in Instagram and how to edit your Instagram video clips in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+* [Editing Instagram Video: Basic Video Editing Features in Instagram](#part1)
+* [Advanced Video Editing in Wondershare Filmora for Instagram Videos](#part2)
+* [Making Instagram Video More Attractive](#part3)
+
+You May also like
+
+[**12 Facebook Marketing Tips for Business**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Best Video Editor for Editing Instagram Video: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Instagram has launched a new longer-form video app for content creators named IGTV on June 2018, which allows you to upload a longer video, while in Instagram Stories, the video length is limited to 15 seconds, and the video in main feeds can be 60 seconds.
+
+Though IGTV allows you to upload portrait/vertical videos only with a minimum 4:5/a maximum 9:16 aspect ratio, at present, Instagram still displays square video (1:1 aspect ratio), portrait video (5:4 aspect ratio) and landscape video (16:9 aspect ratio).
+
+We recommend you to use Filmora video editor to edit your Instagram videos because:
+
+* Filmora allows you to customize your Instagram video project to any ratio you want, besides the common 1:1, 16:9, 9:16, 4:3 and 21:9 aspect ratio. You can open Filmora, go to File-Project Settings, and then input the resolution you want to customize the project ratio.
+
+![custom-project-ratio.jpg](https://images.wondershare.com/filmora/article-images/custom-project-ratio.jpg)
+
+* Filmora provides plentiful filters such as Instagram-like filters, background blur filters specially built for Instagram videos.
+
+![apply-instagram-filters](https://images.wondershare.com/filmora/article-images/apply-instagram-filters.jpg)
+
+* Filmora supports various formats & devices, and enables you to change the frame rate and resolution etc. as well as upload video to other social platform like YouTube and Vimeo.
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
+
+New to video editing world? Check this [ultimate guide to Editing Video](https://tools.techidaily.com/wondershare/filmora/download/) to learn video editing step by step.
+
+**More Instagram Editing Tips**:
+[How to Crop and Export Videos to Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)  
+[How to Upload a Video to Instagram From a Desktop >>](https://tools.techidaily.com/wondershare/filmora/download/)
+[How to Edit Instagram Photos >>](https://tools.techidaily.com/wondershare/fotophire/download/)
+
+## Part 1: Basic Video Editing in Instagram
+
+Video editing in Instagram video system is relatively straightforward. All you need to do is recording the video in your smartphone or tablet to start.
+
+**Record:** After launching Instagram, tap the Plus icon at the bottom of the screen. And then tap **Video** button to continue. Tap and hold the circle button at the screen to start recording. You can release it when you want to stop recording. You can tap and hold the button again to record multiple video clips. You can also tap the switch button to switch between cameras.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![add video instagram](https://images.wondershare.com/filmora/article-images/add-video-instagram.jpg)
+
+**Delete:** Is there a clip that you don’t want? You can get rid of the most recent clip that you recorded quickly. All you need to do is tap the **Delete** button and tap it again to confirm.
+
+**Add a Filter:** After you have recorded the video, tap the **Next** button in the upper right. Currently, there are 24 filters available in Instagram. Swipe the filters at the bottom of the screen to check all filter options. Tap a filter once to check how it will look with your video clip, tap the filter again to adjust with the slider.
+
+![instagram filters](https://images.wondershare.com/filmora/article-images/instagram-filters.JPG)
+
+**Image Stabilization:** There's a small camera icon at the top of the screen after you taking the video. By default, it's turned on on and applied to your video. If you want to turn it off, just tap it again.
+
+**Add Cover Frame:** Once you have completed adding a filter to your video, you can select a cover. The cover frame is one particular frame from the video and it will be in the front of the video. It is important to choose an interesting cover to attract your friends to watch.
+
+![instagram cover](https://images.wondershare.com/filmora/article-images/instagram-cover.JPG)
+
+Recommend to choose a handheld stabilizer for your phone to make your video footage to next level
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![zhiyun z1 smooth c](https://images.wondershare.com/filmora/article-images/zhiyun-z1-smooth-c.jpg)
+
+[Check at Amazon](https://www.amazon.com/gp/product/B017K42FVA/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-pop-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B017K42FVA&linkId=239170a7361e67e8d0d848644e4b1f99)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
+## Part 2: Advanced Video Editing in [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) for Instagram Videos
+
+![start-filmora9-editing](https://images.wondershare.com/filmora/article-images/start-filmora9-editing.jpg)
+
+You can just do some basic video editing within the Instagram app. However, if you want more control over how your video is edited, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It's a simple yet powerful editing tool that provides you with far more options to edit your video clips. You can do the edits quickly with far more options and get exactly what you want. There are more than 300 new effects available in Filmora, you can add titles, motion elements, overlays and music sound to your video clip, which will make your video more attractive. What's more, if you need some more professional look in your video, you can apply our Filmstock Effect Packs. And you can get some [Effects Packs for free in Filmora Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) now.
+
+Download it now and follow the steps below to edit your Instagram videos quickly and easily.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 1\.  Import videos to the program
+
+Lanuch Filmora, and then click the "Import" button or directly drag your video to the media library of this powerful Instagram video editor. You can preview your video in the right Preview window. And if you find your footage is a little shaky, you can stabilize it by right clicking the footage and then selecting **Stabilization**. If the footage is OK, then drag and drop it from the library to the Timeline.
+
+![get-filmora9-stabilization](https://images.wondershare.com/filmora/article-images/get-filmora9-stabilization.jpg)
+
+#### 2. Cut, split, rotate or color tune Instagram video
+
+While Instagram just provides some basic editing options, you can shape your footage quickly and easily using Wondershare Filmora. You can move the slider on the timeline and use the red Scissor icon to cut or split your video. Then double click the video on the timeline, select Transform, you will be able to rotate and flip your video. What's more, you can click the Color option and do some advanced color tuning to make your video more beautiful.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![rotate-and-cut](https://images.wondershare.com/filmora/article-images/rotate-and-cut.jpg "edit instagram video")
+
+#### 3. Add Filters and Effects
+
+You can choose from many different graphics, transitions, sound effects, texts and tiles, overlays, elements and filters, which means you can get the exact look and sound you want. To do this, just go to each effect tabs above the timeline and drag-n-drop the effects you'd like to apply. There are over 120 built-in filters in Filmora video editor, and you can get more in the [Filmora Filmstock](https://filmstock.wondershare.com/).
+
+![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/add-filmora9-filters.jpg)
+
+#### 4. Save and share your video
+
+Once your video clip is ready, just save it to your local folder or device in mp4 or other supported formats, and then upload it to Instagram and let it play for the world! You can also change the video settings like resolution, bit rate. Besides that, you can also share your video to Youtube, Vimeo, or burn a DVD collection if you need.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg "edit instagram")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
+## Part 3: Making Instagram Video More Attractive with Filmora Effects Packs
+
+Want to make your video standing out in your Instagram community? Try the Filters and Effects provided by Filmora Filmstock. It provides various unique amazing texts, filters, overlays and motion elements, which will help to make the stunning videos for you. Currently, there are 333 specially designed Effect Packs available, including Beauty series, Fashion series, Fitness series, Food series, Travel series, Education series and Holiday series. What's more, Filmstock has After Effects available for the users to download. And the good news is, you can get some Effects Packs, such as Spring Pack, Crayons Pack, Japanese Graduation Pack, Animated Emoji Pack,and Paris Sketchbook Pack, etc. for free and the design team will update and add the Filmstock effect packs monthly, which allows you to enjoy different new effects per month. You can visit [Filmora Filmstock](https://filmstock.wondershare.com/) to get the detailed completed information.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
+![get-Filmstock-effects](https://images.wondershare.com/filmora/article-images/get-Filmstock-effects.jpg)
+
+Watch the video below about Filmora effect packs in Beauty series :
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Learn more about the excellent Filmora Filmstock](https://filmstock.wondershare.com/)
+
+You can also add photo effects to your Instagram images. Click [here to check the photo editor which provides more than 200 photo effects](https://tools.techidaily.com/wondershare/fotophire/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -182,14 +395,23 @@ We recommend you to use Filmora video editor to edit your Instagram videos becau
 
 * Filmora allows you to customize your Instagram video project to any ratio you want, besides the common 1:1, 16:9, 9:16, 4:3 and 21:9 aspect ratio. You can open Filmora, go to File-Project Settings, and then input the resolution you want to customize the project ratio.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![custom-project-ratio.jpg](https://images.wondershare.com/filmora/article-images/custom-project-ratio.jpg)
 
 * Filmora provides plentiful filters such as Instagram-like filters, background blur filters specially built for Instagram videos.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![apply-instagram-filters](https://images.wondershare.com/filmora/article-images/apply-instagram-filters.jpg)
 
 * Filmora supports various formats & devices, and enables you to change the frame rate and resolution etc. as well as upload video to other social platform like YouTube and Vimeo.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
 New to video editing world? Check this [ultimate guide to Editing Video](https://tools.techidaily.com/wondershare/filmora/download/) to learn video editing step by step.
@@ -233,6 +455,18 @@ You can just do some basic video editing within the Instagram app. However, if y
 
 Download it now and follow the steps below to edit your Instagram videos quickly and easily.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 1\.  Import videos to the program
@@ -251,6 +485,9 @@ While Instagram just provides some basic editing options, you can shape your foo
 
 You can choose from many different graphics, transitions, sound effects, texts and tiles, overlays, elements and filters, which means you can get the exact look and sound you want. To do this, just go to each effect tabs above the timeline and drag-n-drop the effects you'd like to apply. There are over 120 built-in filters in Filmora video editor, and you can get more in the [Filmora Filmstock](https://filmstock.wondershare.com/).
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/add-filmora9-filters.jpg)
 
 #### 4. Save and share your video
@@ -259,12 +496,22 @@ Once your video clip is ready, just save it to your local folder or device in mp
 
 ![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg "edit instagram")
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## Part 3: Making Instagram Video More Attractive with Filmora Effects Packs
 
 Want to make your video standing out in your Instagram community? Try the Filters and Effects provided by Filmora Filmstock. It provides various unique amazing texts, filters, overlays and motion elements, which will help to make the stunning videos for you. Currently, there are 333 specially designed Effect Packs available, including Beauty series, Fashion series, Fitness series, Food series, Travel series, Education series and Holiday series. What's more, Filmstock has After Effects available for the users to download. And the good news is, you can get some Effects Packs, such as Spring Pack, Crayons Pack, Japanese Graduation Pack, Animated Emoji Pack,and Paris Sketchbook Pack, etc. for free and the design team will update and add the Filmstock effect packs monthly, which allows you to enjoy different new effects per month. You can visit [Filmora Filmstock](https://filmstock.wondershare.com/) to get the detailed completed information.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![get-Filmstock-effects](https://images.wondershare.com/filmora/article-images/get-Filmstock-effects.jpg)
 
 Watch the video below about Filmora effect packs in Beauty series :
@@ -275,6 +522,9 @@ Watch the video below about Filmora effect packs in Beauty series :
 
 You can also add photo effects to your Instagram images. Click [here to check the photo editor which provides more than 200 photo effects](https://tools.techidaily.com/wondershare/fotophire/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -301,8 +551,14 @@ You May also like
 [**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 [**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Best Video Editor for Editing Instagram Video: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Instagram has launched a new longer-form video app for content creators named IGTV on June 2018, which allows you to upload a longer video, while in Instagram Stories, the video length is limited to 15 seconds, and the video in main feeds can be 60 seconds.
@@ -317,6 +573,9 @@ We recommend you to use Filmora video editor to edit your Instagram videos becau
 
 * Filmora provides plentiful filters such as Instagram-like filters, background blur filters specially built for Instagram videos.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![apply-instagram-filters](https://images.wondershare.com/filmora/article-images/apply-instagram-filters.jpg)
 
 * Filmora supports various formats & devices, and enables you to change the frame rate and resolution etc. as well as upload video to other social platform like YouTube and Vimeo.
@@ -342,6 +601,9 @@ Video editing in Instagram video system is relatively straightforward. All you n
 
 **Add a Filter:** After you have recorded the video, tap the **Next** button in the upper right. Currently, there are 24 filters available in Instagram. Swipe the filters at the bottom of the screen to check all filter options. Tap a filter once to check how it will look with your video clip, tap the filter again to adjust with the slider.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram filters](https://images.wondershare.com/filmora/article-images/instagram-filters.JPG)
 
 **Image Stabilization:** There's a small camera icon at the top of the screen after you taking the video. By default, it's turned on on and applied to your video. If you want to turn it off, just tap it again.
@@ -390,6 +652,10 @@ Once your video clip is ready, just save it to your local folder or device in mp
 
 ![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg "edit instagram")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 3: Making Instagram Video More Attractive with Filmora Effects Packs
@@ -400,143 +666,18 @@ Want to make your video standing out in your Instagram community? Try the Filter
 
 Watch the video below about Filmora effect packs in Beauty series :
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Learn more about the excellent Filmora Filmstock](https://filmstock.wondershare.com/)
 
 You can also add photo effects to your Instagram images. Click [here to check the photo editor which provides more than 200 photo effects](https://tools.techidaily.com/wondershare/fotophire/download/).
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-Instagram is known as one of the most prominent community where you can capture and share your moments simply and beautifully on the Internet. Beside photo editing and sharing, it has expanded their services to include uploading, editing and posting video as well. So far, Instagram allows you to post up to 60 seconds of video.
-
-You can edit your videos using the relatively simple built-in program that Instagram provides, or you can make your video more attractive in your Instagram community by using some extra filters and effects provided by Filmora Filmstock, and edit your video with Filmora video editor on your PC or Mac to make it more fantastic in your [business](https://tools.techidaily.com/wondershare/filmora/download/). In this article, we will show you how to edit video clips in Instagram and how to edit your Instagram video clips in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-* [Editing Instagram Video: Basic Video Editing Features in Instagram](#part1)
-* [Advanced Video Editing in Wondershare Filmora for Instagram Videos](#part2)
-* [Making Instagram Video More Attractive](#part3)
-
-You May also like
-
-[**12 Facebook Marketing Tips for Business**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-
-## Best Video Editor for Editing Instagram Video: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Instagram has launched a new longer-form video app for content creators named IGTV on June 2018, which allows you to upload a longer video, while in Instagram Stories, the video length is limited to 15 seconds, and the video in main feeds can be 60 seconds.
-
-Though IGTV allows you to upload portrait/vertical videos only with a minimum 4:5/a maximum 9:16 aspect ratio, at present, Instagram still displays square video (1:1 aspect ratio), portrait video (5:4 aspect ratio) and landscape video (16:9 aspect ratio).
-
-We recommend you to use Filmora video editor to edit your Instagram videos because:
-
-* Filmora allows you to customize your Instagram video project to any ratio you want, besides the common 1:1, 16:9, 9:16, 4:3 and 21:9 aspect ratio. You can open Filmora, go to File-Project Settings, and then input the resolution you want to customize the project ratio.
-
-![custom-project-ratio.jpg](https://images.wondershare.com/filmora/article-images/custom-project-ratio.jpg)
-
-* Filmora provides plentiful filters such as Instagram-like filters, background blur filters specially built for Instagram videos.
-
-![apply-instagram-filters](https://images.wondershare.com/filmora/article-images/apply-instagram-filters.jpg)
-
-* Filmora supports various formats & devices, and enables you to change the frame rate and resolution etc. as well as upload video to other social platform like YouTube and Vimeo.
-
-![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
-
-New to video editing world? Check this [ultimate guide to Editing Video](https://tools.techidaily.com/wondershare/filmora/download/) to learn video editing step by step.
-
-**More Instagram Editing Tips**:
-[How to Crop and Export Videos to Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)  
-[How to Upload a Video to Instagram From a Desktop >>](https://tools.techidaily.com/wondershare/filmora/download/)
-[How to Edit Instagram Photos >>](https://tools.techidaily.com/wondershare/fotophire/download/)
-
-## Part 1: Basic Video Editing in Instagram
-
-Video editing in Instagram video system is relatively straightforward. All you need to do is recording the video in your smartphone or tablet to start.
-
-**Record:** After launching Instagram, tap the Plus icon at the bottom of the screen. And then tap **Video** button to continue. Tap and hold the circle button at the screen to start recording. You can release it when you want to stop recording. You can tap and hold the button again to record multiple video clips. You can also tap the switch button to switch between cameras.
-
-![add video instagram](https://images.wondershare.com/filmora/article-images/add-video-instagram.jpg)
-
-**Delete:** Is there a clip that you don’t want? You can get rid of the most recent clip that you recorded quickly. All you need to do is tap the **Delete** button and tap it again to confirm.
-
-**Add a Filter:** After you have recorded the video, tap the **Next** button in the upper right. Currently, there are 24 filters available in Instagram. Swipe the filters at the bottom of the screen to check all filter options. Tap a filter once to check how it will look with your video clip, tap the filter again to adjust with the slider.
-
-![instagram filters](https://images.wondershare.com/filmora/article-images/instagram-filters.JPG)
-
-**Image Stabilization:** There's a small camera icon at the top of the screen after you taking the video. By default, it's turned on on and applied to your video. If you want to turn it off, just tap it again.
-
-**Add Cover Frame:** Once you have completed adding a filter to your video, you can select a cover. The cover frame is one particular frame from the video and it will be in the front of the video. It is important to choose an interesting cover to attract your friends to watch.
-
-![instagram cover](https://images.wondershare.com/filmora/article-images/instagram-cover.JPG)
-
-Recommend to choose a handheld stabilizer for your phone to make your video footage to next level
-
-![zhiyun z1 smooth c](https://images.wondershare.com/filmora/article-images/zhiyun-z1-smooth-c.jpg)
-
-[Check at Amazon](https://www.amazon.com/gp/product/B017K42FVA/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-pop-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B017K42FVA&linkId=239170a7361e67e8d0d848644e4b1f99)
-
-## Part 2: Advanced Video Editing in [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) for Instagram Videos
-
-![start-filmora9-editing](https://images.wondershare.com/filmora/article-images/start-filmora9-editing.jpg)
-
-You can just do some basic video editing within the Instagram app. However, if you want more control over how your video is edited, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It's a simple yet powerful editing tool that provides you with far more options to edit your video clips. You can do the edits quickly with far more options and get exactly what you want. There are more than 300 new effects available in Filmora, you can add titles, motion elements, overlays and music sound to your video clip, which will make your video more attractive. What's more, if you need some more professional look in your video, you can apply our Filmstock Effect Packs. And you can get some [Effects Packs for free in Filmora Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) now.
-
-Download it now and follow the steps below to edit your Instagram videos quickly and easily.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### 1\.  Import videos to the program
-
-Lanuch Filmora, and then click the "Import" button or directly drag your video to the media library of this powerful Instagram video editor. You can preview your video in the right Preview window. And if you find your footage is a little shaky, you can stabilize it by right clicking the footage and then selecting **Stabilization**. If the footage is OK, then drag and drop it from the library to the Timeline.
-
-![get-filmora9-stabilization](https://images.wondershare.com/filmora/article-images/get-filmora9-stabilization.jpg)
-
-#### 2. Cut, split, rotate or color tune Instagram video
-
-While Instagram just provides some basic editing options, you can shape your footage quickly and easily using Wondershare Filmora. You can move the slider on the timeline and use the red Scissor icon to cut or split your video. Then double click the video on the timeline, select Transform, you will be able to rotate and flip your video. What's more, you can click the Color option and do some advanced color tuning to make your video more beautiful.
-
-![rotate-and-cut](https://images.wondershare.com/filmora/article-images/rotate-and-cut.jpg "edit instagram video")
-
-#### 3. Add Filters and Effects
-
-You can choose from many different graphics, transitions, sound effects, texts and tiles, overlays, elements and filters, which means you can get the exact look and sound you want. To do this, just go to each effect tabs above the timeline and drag-n-drop the effects you'd like to apply. There are over 120 built-in filters in Filmora video editor, and you can get more in the [Filmora Filmstock](https://filmstock.wondershare.com/).
-
-![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/add-filmora9-filters.jpg)
-
-#### 4. Save and share your video
-
-Once your video clip is ready, just save it to your local folder or device in mp4 or other supported formats, and then upload it to Instagram and let it play for the world! You can also change the video settings like resolution, bit rate. Besides that, you can also share your video to Youtube, Vimeo, or burn a DVD collection if you need.
-
-![add-filmora9-filters](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg "edit instagram")
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 3: Making Instagram Video More Attractive with Filmora Effects Packs
-
-Want to make your video standing out in your Instagram community? Try the Filters and Effects provided by Filmora Filmstock. It provides various unique amazing texts, filters, overlays and motion elements, which will help to make the stunning videos for you. Currently, there are 333 specially designed Effect Packs available, including Beauty series, Fashion series, Fitness series, Food series, Travel series, Education series and Holiday series. What's more, Filmstock has After Effects available for the users to download. And the good news is, you can get some Effects Packs, such as Spring Pack, Crayons Pack, Japanese Graduation Pack, Animated Emoji Pack,and Paris Sketchbook Pack, etc. for free and the design team will update and add the Filmstock effect packs monthly, which allows you to enjoy different new effects per month. You can visit [Filmora Filmstock](https://filmstock.wondershare.com/) to get the detailed completed information.
-
-![get-Filmstock-effects](https://images.wondershare.com/filmora/article-images/get-Filmstock-effects.jpg)
-
-Watch the video below about Filmora effect packs in Beauty series :
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Learn more about the excellent Filmora Filmstock](https://filmstock.wondershare.com/)
-
-You can also add photo effects to your Instagram images. Click [here to check the photo editor which provides more than 200 photo effects](https://tools.techidaily.com/wondershare/fotophire/download/).
-
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -568,3 +709,69 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-from-raw-footage-to-riveting-content-the-ultimate-guide-to-yt-video-edits/"><u>[New] 2024 Approved  From Raw Footage to Riveting Content  The Ultimate Guide to YT Video Edits</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-speed-up-instagram-videos-on-desktop-effective-techniques/"><u>[New] 2024 Approved  Speed Up Instagram Videos on Desktop  Effective Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-year-ahead-exploring-instagrams-innovative-filters/"><u>[New] 2024 Approved  The Year Ahead  Exploring Instagram's Innovative Filters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-detecting-unfollow-trends-on-instagram/"><u>[New] Detecting Unfollow Trends on Instagram</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-highlighting-top-facebook-video-tools/"><u>[New] Highlighting Top Facebook Video Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-copyright-clarity-for-instagram-tracks/"><u>[New] In 2024, Copyright Clarity for Instagram Tracks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-elevate-your-social-media-presence-insta-videography/"><u>[New] In 2024, Elevate Your Social Media Presence  Insta-Videography</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-maximizing-engagement-with-strategic-editing-on-instagram-videos/"><u>[New] In 2024, Maximizing Engagement with Strategic Editing on Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unleashing-creativity-the-essential-guide-to-desktop-video-posts-on-instagram/"><u>[New] In 2024, Unleashing Creativity  The Essential Guide to Desktop Video Posts on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-what-is-igtv-and-how-to-use-it-everything-you-need-to-know/"><u>[New] In 2024, What Is IGTV and How to Use It  Everything You Need to Know</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-punchline-perfection-creating-memes-that-make-people-tickle/"><u>[New] Punchline Perfection  Creating Memes that Make People Tickle</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-short-form-script-template/"><u>[New] Short-Form Script Template</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-victory-tackling-video-tribulations-head-on/"><u>[Updated] 2024 Approved  Instagram Victory  Tackling Video Tribulations Head-On</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-techniques-and-tools-for-fast-quality-image-reductions/"><u>[Updated] 2024 Approved  Techniques and Tools for Fast, Quality Image Reductions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-ultimate-guide-to-peak-performance-on-instagram/"><u>[Updated] 2024 Approved  The Ultimate Guide to Peak Performance on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-unlocking-insta-stardom-15-effortless-steps-towards-rapid-and-sustained-fame/"><u>[Updated] 2024 Approved  Unlocking Insta Stardom  15 Effortless Steps Towards Rapid and Sustained Fame</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-upload-with-ease-instagram-and-vimeo-harmony/"><u>[Updated] 2024 Approved  Upload with Ease  Instagram and Vimeo Harmony</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-amplify-your-storytelling-integrating-captions-in-a-triple-threat-on-ig-for-2024/"><u>[Updated] Amplify Your Storytelling - Integrating Captions in a Triple Threat on IG for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-essential-guide-leading-video-editing-tools-androidpc/"><u>[Updated] Essential Guide  Leading Video Editing Tools (Android/PC)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-add-music-to-instagram-story/"><u>[Updated] How to Add Music to Instagram Story?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-a-step-by-step-on-downloading-instagrams-viral-content/"><u>[Updated] In 2024, A Step-by-Step on Downloading Instagram's Viral Content</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-flashlog-screen-grab-review-and-substitutes/"><u>[Updated] In 2024, FlashLog Screen Grab Review and Substitutes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-navigating-igtv-a-video-uploading-handbook/"><u>[Updated] In 2024, Navigating IGTV  A Video Uploading Handbook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-pro-tips-to-amplify-your-canva-designs/"><u>[Updated] In 2024, Pro Tips to Amplify Your Canva Designs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-tall-tales-reimagined-edits-for-vt-videos-on-fcpx/"><u>[Updated] In 2024, Tall Tales Reimagined  Edits for VT Videos on FCPX</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-making-history-shine-again-instagram-effects-for-your-archive/"><u>[Updated] Making History Shine Again  Instagram Effects for Your Archive</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-shotsizesavvy-fine-tuning-your-social-media-content-for-instagram/"><u>[Updated] ShotSizeSavvy  Fine-Tuning Your Social Media Content for Instagram</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-social-caricature-craft-design-your-distinctive-avatar-for-2024/"><u>[Updated] Social Caricature Craft  Design Your Distinctive Avatar for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-storytelling-integrating-captions-into-your-instagram-videos/"><u>[Updated] The Art of Storytelling  Integrating Captions Into Your Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-relevance-of-authenticity-in-insta-video-selfies-for-2024/"><u>[Updated] The Relevance of Authenticity in Insta Video Selfies for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-science-behind-the-best-sized-videos-for-your-instagram-story-for-2024/"><u>[Updated] The Science Behind the Best-Sized Videos for Your Instagram Story for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-step-by-step-for-turning-your-vids-into-beats-on-insta/"><u>[Updated] The Step-by-Step for Turning Your Vids Into Beats on Insta</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-tracing-the-exits-who-left-my-insta-feed/"><u>[Updated] Tracing the Exits  Who Left My Insta Feed?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unleash-creativity-on-instagram-stories-with-branded-emojis/"><u>[Updated] Unleash Creativity on Instagram Stories with Branded Emojis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-viral-visibility-vault-our-compreeher-guide-of-15-proven-methods-to-amass-attention-on-instagram/"><u>[Updated] Viral Visibility Vault  Our Compreeher Guide of 15 Proven Methods to Amass Attention on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-your-guide-to-the-best-igtv-virtuosos-for-2024/"><u>[Updated] Your Guide to the Best IGTV Virtuosos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-achieving-authenticity-altering-voices-on-instagram-profiles/"><u>2024 Approved  Achieving Authenticity  Altering Voices on Instagram Profiles</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-capture-and-replay-screen-recording-for-instagram-stories/"><u>2024 Approved  Capture and Replay  Screen Recording for Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-monitoring-friends-lost-in-instagram-world/"><u>2024 Approved  Monitoring Friends Lost in Instagram World</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-securing-your-social-media-visuals-instagram-edition/"><u>2024 Approved  Securing Your Social Media Visuals  Instagram Edition</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-realme-c53-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Realme C53 to Roku | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-honor-magic5-ultimate-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Honor Magic5 Ultimate PC | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-poco-x6-pro-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Poco X6 Pro Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/craft-compelling-loops-best-practices-for-instagram-posts/"><u>Craft Compelling Loops  Best Practices for Instagram Posts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-infinix-note-30-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Infinix Note 30 5G FRP</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-v27-by-fonelab-android-recover-contacts/"><u>How To  Restore Missing Contacts Files from V27.</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Vivo T2 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-xiaomi-redmi-note-12r-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Xiaomi Redmi Note 12R FRP In 3 Different Ways</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-video-ads-mastery-a-guide-to-creating-viral-content/"><u>In 2024, Instagram Video Ads Mastery  A Guide to Creating Viral Content</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-livestream-excellence-unveiling-the-best-practices-for-facebook-recorders/"><u>In 2024, Livestream Excellence  Unveiling the Best Practices for Facebook Recorders</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-obs-studio-excellence-the-top-5-editing-strategies/"><u>In 2024, OBS Studio Excellence  The Top 5 Editing Strategies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-rapid-diy-techniques-that-every-indie-filmmaker-should-try/"><u>In 2024, Rapid DIY Techniques That Every Indie Filmmaker Should Try</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-selecting-your-next-travel-cinema-device/"><u>In 2024, Selecting Your Next Travel Cinema Device</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-turning-time-on-its-ear-unique-approaches-to-reversed-youtube-content/"><u>In 2024, Turning Time on Its Ear  Unique Approaches to Reversed YouTube Content</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-infinix-note-30-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Infinix Note 30 FRP Bypass</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/intelligent-info-scrubber-regularly-programmed-file-removal-powered-by-stellars-mac-standard-suite/"><u>Intelligent Info Scrubber: Regularly Programmed File Removal Powered by Stellar's Mac Standard Suite</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-canvas-of-success-unveiling-10-essential-design-tricks-for-2024/"><u>The Canvas of Success  Unveiling 10 Essential Design Tricks for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-youtube-editing-guide-for-content-creators-of-all-levels-for-2024/"><u>The Ultimate Youtube Editing Guide for Content Creators of All Levels for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-30-pro-tiktok-edits-techniques-for-2024/"><u>Top 30 Pro TikTok Edits Techniques for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleashing-potential-a-moto-z2-deep-dive/"><u>Unleashing Potential  A Moto Z2 Deep Dive</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unmatched-gaming-broadcasts-set-up-with-obs-for-2024/"><u>Unmatched Gaming Broadcasts - Set Up with OBS for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Enhancing Photos and Videos with Instagram's Creative Features\""
-date: 2024-06-10T12:57:07.988Z
-updated: 2024-06-11T12:57:07.988Z
+date: 2024-07-26T03:17:59.100Z
+updated: 2024-07-27T03:17:59.100Z
 tags:
   - ai video
   - ai instagram
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 # How to Add Instagram Filter to Existing Photos and Videos?
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -29,8 +32,14 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 Instagram is one of the versatile platforms where people showcase their love for photos and content creation. On social media, users only want to put out photos that look attractive, especially people using Instagram as a blogging platform. Sometimes, pictures come out nice, but you would like to add a filter to enhance them further. Most people are clueless about how to add Instagram filter to existing photo. This article will guide you about all the tips and tricks you can use to alleviate your videos and pictures to make them look vibrant.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -42,6 +51,9 @@ Instagram is one of the versatile platforms where people showcase their love for
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Add Instagram Filters to Existing Photos?
 
 We all take random photos all the time through our cameras. But, you can be doubtful about posting them on Instagram because they look raw. Some people think they can only apply filters when taking photos directly from Instagram. However, this is not the case because you can apply an Instagram filter to existing images also. It not only makes the picture appear more attractive but also catches the audience's attention. In this section, you will learn how to apply an Instagram filter to any photo from your gallery.
@@ -50,12 +62,18 @@ We all take random photos all the time through our cameras. But, you can be doub
 
 To add Instagram filters, you have to open Instagram and log in to your existing ID. When you are on your news feed, you have to **swipe left** to open the stories option. When you swipe left, your camera will open automatically. Another way to open the stories option is to **tap on the '+' sign** on your profile picture.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![enter Instgram camera](https://images.wondershare.com/filmora/article-images/tap-plus-icon-instagram.jpg)
 
 **Step 2: Select an image from the gallery**
 
 After you open the stories option, the camera will open first. You can click a photo on the spot or select an existing image from the camera. Look at the bottom left side of the screen; you will see a square box. **Click on the square box** to select an image from your photo gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
 
 **Step 3: press the smiley icon**
@@ -68,16 +86,28 @@ After you have selected the image from the gallery, you can apply a filter to it
 
 After clicking on the smiley icon, you will be seeing a lot of saved and existing filer options. **Swipe left** to try out and select a filter you like.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
 **Step 4: Click done and post**
 
 After selecting the filter of your choice and **applying i**t, **click done on the top right corner** and post the story.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## A cross-platform for making videos anywhere for all creators
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
@@ -95,6 +125,9 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
  \* Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
 ## Part 2: How to Add Instagram Filters to Existing Videos?
@@ -113,6 +146,9 @@ On the bottom left of the screen, you will see a square box. **Click on the squa
 
 On the bottom, you will find a search icon which is also called the filter carousel. Through the f**ilter carousel**, you can find various kinds of filters and also type in the filter name if you have any in your mind. **Apply the filter** on the video.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
 
 **Step 4: Download or upload**
@@ -137,6 +173,9 @@ After you **click next**, you will see a lot of filter options. You can **swipe 
 
 When customizing the filter intensity, you can s**elect next** and **click on edit** to further enhance the image. You can increase brightness, sharpen the image, etc. When the image is edited as per your choice, you can tag people or simply post.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How to Add Filter to Instagram Reel Photo and Video?
 
 A plain Instagram reel without any filters or effects can feel boring to watch. Hence, a lot of content creators use filters strategically to make their reels more appealing. Here is how to add filters to your reel photos and videos.
@@ -145,6 +184,18 @@ A plain Instagram reel without any filters or effects can feel boring to watch. 
 
 Open the story option and **swipe to enable the Reel option**. Once you have the reel option opened, go to the gallery and **select an image** or video of your choice.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 **Step 2: Click on shine emoji to add filters**
@@ -189,6 +240,9 @@ Follow @Shanoon Cox
 
 Instagram is one of the versatile platforms where people showcase their love for photos and content creation. On social media, users only want to put out photos that look attractive, especially people using Instagram as a blogging platform. Sometimes, pictures come out nice, but you would like to add a filter to enhance them further. Most people are clueless about how to add Instagram filter to existing photo. This article will guide you about all the tips and tricks you can use to alleviate your videos and pictures to make them look vibrant.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
@@ -228,6 +282,9 @@ After you have selected the image from the gallery, you can apply a filter to it
 
 After clicking on the smiley icon, you will be seeing a lot of saved and existing filer options. **Swipe left** to try out and select a filter you like.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
 **Step 4: Click done and post**
@@ -236,6 +293,9 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
@@ -255,6 +315,18 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
  \* Secure Download
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
 ## Part 2: How to Add Instagram Filters to Existing Videos?
@@ -305,6 +377,9 @@ A plain Instagram reel without any filters or effects can feel boring to watch. 
 
 Open the story option and **swipe to enable the Reel option**. Once you have the reel option opened, go to the gallery and **select an image** or video of your choice.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 **Step 2: Click on shine emoji to add filters**
@@ -319,6 +394,9 @@ After you are done adding effects, you can **click on done** to post, and you ca
 
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **FAQs** About Instagram Filters
 
 1. **Can you add Instagram story filters to existing photos?**
@@ -349,6 +427,9 @@ Follow @Shanoon Cox
 
 Instagram is one of the versatile platforms where people showcase their love for photos and content creation. On social media, users only want to put out photos that look attractive, especially people using Instagram as a blogging platform. Sometimes, pictures come out nice, but you would like to add a filter to enhance them further. Most people are clueless about how to add Instagram filter to existing photo. This article will guide you about all the tips and tricks you can use to alleviate your videos and pictures to make them look vibrant.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
@@ -362,6 +443,9 @@ Instagram is one of the versatile platforms where people showcase their love for
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to Add Instagram Filters to Existing Photos?
 
 We all take random photos all the time through our cameras. But, you can be doubtful about posting them on Instagram because they look raw. Some people think they can only apply filters when taking photos directly from Instagram. However, this is not the case because you can apply an Instagram filter to existing images also. It not only makes the picture appear more attractive but also catches the audience's attention. In this section, you will learn how to apply an Instagram filter to any photo from your gallery.
@@ -370,12 +454,18 @@ We all take random photos all the time through our cameras. But, you can be doub
 
 To add Instagram filters, you have to open Instagram and log in to your existing ID. When you are on your news feed, you have to **swipe left** to open the stories option. When you swipe left, your camera will open automatically. Another way to open the stories option is to **tap on the '+' sign** on your profile picture.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![enter Instgram camera](https://images.wondershare.com/filmora/article-images/tap-plus-icon-instagram.jpg)
 
 **Step 2: Select an image from the gallery**
 
 After you open the stories option, the camera will open first. You can click a photo on the spot or select an existing image from the camera. Look at the bottom left side of the screen; you will see a square box. **Click on the square box** to select an image from your photo gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
 
 **Step 3: press the smiley icon**
@@ -394,6 +484,9 @@ After clicking on the smiley icon, you will be seeing a lot of saved and existin
 
 After selecting the filter of your choice and **applying i**t, **click done on the top right corner** and post the story.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 ## A cross-platform for making videos anywhere for all creators
@@ -457,6 +550,14 @@ After you **click next**, you will see a lot of filter options. You can **swipe 
 
 When customizing the filter intensity, you can s**elect next** and **click on edit** to further enhance the image. You can increase brightness, sharpen the image, etc. When the image is edited as per your choice, you can tag people or simply post.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ## Part 4: How to Add Filter to Instagram Reel Photo and Video?
 
 A plain Instagram reel without any filters or effects can feel boring to watch. Hence, a lot of content creators use filters strategically to make their reels more appealing. Here is how to add filters to your reel photos and videos.
@@ -465,18 +566,27 @@ A plain Instagram reel without any filters or effects can feel boring to watch. 
 
 Open the story option and **swipe to enable the Reel option**. Once you have the reel option opened, go to the gallery and **select an image** or video of your choice.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 **Step 2: Click on shine emoji to add filters**
 
 On top, you will see a **shine emoji** option through which you can **browse through filters** and select the one you like; you can **click to apply**.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
 **Step 3: post**
 
 After you are done adding effects, you can **click on done** to post, and you can also **download the image**.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
 
 ### **FAQs** About Instagram Filters
@@ -489,6 +599,9 @@ Yes, it is easy to add an Instagram filter to existing photos from your gallery.
 
 Just swipe left to the stories window and swipe up to select an image from the camera roll. Then click on the smiling emoji on the tab and apply the filter of your choice. You can then share it on Insta or save it to your camera roll.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Often people do not know how to add Instagram filters to existing photos and videos. It is easy to learn, especially through the steps we have mentioned above. Filters are the ultimate hack to add cohesiveness and attraction to your feed or stories.
@@ -509,6 +622,9 @@ Follow @Shanoon Cox
 
 Instagram is one of the versatile platforms where people showcase their love for photos and content creation. On social media, users only want to put out photos that look attractive, especially people using Instagram as a blogging platform. Sometimes, pictures come out nice, but you would like to add a filter to enhance them further. Most people are clueless about how to add Instagram filter to existing photo. This article will guide you about all the tips and tricks you can use to alleviate your videos and pictures to make them look vibrant.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
@@ -522,6 +638,9 @@ Instagram is one of the versatile platforms where people showcase their love for
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to Add Instagram Filters to Existing Photos?
 
 We all take random photos all the time through our cameras. But, you can be doubtful about posting them on Instagram because they look raw. Some people think they can only apply filters when taking photos directly from Instagram. However, this is not the case because you can apply an Instagram filter to existing images also. It not only makes the picture appear more attractive but also catches the audience's attention. In this section, you will learn how to apply an Instagram filter to any photo from your gallery.
@@ -530,6 +649,10 @@ We all take random photos all the time through our cameras. But, you can be doub
 
 To add Instagram filters, you have to open Instagram and log in to your existing ID. When you are on your news feed, you have to **swipe left** to open the stories option. When you swipe left, your camera will open automatically. Another way to open the stories option is to **tap on the '+' sign** on your profile picture.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ![enter Instgram camera](https://images.wondershare.com/filmora/article-images/tap-plus-icon-instagram.jpg)
 
 **Step 2: Select an image from the gallery**
@@ -548,16 +671,26 @@ After you have selected the image from the gallery, you can apply a filter to it
 
 After clicking on the smiley icon, you will be seeing a lot of saved and existing filer options. **Swipe left** to try out and select a filter you like.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
 **Step 4: Click done and post**
 
 After selecting the filter of your choice and **applying i**t, **click done on the top right corner** and post the story.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 ## A cross-platform for making videos anywhere for all creators
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
@@ -575,6 +708,9 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
  \* Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
 ## Part 2: How to Add Instagram Filters to Existing Videos?
@@ -599,6 +735,9 @@ On the bottom, you will find a search icon which is also called the filter carou
 
 After you apply the filter, you can **click on done** on the top right to post. Also, there is an option to **download the video** if you like. You can save videos with filters in your gallery to use on other social media platforms.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: How to Add Filters o Instagram Photos When Uploading?
 
 If you want to make your feed attractive, it should look aesthetic and synchronized. Using a more straightforward type of filter on all images can give your feed a cohesive look. We are going to let you know some simple steps to add filters to your photos when uploading.
@@ -631,6 +770,10 @@ Open the story option and **swipe to enable the Reel option**. Once you have the
 
 On top, you will see a **shine emoji** option through which you can **browse through filters** and select the one you like; you can **click to apply**.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
 **Step 3: post**
@@ -639,6 +782,9 @@ After you are done adding effects, you can **click on done** to post, and you ca
 
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **FAQs** About Instagram Filters
 
 1. **Can you add Instagram story filters to existing photos?**
@@ -653,6 +799,9 @@ Just swipe left to the stories window and swipe up to select an image from the c
 
 Often people do not know how to add Instagram filters to existing photos and videos. It is easy to learn, especially through the steps we have mentioned above. Filters are the ultimate hack to add cohesiveness and attraction to your feed or stories.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -684,3 +833,46 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-engaging-excellence-best-story-filter-compilation/"><u>[New] In 2024, Engaging Excellence  Best Story Filter Compilation</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-reviewing-and-analyzing-previous-tweets/"><u>[New] In 2024, Reviewing and Analyzing Previous Tweets</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-streamlined-subtitling-processes-for-instagrams-dynamic-media/"><u>[New] In 2024, Streamlined Subtitling Processes for Instagram's Dynamic Media</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-loop-video-liftoff-engaging-audiences-on-ig/"><u>[New] Loop Video Liftoff  Engaging Audiences on IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-the-art-of-preserving-instagram-live-moments-for-2024/"><u>[New] Mastering the Art of Preserving Instagram Live Moments for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-2023-line-up-of-best-pro-360cameras-reviewed/"><u>[New] The 2023 Line-Up of Best Pro 360°Cameras Reviewed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-visual-vibes-top-story-filter-rankings-for-2024/"><u>[New] Visual Vibes  Top Story Filter Rankings for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-instagrams-premier-status-6-practical-steps-for-enthusiasts/"><u>[Updated] 2024 Approved  A Step-by-Step Guide to Instagram's Premier Status  6 Practical Steps For Enthusiasts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-harnessing-instagram-video-power-strategizing-for-impact/"><u>[Updated] Harnessing Instagram Video Power  Strategizing for Impact</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-download-igtv-videos-on-iphone-and-android-5-ways-for-2024/"><u>[Updated] How to Download IGTV Videos on iPhone & Android [5 Ways] for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-elevate-your-brand-a-comprehensive-guide-to-instagram-video-marketing-plans/"><u>[Updated] In 2024, Elevate Your Brand  A Comprehensive Guide to Instagram Video Marketing Plans</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-invisible-impact-the-underestimated-toll-of-trick-likes/"><u>[Updated] In 2024, Invisible Impact  The Underestimated Toll of Trick Likes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-simplified-guide-uploading-urls-to-instagram-media/"><u>[Updated] In 2024, Simplified Guide  Uploading URLs to Instagram Media</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-master-level-insights-into-crafting-unique-and-memorable-instagram-vids/"><u>[Updated] Master Level Insights Into Crafting Unique and Memorable Instagram Vids</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-masterclass-in-digital-animation-the-art-of-creating-gifs/"><u>[Updated] Masterclass in Digital Animation  The Art of Creating GIFs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-maximizing-igtv-impact-effective-tips-for-vertical-video-conversion/"><u>[Updated] Maximizing IGTV Impact  Effective Tips for Vertical Video Conversion</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-perfect-focus-in-teams-meetings-mastering-background-blur/"><u>[Updated] Perfect Focus in Teams Meetings  Mastering Background Blur</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-real-vs-fake-quick-ways-to-audit-your-insta-circle-for-2024/"><u>[Updated] Real Vs. Fake  Quick Ways to Audit Your Insta Circle for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-streamline-your-instagram-content-free-mp4-exporters-for-windowsmac-users-for-2024/"><u>[Updated] Streamline Your Instagram Content  Free MP4 Exporters for Windows/Mac Users for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-angling-images-a-comprehensive-instagram-rotation-handbook/"><u>[Updated] The Art of Angling Images  A Comprehensive Instagram Rotation Handbook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-guide-to-mastering-igtv-content-creation-for-2024/"><u>[Updated] The Ultimate Guide to Mastering IGTV Content Creation for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-how-to-zoom-inout-in-instagram-stories/"><u>2024 Approved  How to Zoom In/Out in Instagram Stories</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-itel-p40-frp-bypass-by-drfone-android/"><u>About Itel P40 FRP Bypass</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/androidplusios-ai-curated-instavideo-mosaic/"><u>Android+iOS  AI-Curated InstaVideo Mosaic</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/capturecare-essential-guide-to-ig-photo-and-video-resize/"><u>CaptureCare  Essential Guide to IG Photo & Video Resize</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/character-choreography-compendiums-for-2024/"><u>Character Choreography Compendiums for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discovering-the-varieties-in-non-contact-technology/"><u>Discovering the Varieties in Non-Contact Technology</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-samsung-galaxy-f54-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Samsung Galaxy F54 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-y100i-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Vivo Y100i Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-lava-yuva-3-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-boost-your-social-media-presence-through-instagram-video-edits/"><u>In 2024, Boost Your Social Media Presence Through Instagram Video Edits</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-free-fires-audio-transformation-tricks/"><u>In 2024, Free Fire's Audio Transformation Tricks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-spectral-synchronization-kit/"><u>In 2024, Spectral Synchronization Kit</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-essential-tutorial-for-creating-a-biz-focused-instagram/"><u>In 2024, The Essential Tutorial for Creating a Biz-Focused Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-science-of-social-media-optimizing-post-performance-on-instagram/"><u>In 2024, The Science of Social Media  Optimizing Post Performance on Instagram</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-8-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 8 Data From iOS iCloud | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/streamline-your-video-upload-process-instagram-ready-sizing-for-2024/"><u>Streamline Your Video Upload Process  Instagram-Ready Sizing for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/swapping-streams-saving-songs-cross-service-shuffling/"><u>Swapping Streams, Saving Songs  Cross-Service Shuffling</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-fundamentals-of-successful-instagram-video-promotion-planning-for-2024/"><u>The Fundamentals of Successful Instagram Video Promotion Planning for 2024</u></a></li>
+</ul></div>

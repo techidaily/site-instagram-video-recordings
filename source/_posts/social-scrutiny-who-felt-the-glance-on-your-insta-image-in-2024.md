@@ -1,7 +1,7 @@
 ---
 title: "\"Social Scrutiny  Who Felt the Glance on Your Insta Image, In 2024\""
-date: 2024-05-21T20:22:27.837Z
-updated: 2024-05-22T20:22:27.837Z
+date: 2024-07-26T03:01:54.404Z
+updated: 2024-07-27T03:01:54.404Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Social Scrutiny: Who Felt the Glance on Your Insta Image, In 2024\""
 excerpt: "\"This Article Describes Social Scrutiny: Who Felt the Glance on Your Insta Image, In 2024\""
 keywords: "Instagram Privacy Concerns,Social Media Watchfulness,Online Imagery Perception,Image Reaction Analysis,Profile Visibility Impact,Social Feedback Dynamics,Digital Image Sharing Effects"
-thumbnail: https://www.lifewire.com/thmb/ec5XpWKf62z1Ou0u0V_qt52PGXs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/shutterstock_331471589-using-facebook-585c074c3df78ce2c34f61c8.jpg
+thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5fc993d32dbb395957f6fba49.jpg
 ---
 
 ## Social Scrutiny: Who Felt the Glance on Your Insta Image?
@@ -39,6 +39,9 @@ There are two methods to see who viewed your post on Instagram. You might find t
 
 [03\. How to see who viewed your Instagram post using third-party apps?](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to see who viewed your Instagram post using Stories
 
 Does it mean you will never know who viewed your post? Yes, you can. You can see who viewed your video or photo only when you upload it through the story. Your story allows you to see who viewed your photo or video. After you have uploaded a photo or a video in your story, you can easily track the people who viewed it by following few simple steps.
@@ -49,10 +52,16 @@ Does it mean you will never know who viewed your post? Yes, you can. You can see
 
 **Step 2:** When you tap on 'Your Story', a new window will open up showing you your image or video that you have uploaded. Now at the bottom left corner, you will number of people who have viewed your story, tap on it.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![methods to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step2.jpg)
 
 **Step 3:** Now you can see the number of people who viewed your story and all those people who have viewed your Instagram story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![check who viewed your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step3.jpg)
 
 This is the easiest way of how to see who viewed your Instagram post. But if you are thinking about the images and videos that you post your feed or timeline, then you can see the number of people who viewed your post all those who liked it by following these few simple steps.
@@ -73,6 +82,9 @@ Since this method doesn't show you who viewed your Instagram post, it gives your
 
 After knowing that Instagram doesn't provide the service to see who viewed your post, most users try to find alternative third-party apps that can help them achieve this task. You can easily find hundreds of apps that claim to show you who viewed your post as well as your profile. But don't be fooled by these apps. When Instagram itself is not providing this data to its users and hiding this data, no one can do that for you. All the apps that claim to show you who viewed your profile and illegitimate and not trustworthy. By downloading and installing these apps into your phone, you are risking your privacy and security. Facebook acquired Instagram in 2016 ensures that there is no other way of how to see who viewed your Instagram posts because both Facebook and Instagram are using the same policies and site. Facebook doesn't allow its user to access such data so does Instagram. There is no other way except the above two methods of how to see who viewed your Instagram post.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Edit Your Instagram Video using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 A well-made video is a secret to getting more followers on your Instagram. That's why you need a powerful [video editor](https://tools.techidaily.com/wondershare/filmora/download/). We would like to recommend Filmora for you. Here are a few things that Filmora can do for your Instagram video.
@@ -110,16 +122,25 @@ There are two methods to see who viewed your post on Instagram. You might find t
 
 [03\. How to see who viewed your Instagram post using third-party apps?](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to see who viewed your Instagram post using Stories
 
 Does it mean you will never know who viewed your post? Yes, you can. You can see who viewed your video or photo only when you upload it through the story. Your story allows you to see who viewed your photo or video. After you have uploaded a photo or a video in your story, you can easily track the people who viewed it by following few simple steps.
 
 **Step 1:** After you have successfully uploaded your video or photo on your Instagram story, wait for some time so that people can see your story. After 5 to 10 minutes, tap on Your Story located at the top left corner of Instagram.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![how to check who view your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step1.jpg)
 
 **Step 2:** When you tap on 'Your Story', a new window will open up showing you your image or video that you have uploaded. Now at the bottom left corner, you will number of people who have viewed your story, tap on it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![methods to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step2.jpg)
 
 **Step 3:** Now you can see the number of people who viewed your story and all those people who have viewed your Instagram story.
@@ -132,6 +153,9 @@ This is the easiest way of how to see who viewed your Instagram post. But if you
 
 **Step 1:** Go to any post that you want to track and see how many people have viewed and who liked it. Below your video or image, you can see 'Liked by'. Click on the 'others' next to the name of the person who liked your post.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![use likes to check who viewed your instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step1.png)
 
 **Step 2:** Now at the top of the screen, you will see two numbers. The first number shows how many people have viewed your image or video and the second number shows the number of people who liked it. And the list below these numbers is the list of people who have liked your post.
@@ -153,8 +177,107 @@ A well-made video is a secret to getting more followers on your Instagram. That'
 * Looking for a blockbuster type of effect? New BlueFX and BorisFX are here to help.
 * Export to Instagram supported size easily.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ May 07, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![instagram-poster](https://images.wondershare.com/filmora/article-images/instagram-poster.jpg)
+
+Instagram is one of the most popular and widely used social media apps that is mostly used for sharing photos. Around 95 million images are uploaded on Instagram regularly. Apart from sharing photos, it is also used to share videos. If you love using Instagram, you might have wondered how to see who viewed your Instagram posts. It is one of the most popularly asked questions on the internet. Before we proceed to See who viewed your Instagram post, keep in mind that you can only see the number of times your post was viewed but not who viewed your post. You can only see who viewed your photo or video if you have placed it in your story.
+
+Unfortunately, you can't see who viewed your Instagram post. If you have uploaded a video or image directly into your feed, then there are only two stats that you can view, the number of views you have received and who liked your post. Instagram doesn't provide its user with access to this data. But the access to see who liked your posts is the same as who viewed them. Because all those who liked your post have also viewed it. But this only shows a limited number of people, and you will not be able to see who viewed and not liked your post.
+
+There are two methods to see who viewed your post on Instagram. You might find these methods less accurate and less effective, but trust me these are the only methods that you can use to see who viewed your posts.
+
+[01\. How to see who viewed your Instagram post using Stories](#part1)
+
+[02\. How to see who viewed your Instagram post using likes](#part2)
+
+[03\. How to see who viewed your Instagram post using third-party apps?](#part3)
+
+## How to see who viewed your Instagram post using Stories
+
+Does it mean you will never know who viewed your post? Yes, you can. You can see who viewed your video or photo only when you upload it through the story. Your story allows you to see who viewed your photo or video. After you have uploaded a photo or a video in your story, you can easily track the people who viewed it by following few simple steps.
+
+**Step 1:** After you have successfully uploaded your video or photo on your Instagram story, wait for some time so that people can see your story. After 5 to 10 minutes, tap on Your Story located at the top left corner of Instagram.
+
+![how to check who view your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step1.jpg)
+
+**Step 2:** When you tap on 'Your Story', a new window will open up showing you your image or video that you have uploaded. Now at the bottom left corner, you will number of people who have viewed your story, tap on it.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+![methods to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step2.jpg)
+
+**Step 3:** Now you can see the number of people who viewed your story and all those people who have viewed your Instagram story.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
+![check who viewed your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step3.jpg)
+
+This is the easiest way of how to see who viewed your Instagram post. But if you are thinking about the images and videos that you post your feed or timeline, then you can see the number of people who viewed your post all those who liked it by following these few simple steps.
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to see who viewed your Instagram post using likes
+
+**Step 1:** Go to any post that you want to track and see how many people have viewed and who liked it. Below your video or image, you can see 'Liked by'. Click on the 'others' next to the name of the person who liked your post.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![use likes to check who viewed your instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step1.png)
+
+**Step 2:** Now at the top of the screen, you will see two numbers. The first number shows how many people have viewed your image or video and the second number shows the number of people who liked it. And the list below these numbers is the list of people who have liked your post.
+
+Since this method doesn't show you who viewed your Instagram post, it gives your few names in people who liked your post. These are the people who also viewed your post. I know this is not complete but Instagram doesn't provide the data of people who viewed your post. So in that case, you can use this data to have an idea about who viewed your post.
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
+![use Instagram Likes to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step2.png)
+
+## How to see who viewed your Instagram post using third-party apps? Is it really possible?
+
+After knowing that Instagram doesn't provide the service to see who viewed your post, most users try to find alternative third-party apps that can help them achieve this task. You can easily find hundreds of apps that claim to show you who viewed your post as well as your profile. But don't be fooled by these apps. When Instagram itself is not providing this data to its users and hiding this data, no one can do that for you. All the apps that claim to show you who viewed your profile and illegitimate and not trustworthy. By downloading and installing these apps into your phone, you are risking your privacy and security. Facebook acquired Instagram in 2016 ensures that there is no other way of how to see who viewed your Instagram posts because both Facebook and Instagram are using the same policies and site. Facebook doesn't allow its user to access such data so does Instagram. There is no other way except the above two methods of how to see who viewed your Instagram post.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+## Edit Your Instagram Video using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+A well-made video is a secret to getting more followers on your Instagram. That's why you need a powerful [video editor](https://tools.techidaily.com/wondershare/filmora/download/). We would like to recommend Filmora for you. Here are a few things that Filmora can do for your Instagram video.
+
+* Allows you to add funny stickers/effects/transitions to your videos.
+* Green Screen helps you to push the boundaries of your imagination and make your videos interesting.
+* Looking for a blockbuster type of effect? New BlueFX and BorisFX are here to help.
+* Export to Instagram supported size easily.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -187,6 +310,9 @@ Does it mean you will never know who viewed your post? Yes, you can. You can see
 
 **Step 1:** After you have successfully uploaded your video or photo on your Instagram story, wait for some time so that people can see your story. After 5 to 10 minutes, tap on Your Story located at the top left corner of Instagram.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![how to check who view your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step1.jpg)
 
 **Step 2:** When you tap on 'Your Story', a new window will open up showing you your image or video that you have uploaded. Now at the bottom left corner, you will number of people who have viewed your story, tap on it.
@@ -195,10 +321,16 @@ Does it mean you will never know who viewed your post? Yes, you can. You can see
 
 **Step 3:** Now you can see the number of people who viewed your story and all those people who have viewed your Instagram story.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![check who viewed your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step3.jpg)
 
 This is the easiest way of how to see who viewed your Instagram post. But if you are thinking about the images and videos that you post your feed or timeline, then you can see the number of people who viewed your post all those who liked it by following these few simple steps.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to see who viewed your Instagram post using likes
 
 **Step 1:** Go to any post that you want to track and see how many people have viewed and who liked it. Below your video or image, you can see 'Liked by'. Click on the 'others' next to the name of the person who liked your post.
@@ -209,12 +341,18 @@ This is the easiest way of how to see who viewed your Instagram post. But if you
 
 Since this method doesn't show you who viewed your Instagram post, it gives your few names in people who liked your post. These are the people who also viewed your post. I know this is not complete but Instagram doesn't provide the data of people who viewed your post. So in that case, you can use this data to have an idea about who viewed your post.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![use Instagram Likes to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step2.png)
 
 ## How to see who viewed your Instagram post using third-party apps? Is it really possible?
 
 After knowing that Instagram doesn't provide the service to see who viewed your post, most users try to find alternative third-party apps that can help them achieve this task. You can easily find hundreds of apps that claim to show you who viewed your post as well as your profile. But don't be fooled by these apps. When Instagram itself is not providing this data to its users and hiding this data, no one can do that for you. All the apps that claim to show you who viewed your profile and illegitimate and not trustworthy. By downloading and installing these apps into your phone, you are risking your privacy and security. Facebook acquired Instagram in 2016 ensures that there is no other way of how to see who viewed your Instagram posts because both Facebook and Instagram are using the same policies and site. Facebook doesn't allow its user to access such data so does Instagram. There is no other way except the above two methods of how to see who viewed your Instagram post.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Edit Your Instagram Video using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 A well-made video is a secret to getting more followers on your Instagram. That's why you need a powerful [video editor](https://tools.techidaily.com/wondershare/filmora/download/). We would like to recommend Filmora for you. Here are a few things that Filmora can do for your Instagram video.
@@ -226,77 +364,9 @@ A well-made video is a secret to getting more followers on your Instagram. That'
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- May 07, 2024• Proven solutions
-
-![instagram-poster](https://images.wondershare.com/filmora/article-images/instagram-poster.jpg)
-
-Instagram is one of the most popular and widely used social media apps that is mostly used for sharing photos. Around 95 million images are uploaded on Instagram regularly. Apart from sharing photos, it is also used to share videos. If you love using Instagram, you might have wondered how to see who viewed your Instagram posts. It is one of the most popularly asked questions on the internet. Before we proceed to See who viewed your Instagram post, keep in mind that you can only see the number of times your post was viewed but not who viewed your post. You can only see who viewed your photo or video if you have placed it in your story.
-
-Unfortunately, you can't see who viewed your Instagram post. If you have uploaded a video or image directly into your feed, then there are only two stats that you can view, the number of views you have received and who liked your post. Instagram doesn't provide its user with access to this data. But the access to see who liked your posts is the same as who viewed them. Because all those who liked your post have also viewed it. But this only shows a limited number of people, and you will not be able to see who viewed and not liked your post.
-
-There are two methods to see who viewed your post on Instagram. You might find these methods less accurate and less effective, but trust me these are the only methods that you can use to see who viewed your posts.
-
-[01\. How to see who viewed your Instagram post using Stories](#part1)
-
-[02\. How to see who viewed your Instagram post using likes](#part2)
-
-[03\. How to see who viewed your Instagram post using third-party apps?](#part3)
-
-## How to see who viewed your Instagram post using Stories
-
-Does it mean you will never know who viewed your post? Yes, you can. You can see who viewed your video or photo only when you upload it through the story. Your story allows you to see who viewed your photo or video. After you have uploaded a photo or a video in your story, you can easily track the people who viewed it by following few simple steps.
-
-**Step 1:** After you have successfully uploaded your video or photo on your Instagram story, wait for some time so that people can see your story. After 5 to 10 minutes, tap on Your Story located at the top left corner of Instagram.
-
-![how to check who view your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step1.jpg)
-
-**Step 2:** When you tap on 'Your Story', a new window will open up showing you your image or video that you have uploaded. Now at the bottom left corner, you will number of people who have viewed your story, tap on it.
-
-![methods to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step2.jpg)
-
-**Step 3:** Now you can see the number of people who viewed your story and all those people who have viewed your Instagram story.
-
-![check who viewed your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step3.jpg)
-
-This is the easiest way of how to see who viewed your Instagram post. But if you are thinking about the images and videos that you post your feed or timeline, then you can see the number of people who viewed your post all those who liked it by following these few simple steps.
-
-## How to see who viewed your Instagram post using likes
-
-**Step 1:** Go to any post that you want to track and see how many people have viewed and who liked it. Below your video or image, you can see 'Liked by'. Click on the 'others' next to the name of the person who liked your post.
-
-![use likes to check who viewed your instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step1.png)
-
-**Step 2:** Now at the top of the screen, you will see two numbers. The first number shows how many people have viewed your image or video and the second number shows the number of people who liked it. And the list below these numbers is the list of people who have liked your post.
-
-Since this method doesn't show you who viewed your Instagram post, it gives your few names in people who liked your post. These are the people who also viewed your post. I know this is not complete but Instagram doesn't provide the data of people who viewed your post. So in that case, you can use this data to have an idea about who viewed your post.
-
-![use Instagram Likes to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step2.png)
-
-## How to see who viewed your Instagram post using third-party apps? Is it really possible?
-
-After knowing that Instagram doesn't provide the service to see who viewed your post, most users try to find alternative third-party apps that can help them achieve this task. You can easily find hundreds of apps that claim to show you who viewed your post as well as your profile. But don't be fooled by these apps. When Instagram itself is not providing this data to its users and hiding this data, no one can do that for you. All the apps that claim to show you who viewed your profile and illegitimate and not trustworthy. By downloading and installing these apps into your phone, you are risking your privacy and security. Facebook acquired Instagram in 2016 ensures that there is no other way of how to see who viewed your Instagram posts because both Facebook and Instagram are using the same policies and site. Facebook doesn't allow its user to access such data so does Instagram. There is no other way except the above two methods of how to see who viewed your Instagram post.
-
-## Edit Your Instagram Video using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
-
-A well-made video is a secret to getting more followers on your Instagram. That's why you need a powerful [video editor](https://tools.techidaily.com/wondershare/filmora/download/). We would like to recommend Filmora for you. Here are a few things that Filmora can do for your Instagram video.
-
-* Allows you to add funny stickers/effects/transitions to your videos.
-* Green Screen helps you to push the boundaries of your imagination and make your videos interesting.
-* Looking for a blockbuster type of effect? New BlueFX and BorisFX are here to help.
-* Export to Instagram supported size easily.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -328,3 +398,57 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-from-frames-to-frequencies-transforming-instagram-videos/"><u>[New] 2024 Approved  From Frames to Frequencies  Transforming Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-imageryinfluence-mastering-size-settings-on-instagram/"><u>[New] 2024 Approved  ImageryInfluence  Mastering Size Settings on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-mechanics-of-instagrams-featured-stories/"><u>[New] 2024 Approved  The Mechanics of Instagram's Featured Stories</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-thrilling-theme-journey-10-bestdiscord-classics/"><u>[New] 2024 Approved  Thrilling Theme Journey  10 BestDiscord Classics</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unveiling-my-lost-followers-insta-unfollow-check/"><u>[New] 2024 Approved  Unveiling My Lost Followers  Insta Unfollow Check</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-crafting-captivating-instagram-puzzles-a-step-by-step-approach-for-2024/"><u>[New] Crafting Captivating Instagram Puzzles  A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-5-premium-ps1-game-simulators-for-pc-gamers/"><u>[New] In 2024, 5 Premium PS1 Game Simulators for PC Gamers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-flip-the-script-instagrams-video-trick/"><u>[New] In 2024, Flip the Script  Instagram's Video Trick</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-journey-of-rhythms-choreographing-tiktok-on-macos/"><u>[New] Journey of Rhythms  Choreographing TikTok on MacOS</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-market-mastery-in-3-easy-steps-with-key-vocabulary/"><u>[New] Market Mastery in 3 Easy Steps with Key Vocabulary</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-navigate-the-digital-realm-uploading-to-instagram-tv-for-2024/"><u>[New] Navigate the Digital Realm  Uploading to Instagram TV for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-essential-steps-for-instagram-chat-novices/"><u>[Updated] 2024 Approved  Essential Steps for Instagram Chat Novices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-expert-tips-for-effortless-instagram-video-dialogues/"><u>[Updated] 2024 Approved  Expert Tips for Effortless Instagram Video Dialogues</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-from-beginner-to-pro-the-top-tips-for-instagram-stories/"><u>[Updated] 2024 Approved  From Beginner to Pro  The Top Tips for Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-seeing-the-unseen-tracking-instagram-viewers-meticulously/"><u>[Updated] 2024 Approved  Seeing the Unseen  Tracking Instagram Viewers Meticulously</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-composing-an-emotive-tiktok-finale-statement/"><u>[Updated] Composing An Emotive TikTok Finale Statement</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-easy-instagram-posting-for-gif-lovers-4-essential-tips/"><u>[Updated] In 2024, Easy Instagram Posting for GIF Lovers  4 Essential Tips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-unseen-dos-and-donts-of-instagram-reels/"><u>[Updated] In 2024, The Unseen Dos & Don'ts of Instagram Reels</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitter-video-downloader-how-to-download-twitter-videos-to-iphone/"><u>[Updated] In 2024, Twitter Video Downloader  How to Download Twitter Videos to iPhone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-inverting-instagram-videos-step-by-step-guide/"><u>[Updated] Inverting Instagram Videos  Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-maximizing-visibility-in-a-newly-updated-social-platform-for-2024/"><u>[Updated] Maximizing Visibility in a Newly Updated Social Platform for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-secure-methods-to-transfer-instagram-media-onto-iphone/"><u>[Updated] Secure Methods to Transfer Instagram Media Onto iPhone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-effectiveness-of-instagrams-selfie-authenticity-feature-for-2024/"><u>[Updated] The Effectiveness of Instagram's Selfie Authenticity Feature for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unleashing-creativity-in-stories-adding-personalized-graphics/"><u>[Updated] Unleashing Creativity in Stories  Adding Personalized Graphics</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-infusing-vibrancy-into-stories-a-guide-to-choosing-the-right-emojis/"><u>2024 Approved  Infusing Vibrancy Into Stories  A Guide to Choosing the Right Emojis</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-master-the-science-and-art-of-attention-grabbing-titles/"><u>2024 Approved  Master the Science and Art of Attention-Grabbing Titles</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-melodies-for-millions-insta-music-secrets/"><u>2024 Approved  Melodies for Millions  Insta Music Secrets</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-optimize-your-avis-quick-conversion-to-gif-on-windows-and-macos-via-filmora-app/"><u>2024 Approved  Optimize Your AVIs  Quick Conversion to GIF on Windows & macOS via Filmora App</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-meizu-21-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Meizu 21 Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/behind-every-like-unseen-factors-that-influence-viewer-reactions-for-2024/"><u>Behind Every Like  Unseen Factors That Influence Viewer Reactions for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/bouncing-back-deleted-folders-on-your-pc/"><u>Bouncing Back Deleted Folders on Your PC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/engagement-enhancers-trending-stories-filters/"><u>Engagement Enhancers  Trending Stories Filters</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-galaxy-m34-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Galaxy M34?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-x90s-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo X90S to PC? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-assessing-the-usefulness-of-instas-verified-posts/"><u>In 2024, Assessing the Usefulness of Insta’s Verified Posts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-balancing-width-and-height-for-ultimate-videography/"><u>In 2024, Balancing Width and Height for Ultimate Videography</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-c67-4g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme C67 4G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mac-methods-for-cleaner-instagram-video-edits/"><u>In 2024, Mac Methods for Cleaner Instagram Video Edits</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/insta-video-backup-two-methods-for-seamless-access-for-2024/"><u>Insta Video Backup  Two Methods for Seamless Access for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/insta-flip-techniques-rotate-videos-for-max-impact-for-2024/"><u>Insta-Flip Techniques  Rotate Videos for Max Impact for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/1719297453407-mastery-overprint-how-to-reactivate-the-missing-windows-functionality/"><u>Mastery Overprint: How to Reactivate the Missing Windows Functionality</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-gopro-quik-for-pc-a-comprehensive-review-and-alternatives/"><u>New 2024 Approved GoPro Quik for PC A Comprehensive Review and Alternatives</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-itel-by-fonelab-android-recover-data/"><u>Recover lost data from Itel</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/sound-symphony-for-social-media-stardom-on-insta-reels/"><u>Sound Symphony for Social Media Stardom on Insta Reels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/starting-point-learning-to-thrive-in-instagrams-virtual-spaces/"><u>Starting Point  Learning to Thrive in Instagram's Virtual Spaces</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-realme-narzo-60x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/tapping-into-instagrams-video-power-formulating-a-winning-strategy-for-2024/"><u>Tapping Into Instagram's Video Power  Formulating a Winning Strategy for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-trifecta-for-instagram-video-borders/"><u>The Ultimate Trifecta for Instagram Video Borders</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-poco-c50-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Poco C50 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+</ul></div>

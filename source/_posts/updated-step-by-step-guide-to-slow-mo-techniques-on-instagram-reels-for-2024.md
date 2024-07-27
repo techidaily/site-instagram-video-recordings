@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Guide to Slow Mo Techniques on Instagram Reels for 2024\""
-date: 2024-05-21T19:43:16.741Z
-updated: 2024-05-22T19:43:16.741Z
+date: 2024-07-26T01:27:42.996Z
+updated: 2024-07-27T01:27:42.996Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Step-by-Step Guide to Slow Mo Techniques on Instagram Reels for 2024\""
 excerpt: "\"This Article Describes [Updated] Step-by-Step Guide to Slow Mo Techniques on Instagram Reels for 2024\""
 keywords: "\"Instagram Reel Tips,Slow Motion Tricks,Reel Filming Basics,Mastering Slow-Motion Videos,Slow Mo Techniques Guide,High Res Instagram Shorts,Enhancing Video Quality\""
-thumbnail: https://www.lifewire.com/thmb/ET51ABCwWBTletzUuHrK9bZXzl8=/1000x333/filters:no_upscale():max_bytes(150000):strip_icc()/HowTo_Computers-28f36cf9111a4e14aa557ed6c6183653.png
+thumbnail: https://thmb.techidaily.com/d4527039f6a1a287d2df17fa899a5ac8403841092ccbbf441a17ff63d6863be1.png
 ---
 
 ## Step-by-Step Guide to Slow Mo Techniques on Instagram Reels
@@ -39,6 +39,9 @@ Slow-motion can be achieved by either dropping frames from a video sequence, or 
 
 That's why it is very important to use high-resolution recording when shooting such video to prevent the stuttering effect. The higher the frame rate, the more we can slow down the action without noticeable jarring because each frame will be captured in more detail.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: How Does Slow Motion Work On Instagram Reels?
 
 Instagram Reels is a new feature within the Instagram app where users can create short 15-second videos and add them to their Instagram Stories. The new tool plays with time and motion in a creative way by letting you record clips but only keeps the last 15 seconds. While this might seem to limit at first, it actually opens up some creative possibilities for creating interesting vignettes. But how does the Instagram reels slow motion function work?
@@ -63,16 +66,25 @@ Now tap ‘Reels’ in the bottom panel beside ‘Story.’ You can select the t
 
 When recording a slow-motion video on Reels, you need to set the speed before you record the video. To do so, tap the ‘Speed’ button below your selected photo or clip-on Reels and select either 0.3x or 0.5x from the two options.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![instagram reels recording speed option](https://images.wondershare.com/filmora/article-images/instagram-reels-recording-speed-option.jpg)
 
 Tap the camera button beside the ‘Speed’ button to take a test shot and see if you are satisfied with the speed. If not, either change it or tap the x on top to cancel this particular video. Once you are happy with your speed, tap on the red record button next to it to start recording your slow-motion video.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record instagram reels video slow motion](https://images.wondershare.com/filmora/article-images/record-instagram-reels-video-slow-motion.jpg)
 
 While playing back your slow-motion video, swipe left or right on the screen to play at normal speed as well as 0.3x and 0.5x speeds, respectively, for comparison purposes. Keep swiping left and right until you find the perfect playback speed for your clip. You can also pinch inwards or outwards while watching a slow-motion video to adjust what you see in its frame at a particular time.
 
 To stop recording, click on the red button. You can see a preview by clicking on the Preview button.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![preview instagram reels slow motion video](https://images.wondershare.com/filmora/article-images/preview-instagram-reels-slow-motion-video.jpg)
 
 If you are okay with the video, click Next. Now, share it with reels.
@@ -94,6 +106,9 @@ On Instagram, you can record a video in slow motion. You can even go further and
 * In this way, you can create exciting reels that will make people notice what they are all about! To do this, Go to the Instagram camera or Story page, and select Reels option.
 * You’ll have the choice to speed up or slow down various portions of the video or audio by selecting the speed as in the previous section. For instance, if you want the first 20 seconds of video to be a slow motion at the speed of 0.3x, then select as shown below.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![start part of instagram reels slow motion recording](https://images.wondershare.com/filmora/article-images/start-part-of-instagram-reels-slow-motion-recording.jpg)
 
 * And record the video till 40 seconds are left and stop. Now select speed 1x for the rest of the video to record a complete video.
@@ -104,6 +119,9 @@ On Instagram, you can record a video in slow motion. You can even go further and
 
 ![record normal speed video instagram reels](https://images.wondershare.com/filmora/article-images/record-normal-speed-video-instagram-reels.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Convert Normal Speed Video to Slow Motion For Reels?
 
 If you have recorded a video with normal speed and now want to turn it into slow motion for sharing on Instagram Reels, you will need to convert normal speed video to slow motion. You can try some slow-motion video editing software, such as [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/). So, how to do slow motion in Instagram reels?
@@ -144,6 +162,9 @@ Slow-motion can be achieved by either dropping frames from a video sequence, or 
 
 That's why it is very important to use high-resolution recording when shooting such video to prevent the stuttering effect. The higher the frame rate, the more we can slow down the action without noticeable jarring because each frame will be captured in more detail.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: How Does Slow Motion Work On Instagram Reels?
 
 Instagram Reels is a new feature within the Instagram app where users can create short 15-second videos and add them to their Instagram Stories. The new tool plays with time and motion in a creative way by letting you record clips but only keeps the last 15 seconds. While this might seem to limit at first, it actually opens up some creative possibilities for creating interesting vignettes. But how does the Instagram reels slow motion function work?
@@ -164,10 +185,16 @@ First, launch the Instagram app and swipe right to reach the camera page. Altern
 
 Now tap ‘Reels’ in the bottom panel beside ‘Story.’ You can select the time from here. The maximum time allowed is 60 sec for a reel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels recording time option](https://images.wondershare.com/filmora/article-images/instagram-reels-recording-time-option.jpg)
 
 When recording a slow-motion video on Reels, you need to set the speed before you record the video. To do so, tap the ‘Speed’ button below your selected photo or clip-on Reels and select either 0.3x or 0.5x from the two options.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels recording speed option](https://images.wondershare.com/filmora/article-images/instagram-reels-recording-speed-option.jpg)
 
 Tap the camera button beside the ‘Speed’ button to take a test shot and see if you are satisfied with the speed. If not, either change it or tap the x on top to cancel this particular video. Once you are happy with your speed, tap on the red record button next to it to start recording your slow-motion video.
@@ -192,6 +219,9 @@ When editing videos using Reels, make sure they don’t consist of too many unre
 
 Play around with these settings and see what works best for you.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: How To Record Only Part Of A Video In Slow Motion On Reels?
 
 On Instagram, you can record a video in slow motion. You can even go further and record only a portion of your video in slow motion while the rest plays at an average speed rate. This gives an interesting effect to your videos where you’d want some parts to be played at normal speed and others played in slow motion.
@@ -207,8 +237,14 @@ On Instagram, you can record a video in slow motion. You can even go further and
 
 * This video will be in slow motion for the first 20 seconds, and the rest of the video will play at normal speed. You can see the white line in the image below depicting slow motion before the line and normal motion after the line. You can see the preview by clicking “Preview.” If you are happy with the creation, you can share it.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record normal speed video instagram reels](https://images.wondershare.com/filmora/article-images/record-normal-speed-video-instagram-reels.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5: How to Convert Normal Speed Video to Slow Motion For Reels?
 
 If you have recorded a video with normal speed and now want to turn it into slow motion for sharing on Instagram Reels, you will need to convert normal speed video to slow motion. You can try some slow-motion video editing software, such as [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/). So, how to do slow motion in Instagram reels?
@@ -225,6 +261,9 @@ If you want to slow down a clip for emphasis, follow these simple steps:
 
 * First of all, download and install Wondershare Filmora video editor on your Windows or Mac computer. And to import video files from your computer, go to the media library and choose Import. And then drag and drop the video into the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![import video to slow down filmora](https://images.wondershare.com/filmora/article-images/import-video-to-slow-down-filmora.jpg)
 
 * To change the speed, select the video in the timline and go to the Speed panel and pick a speed that is appropriate for you. Slow speeds are available in 0.5X, 0.25X, 0.1X, 0.05X, and 0.01X increments. The lower the preset number, the slower the video. When you play it, it will be in slow motion.
@@ -249,6 +288,10 @@ Slow-motion can be achieved by either dropping frames from a video sequence, or 
 
 That's why it is very important to use high-resolution recording when shooting such video to prevent the stuttering effect. The higher the frame rate, the more we can slow down the action without noticeable jarring because each frame will be captured in more detail.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Part 2: How Does Slow Motion Work On Instagram Reels?
 
 Instagram Reels is a new feature within the Instagram app where users can create short 15-second videos and add them to their Instagram Stories. The new tool plays with time and motion in a creative way by letting you record clips but only keeps the last 15 seconds. While this might seem to limit at first, it actually opens up some creative possibilities for creating interesting vignettes. But how does the Instagram reels slow motion function work?
@@ -269,10 +312,16 @@ First, launch the Instagram app and swipe right to reach the camera page. Altern
 
 Now tap ‘Reels’ in the bottom panel beside ‘Story.’ You can select the time from here. The maximum time allowed is 60 sec for a reel.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels recording time option](https://images.wondershare.com/filmora/article-images/instagram-reels-recording-time-option.jpg)
 
 When recording a slow-motion video on Reels, you need to set the speed before you record the video. To do so, tap the ‘Speed’ button below your selected photo or clip-on Reels and select either 0.3x or 0.5x from the two options.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instagram reels recording speed option](https://images.wondershare.com/filmora/article-images/instagram-reels-recording-speed-option.jpg)
 
 Tap the camera button beside the ‘Speed’ button to take a test shot and see if you are satisfied with the speed. If not, either change it or tap the x on top to cancel this particular video. Once you are happy with your speed, tap on the red record button next to it to start recording your slow-motion video.
@@ -283,10 +332,16 @@ While playing back your slow-motion video, swipe left or right on the screen to 
 
 To stop recording, click on the red button. You can see a preview by clicking on the Preview button.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![preview instagram reels slow motion video](https://images.wondershare.com/filmora/article-images/preview-instagram-reels-slow-motion-video.jpg)
 
 If you are okay with the video, click Next. Now, share it with reels.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![share instagram reels slow motion video](https://images.wondershare.com/filmora/article-images/share-instagram-reels-slow-motion-video.jpg)
 
 Since the playback speed is not the only factor responsible for making videos look really slow-motion, it is equally important to ensure that your shots have an ample amount of action and motion in them. This way, when you choose to play them back at regular speeds or slower ones, their contents will be discernible enough to make a lasting impression on your audience. Depending on the kind of video you want to shoot, simply increase or decrease the number of clips that you use as well as their duration.
@@ -304,6 +359,9 @@ On Instagram, you can record a video in slow motion. You can even go further and
 * In this way, you can create exciting reels that will make people notice what they are all about! To do this, Go to the Instagram camera or Story page, and select Reels option.
 * You’ll have the choice to speed up or slow down various portions of the video or audio by selecting the speed as in the previous section. For instance, if you want the first 20 seconds of video to be a slow motion at the speed of 0.3x, then select as shown below.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![start part of instagram reels slow motion recording](https://images.wondershare.com/filmora/article-images/start-part-of-instagram-reels-slow-motion-recording.jpg)
 
 * And record the video till 40 seconds are left and stop. Now select speed 1x for the rest of the video to record a complete video.
@@ -312,6 +370,9 @@ On Instagram, you can record a video in slow motion. You can even go further and
 
 * This video will be in slow motion for the first 20 seconds, and the rest of the video will play at normal speed. You can see the white line in the image below depicting slow motion before the line and normal motion after the line. You can see the preview by clicking “Preview.” If you are happy with the creation, you can share it.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record normal speed video instagram reels](https://images.wondershare.com/filmora/article-images/record-normal-speed-video-instagram-reels.jpg)
 
 ## Part 5: How to Convert Normal Speed Video to Slow Motion For Reels?
@@ -330,10 +391,17 @@ If you want to slow down a clip for emphasis, follow these simple steps:
 
 * First of all, download and install Wondershare Filmora video editor on your Windows or Mac computer. And to import video files from your computer, go to the media library and choose Import. And then drag and drop the video into the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![import video to slow down filmora](https://images.wondershare.com/filmora/article-images/import-video-to-slow-down-filmora.jpg)
 
 * To change the speed, select the video in the timline and go to the Speed panel and pick a speed that is appropriate for you. Slow speeds are available in 0.5X, 0.25X, 0.1X, 0.05X, and 0.01X increments. The lower the preset number, the slower the video. When you play it, it will be in slow motion.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![change video speed slow motion filmora video editor](https://images.wondershare.com/filmora/article-images/change-video-speed-slow-motion-filmora-video-editor.jpg)
 
 **Conclusion**
@@ -354,6 +422,9 @@ Slow-motion can be achieved by either dropping frames from a video sequence, or 
 
 That's why it is very important to use high-resolution recording when shooting such video to prevent the stuttering effect. The higher the frame rate, the more we can slow down the action without noticeable jarring because each frame will be captured in more detail.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## Part 2: How Does Slow Motion Work On Instagram Reels?
 
 Instagram Reels is a new feature within the Instagram app where users can create short 15-second videos and add them to their Instagram Stories. The new tool plays with time and motion in a creative way by letting you record clips but only keeps the last 15 seconds. While this might seem to limit at first, it actually opens up some creative possibilities for creating interesting vignettes. But how does the Instagram reels slow motion function work?
@@ -374,6 +445,14 @@ First, launch the Instagram app and swipe right to reach the camera page. Altern
 
 Now tap ‘Reels’ in the bottom panel beside ‘Story.’ You can select the time from here. The maximum time allowed is 60 sec for a reel.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![instagram reels recording time option](https://images.wondershare.com/filmora/article-images/instagram-reels-recording-time-option.jpg)
 
 When recording a slow-motion video on Reels, you need to set the speed before you record the video. To do so, tap the ‘Speed’ button below your selected photo or clip-on Reels and select either 0.3x or 0.5x from the two options.
@@ -388,6 +467,9 @@ While playing back your slow-motion video, swipe left or right on the screen to 
 
 To stop recording, click on the red button. You can see a preview by clicking on the Preview button.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![preview instagram reels slow motion video](https://images.wondershare.com/filmora/article-images/preview-instagram-reels-slow-motion-video.jpg)
 
 If you are okay with the video, click Next. Now, share it with reels.
@@ -402,6 +484,9 @@ When editing videos using Reels, make sure they don’t consist of too many unre
 
 Play around with these settings and see what works best for you.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How To Record Only Part Of A Video In Slow Motion On Reels?
 
 On Instagram, you can record a video in slow motion. You can even go further and record only a portion of your video in slow motion while the rest plays at an average speed rate. This gives an interesting effect to your videos where you’d want some parts to be played at normal speed and others played in slow motion.
@@ -409,6 +494,9 @@ On Instagram, you can record a video in slow motion. You can even go further and
 * In this way, you can create exciting reels that will make people notice what they are all about! To do this, Go to the Instagram camera or Story page, and select Reels option.
 * You’ll have the choice to speed up or slow down various portions of the video or audio by selecting the speed as in the previous section. For instance, if you want the first 20 seconds of video to be a slow motion at the speed of 0.3x, then select as shown below.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![start part of instagram reels slow motion recording](https://images.wondershare.com/filmora/article-images/start-part-of-instagram-reels-slow-motion-recording.jpg)
 
 * And record the video till 40 seconds are left and stop. Now select speed 1x for the rest of the video to record a complete video.
@@ -417,6 +505,9 @@ On Instagram, you can record a video in slow motion. You can even go further and
 
 * This video will be in slow motion for the first 20 seconds, and the rest of the video will play at normal speed. You can see the white line in the image below depicting slow motion before the line and normal motion after the line. You can see the preview by clicking “Preview.” If you are happy with the creation, you can share it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record normal speed video instagram reels](https://images.wondershare.com/filmora/article-images/record-normal-speed-video-instagram-reels.jpg)
 
 ## Part 5: How to Convert Normal Speed Video to Slow Motion For Reels?
@@ -468,3 +559,48 @@ If you’re looking for a way to make your videos look more epic and captivating
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-enhance-your-story-game-applying-fun-sticker-themes/"><u>[New] 2024 Approved  Enhance Your Story Game  Applying Fun Sticker Themes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/14620035-new-2024-approved-transform-videos-with-easy-to-use-sound-effects/"><u>[New] 2024 Approved  Transform Videos with Easy-to-Use Sound Effects!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-edge-your-way-to-success-instagrams-finest-border-applications/"><u>[New] Edge Your Way to Success  Instagram's Finest Border Applications</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-shoot-breathtaking-igtv-content-on-smartphonesdlsrs/"><u>[New] How to Shoot Breathtaking IGTV Content on Smartphones/DLSRs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-add-auto-captions-to-instagram-stories-and-reels/"><u>[New] In 2024, How to Add Auto Captions to Instagram Stories and Reels?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-10-best-apps-for-editing-igtv-vertical-videos/"><u>[Updated] 2024 Approved  10 Best Apps for Editing IGTV Vertical Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-ensure-video-perfection-before-sharing-on-instagram/"><u>[Updated] 2024 Approved  Ensure Video Perfection Before Sharing on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-science-behind-catching-fire-on-instagram/"><u>[Updated] 2024 Approved  The Science Behind Catching Fire on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-beyond-clickbait-whats-real-about-instagram-reels/"><u>[Updated] Beyond Clickbait  What's Real About Instagram Reels?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-earn-big-stay-safe-top-5-income-boosting-posts/"><u>[Updated] Earn Big, Stay Safe  Top 5 Income Boosting Posts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-guard-against-gimmicky-validations-instagrams-hidden-hazard/"><u>[Updated] Guard Against Gimmicky Validations  Instagram's Hidden Hazard</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-engaging-essentials-leading-ig-filters/"><u>[Updated] In 2024, Engaging Essentials  Leading IG Filters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-leveraging-edits-to-captivate-audiences-on-instagram/"><u>[Updated] In 2024, Leveraging Edits to Captivate Audiences on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-fixes-for-stuck-instagram-videos/"><u>[Updated] In 2024, Mastering Fixes for Stuck Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-step-by-step-process-for-igtv-on-instagram-stories/"><u>[Updated] In 2024, Step-by-Step Process for IGTV on Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-step-by-step-to-turn-off-igtv/"><u>[Updated] In 2024, Step-by-Step to Turn Off IGTV</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unseen-influences-on-your-viewing-habits-of-stories/"><u>[Updated] In 2024, Unseen Influences on Your Viewing Habits of Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-size-your-content-smartly-video-tips-for-instagram-excellence-for-2024/"><u>[Updated] Size Your Content Smartly  Video Tips for Instagram Excellence for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-top-8-crowd-favorites-in-ae-templates/"><u>[Updated] Unveiling Top 8 Crowd Favorites in AE Templates</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-poco-x6-pro-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Poco X6 Pro Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-your-youtube-profiles-a-guide-to-crafting-descriptions/"><u>2024 Approved  Enhancing Your YouTube Profiles  A Guide to Crafting Descriptions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-illumination-best-covered-ig-highlights-on-the-move/"><u>2024 Approved  Instagram Illumination  Best-Covered IG Highlights on the Move</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-innovations-enhancers-that-excite/"><u>2024 Approved  Instagram Innovations  Enhancers that Excite</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-superior-architects-cutting-edge-instagram-hlv-makers/"><u>2024 Approved  Superior Architects  Cutting-Edge Instagram HLV Makers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortless-resolution-of-macs-green-screen-problem-for-youtubers-for-2024/"><u>Effortless Resolution of Mac's Green Screen Problem for YouTubers for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-motorola-razr-40-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Motorola Razr 40</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/exploring-magix-vpxs-innovative-editing-capabilities/"><u>Exploring Magix VPX's Innovative Editing Capabilities</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-infinix-note-30i-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Infinix Note 30i</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-accelerate-engagement-quick-instagram-likes-and-videos-strategy/"><u>In 2024, Accelerate Engagement  Quick Instagram Likes and Videos Strategy</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Infinix Note 30 VIP? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-how-to-watch-videos-quickly-and-smoothly/"><u>In 2024, Instagram  How to Watch Videos Quickly & Smoothly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-proven-methods-for-sensational-instagram-puzzle-creation/"><u>In 2024, Proven Methods for Sensational Instagram Puzzle Creation</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-honor-70-lite-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Honor 70 Lite 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-shadowed-observers-playbook-engaging-with-instagram-stories-anonymously-free/"><u>In 2024, The Shadowed Observer's Playbook  Engaging with Instagram Stories Anonymously [Free]</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-top-live-stream-scenery-ideas-2023/"><u>In 2024, Top Live Stream Scenery Ideas 2023</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/navigating-instagrams-video-limit-regulations-for-2024/"><u>Navigating Instagram's Video Limit Regulations for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/streamlining-your-video-collection-converting-mp4-with-vlc/"><u>Streamlining Your Video Collection  Converting MP4 with VLC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-instagram-influencer-blueprint-from-few-to-a-thousand-fans/"><u>The Instagram Influencer Blueprint  From Few to a Thousand Fans</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-quintessential-guide-to-selecting-video-apps-for-reels/"><u>The Quintessential Guide to Selecting Video Apps for Reels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-success-with-instagrams-business-platform-for-2024/"><u>Unlocking Success with Instagram's Business Platform for 2024</u></a></li>
+</ul></div>

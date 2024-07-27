@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Simplify Your Social Media  Uploading Multiple Photos and Vids on IG\""
-date: 2024-05-21T19:30:36.708Z
-updated: 2024-05-22T19:30:36.708Z
+date: 2024-07-26T00:57:23.117Z
+updated: 2024-07-27T00:57:23.117Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Simplify Your Social Media: Uploading Multiple Photos and Vids on IG\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Simplify Your Social Media: Uploading Multiple Photos and Vids on IG\""
 keywords: "Simplified Social Sharing,Easy IG Multimedia,Share Images Effortlessly,Video Upload Convenience,Instagram Photo Uploads,Streamline Media Posting,Quick Content Publishing"
-thumbnail: https://www.lifewire.com/thmb/CjYDW4BE9EJ06iV3kGtjVcSaG9k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/man-working-at-home-968890648-5c8a9cac46e0fb000146acb5.jpg
+thumbnail: https://thmb.techidaily.com/983f31d4ff46a88bf34dd06f49261024f8d7c362e39532f6eee2990ca747e49a.jpg
 ---
 
 ## Simplify Your Social Media: Uploading Multiple Photos and Vids on IG
@@ -33,6 +33,9 @@ thumbnail: https://www.lifewire.com/thmb/CjYDW4BE9EJ06iV3kGtjVcSaG9k=/400x300/fi
 
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Upload Multiple Videos and Photos to Instagram
 
  Here in this section we have brought you with the detailed guide on how one can upload up to 10 images or videos or a combination of both in a single Instagram post –
@@ -57,14 +60,23 @@ thumbnail: https://www.lifewire.com/thmb/CjYDW4BE9EJ06iV3kGtjVcSaG9k=/400x300/fi
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
 
 * The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
 
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
 ## Conclusion
@@ -85,6 +97,161 @@ Follow @Shanoon Cox
 
  We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+## Introducing Carousel
+
+ Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
+
+ You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Upload Multiple Videos and Photos to Instagram
+
+ Here in this section we have brought you with the detailed guide on how one can upload up to 10 images or videos or a combination of both in a single Instagram post –
+
+* Launch your Instagram app and hit the '+' sign at the bottom.
+
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
+
+* As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
+
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
+
+ Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
+
+ Note: Make sure to select the images, in the sequence you want them to occur in your post. A number appears on the top right corner of every image which shows you the sequence in which they will be uploaded. Tap 'Next' when you are done selecting the images/videos.
+
+* (Optional) The next screen allows you to apply filters and edit your images. The filter you choose will be auto applied to all the images.
+
+ If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
+
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
+
+* (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
+
+* The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
+
+* Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
+
+## Conclusion
+
+ Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Introducing Carousel
+
+ Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
+
+ You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## How to Upload Multiple Videos and Photos to Instagram
+
+ Here in this section we have brought you with the detailed guide on how one can upload up to 10 images or videos or a combination of both in a single Instagram post –
+
+* Launch your Instagram app and hit the '+' sign at the bottom.
+
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
+
+* As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
+
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
+
+ Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
+
+ Note: Make sure to select the images, in the sequence you want them to occur in your post. A number appears on the top right corner of every image which shows you the sequence in which they will be uploaded. Tap 'Next' when you are done selecting the images/videos.
+
+* (Optional) The next screen allows you to apply filters and edit your images. The filter you choose will be auto applied to all the images.
+
+ If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
+
+* (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
+
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
+
+* The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
+
+* Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
+
+## Conclusion
+
+ Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## Introducing Carousel
 
  Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
@@ -111,6 +278,9 @@ Follow @Shanoon Cox
 
  If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
@@ -125,122 +295,14 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
-## Conclusion
-
- Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
-
-## Introducing Carousel
-
- Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
-
- You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
-
-## How to Upload Multiple Videos and Photos to Instagram
-
- Here in this section we have brought you with the detailed guide on how one can upload up to 10 images or videos or a combination of both in a single Instagram post –
-
-* Launch your Instagram app and hit the '+' sign at the bottom.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
-
-* As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
-
- Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
-
- Note: Make sure to select the images, in the sequence you want them to occur in your post. A number appears on the top right corner of every image which shows you the sequence in which they will be uploaded. Tap 'Next' when you are done selecting the images/videos.
-
-* (Optional) The next screen allows you to apply filters and edit your images. The filter you choose will be auto applied to all the images.
-
- If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
-
-* (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
-
-* The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
-
-* Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
-
-## Conclusion
-
- Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
-
-## Introducing Carousel
-
- Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
-
- You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
-
-## How to Upload Multiple Videos and Photos to Instagram
-
- Here in this section we have brought you with the detailed guide on how one can upload up to 10 images or videos or a combination of both in a single Instagram post –
-
-* Launch your Instagram app and hit the '+' sign at the bottom.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
-
-* As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
-
- Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
-
- Note: Make sure to select the images, in the sequence you want them to occur in your post. A number appears on the top right corner of every image which shows you the sequence in which they will be uploaded. Tap 'Next' when you are done selecting the images/videos.
-
-* (Optional) The next screen allows you to apply filters and edit your images. The filter you choose will be auto applied to all the images.
-
- If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
-
-* (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
-
-* The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
-
-* Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
-
-![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
-
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
  Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
@@ -276,3 +338,38 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-becoming-an-instagram-video-conversation-guru-your-ultimate-guide/"><u>[New] 2024 Approved  Becoming an Instagram Video Conversation Guru  Your Ultimate Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-cutting-edge-strategies-for-instagram-video-cropping/"><u>[New] 2024 Approved  Cutting-Edge Strategies for Instagram Video Cropping</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-detailed-tutorial-on-screen-capturing-in-online-meetings-google/"><u>[New] 2024 Approved  Detailed Tutorial on Screen Capturing in Online Meetings (Google)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-make-your-instagram-posts-pop-with-correct-video-dimensions/"><u>[New] 2024 Approved  Make Your Instagram Posts Pop with Correct Video Dimensions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-ultimate-checklist-for-instagram-selfies/"><u>[New] 2024 Approved  The Ultimate Checklist for Instagram Selfies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-maximizing-zoom-experience-on-windows-pcs-with-win10/"><u>[New] Maximizing Zoom Experience on Windows PCs with Win10</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-professional-techniques-for-mobile-and-dslr-igtv-mastery-for-2024/"><u>[New] Professional Techniques for Mobile & DSLR  IGTV Mastery for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-check-who-unfollowed-me-on-instagram/"><u>[Updated] 2024 Approved  How to Check Who Unfollowed Me on Instagram?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-ideal-microphone-logging-software-on-mac-devices-compile-the-best-5/"><u>[Updated] 2024 Approved  Ideal Microphone Logging Software on Mac Devices  Compile the Best 5</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagrams-hidden-gems-designing-stunning-engaging-puzzle-posts/"><u>[Updated] 2024 Approved  Instagram's Hidden Gems  Designing Stunning, Engaging Puzzle Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-discover-the-leading-apps-for-instagrams-vertical-igtv-edits/"><u>[Updated] Discover the Leading Apps for Instagram's Vertical IGTV Edits</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-freshwater-frontiers-prime-camers-for-fishing-enthusiasts/"><u>[Updated] Freshwater Frontiers  Prime Camers for Fishing Enthusiasts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-implementing-instagram-story-opinion-polls-effectively-for-2024/"><u>[Updated] Implementing Instagram Story Opinion Polls Effectively for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-enhance-engagement-with-these-4-looping-video-techniques/"><u>[Updated] In 2024, Enhance Engagement with These 4 Looping Video Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-create-and-change-an-igtv-cover-photo-thumbnail/"><u>[Updated] In 2024, How to Create and Change an IGTV Cover Photo (Thumbnail)?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagrams-video-length-limit-a-compre-written-for-you/"><u>[Updated] In 2024, Instagram’s Video Length Limit - A Compre Written for You</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-swift-strategies-for-instagram-reel-success/"><u>[Updated] In 2024, Swift Strategies for Instagram Reel Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-insiders-guide-adding-borders-in-instagram-footage/"><u>[Updated] In 2024, The Insider's Guide  Adding Borders in Instagram Footage</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-understanding-ip-instagram-melody-rights/"><u>[Updated] In 2024, Understanding IP  Instagram Melody Rights</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-vimeo-recording-techniques/"><u>[Updated] Mastering Vimeo Recording Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlocking-the-secrets-to-instagram-post-replicas-for-2024/"><u>[Updated] Unlocking the Secrets to Instagram Post Replicas for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-content-with-these-25-powerful-instagram-tags/"><u>Elevate Your Content with These 25 Powerful Instagram Tags</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/exclusive-access-8-top-fb-link-extractors/"><u>Exclusive Access  8 Top FB Link Extractors</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-on-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 On Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/innovative-strategies-for-engaging-your-audience-with-puzzles-on-instagram-for-2024/"><u>Innovative Strategies for Engaging Your Audience with Puzzles on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagram-the-8-best-timers-for-iphoneandroid-users-for-2024/"><u>Mastering Instagram  The 8 Best Timers for iPhone/Android Users for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719173155093-my-2-years-in-high-definition-with-an-oled-monitor/"><u>My 2 Years in High Definition with an OLED Monitor</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-nokia-g22-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Nokia G22 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/reimagining-posts-a-new-perspective-on-ig-for-2024/"><u>Reimagining Posts  A New Perspective on IG for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ork-in-video-production-boosting-channel-size/"><u>Teamwork in Video Production, Boosting Channel Size</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transforming-realities-into-engaging-documentaries-through-scriptwriting/"><u>Transforming Realities Into Engaging Documentaries Through Scriptwriting</u></a></li>
+</ul></div>

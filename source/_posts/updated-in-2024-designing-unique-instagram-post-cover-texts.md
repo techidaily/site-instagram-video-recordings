@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Designing Unique Instagram Post Cover Texts"
-date: 2024-05-21T18:55:34.756Z
-updated: 2024-05-22T18:55:34.756Z
+date: 2024-07-25T23:33:11.545Z
+updated: 2024-07-26T23:33:11.545Z
 tags:
   - ai video
   - ai instagram
@@ -12,13 +12,16 @@ categories:
 description: "This Article Describes [Updated] In 2024, Designing Unique Instagram Post Cover Texts"
 excerpt: "This Article Describes [Updated] In 2024, Designing Unique Instagram Post Cover Texts"
 keywords: "Unique Post Covers,Insta Design Tips,Cover Text Creation,Engaging Instagram Titles,Image Captioning Strategies,Visually Appealing Descriptions,Branded Content Layouts"
-thumbnail: https://www.lifewire.com/thmb/Sy46KPVfMaWFLgirX8_-PbuRvxo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/HowtoWatchNarutoinOrder-23d1bdf3bb7e472aad1c10f547e4af41.jpg
+thumbnail: https://thmb.techidaily.com/81e161f907419dfdc391568e85d3e05da23f1ff740a914248fee4864660d3de9.jpg
 ---
 
 ## Designing Unique Instagram Post Cover Texts
 
 # How to Make Instagram Highlight Covers
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -53,6 +56,10 @@ Once you are on the website, create your free account if you do not have one, an
 
 **Step 2: Create a design for stories highlight cover**
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
 
 On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
@@ -75,6 +82,9 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
 
 You can make as many highlights covers as you want. Just click on the +Add page to replicate the background and then add a new icon or text for each new page created.
@@ -99,6 +109,164 @@ If you have existing highlight covers, you can easily edit and change them. Go t
 
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+## Bonus: Tips for making better Instagram Highlight cover
+
+Instagram highlight covers design should be such that it immediately grabs the attention of your audience. Since it forms a part of your brand aesthetics, the color and design elements you use should be consistent.
+
+Here are a few tips to make better Instagram highlight covers.
+
+**Tip #1 – Have the Same Style**
+
+When creating Insta highlight covers with either a photo, icons, typography, or illustrations, keep the same style across all covers. A compilation of different styles makes your highlight covers disorganized and difficult to follow.
+
+**Tip #2 – Be Precise**
+
+Highlight covers have a small viewing window. Make sure the design is easy to read and clear. Simple designs are perfect for highlight covers as they are easy to see for your audience.
+
+**Tip #3 – Incorporate Your Brand Assets**
+
+Instagram highlight covers are an extension of your brand. Incorporating your brand's assets is an excellent way to make your highlights feel more professional. You can include your brand voice and style. Or go with the colors, fonts, or design trademarks that you use on other channels.
+
+**Conclusion**
+
+Creating Instagram Highlight Covers is a quick and easy way to maintain your brand aesthetic and get more views. Putting in some time and effort into creating beautiful, high-quality highlight covers benefits you in many ways. It helps increase brand awareness, showcase your most valuable Instagram Stories content, and attract new followers. Use this post as your go-to guide on how to make Instagram highlight covers using Canva. It will take you just a few minutes to create awesome IG highlight covers, so go ahead and get started now with Canva.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Instagram highlight covers or Instagram Story covers are little circles right below your IG profile bio. They are a great way to categorize and eternalize your stories on the feed for your audience to enjoy repeatedly. **Creating Instagram highlight covers** is a great way to build your brand and make your profile stand out. Moreover, you can customize your highlight covers with patterns, colors, and graphics to add to the overall aesthetic. However, the question is, how to make Instagram highlight covers?
+
+No worries, here in this article, we will walk you through each step on how to create Instagram highlight covers.
+
+## Part 1: Instagram Highlight Cover Size and Dimensions
+
+The highlight covers are small. Thus, it is vital to have the correct size and dimensions. Creating highlight covers with proper width and height ensures that you do not have to crop any of your designs.
+
+Generally, the Instagram highlight covers dimensions are the same as Insta stories, that is, 1080 pixels by 1920 pixels or a 9:16 aspect ratio. We recommend using square 1:1 dimensions when designing your custom highlight covers with high pixels as they work well.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
+
+When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How to Make Instagram Highlight Cover on Canva?
+
+Instagram allows you to use just about any image you like for your highlight covers. However, if you want your brand to stand out among the competition, you must get past just any image. Highlight covers are a prime space to attract visitors, turn them into customers, and leave a lasting impression. So, make the best use of it by creating custom highlight covers.
+
+There are many photo editors you can use for Instagram highlight cover and creating great-looking Instagram highlight covers is super easy with the free online tool Canva.
+
+Here is a step-by-step guide to follow on how to make highlight covers using the tool
+
+**Step 1: Head over to canva.com or download the Canva App**
+
+Once you are on the website, create your free account if you do not have one, and then log into your account. You can also download and install the Canva app on your iPhone or Android phone, and then log in to start using the app. In the following section, I will show you how to create the Instagram Story Highlight cover with Canva online.
+
+**Step 2: Create a design for stories highlight cover**
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
+![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
+
+On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
+
+**Step 3: Select a background color or photo**
+
+Canva provides fully customizable templates for highlight cover, you can drag one from the left pane to the blank canvas to start, add some texts or elements to customize.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
+
+If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
+
+On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
+
+**Step 4: Choose an icon or add text**
+
+![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
+
+Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
+
+You can make as many highlights covers as you want. Just click on the +Add page to replicate the background and then add a new icon or text for each new page created.
+
+**Step 5: Download the highlight covers**
+
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
+
+Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How to Upload a Highlight Cover on Instagram
+
+Before you upload the highlight covers on Instagram, ensure you turn on the Archive feature. Go to your Instagram settings and select the story settings and then turn on the Save to Archive. This enables you to see your old stories without downloading them.
+
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
+
+As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
+
+## Part 4: How to Change Existing Highlight Cover on Instagram?
+
+If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
+
+Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: Tips for making better Instagram Highlight cover
 
 Instagram highlight covers design should be such that it immediately grabs the attention of your audience. Since it forms a part of your brand aesthetics, the color and design elements you use should be consistent.
@@ -137,12 +305,18 @@ Instagram highlight covers or Instagram Story covers are little circles right be
 
 No worries, here in this article, we will walk you through each step on how to create Instagram highlight covers.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Instagram Highlight Cover Size and Dimensions
 
 The highlight covers are small. Thus, it is vital to have the correct size and dimensions. Creating highlight covers with proper width and height ensures that you do not have to crop any of your designs.
 
 Generally, the Instagram highlight covers dimensions are the same as Insta stories, that is, 1080 pixels by 1920 pixels or a 9:16 aspect ratio. We recommend using square 1:1 dimensions when designing your custom highlight covers with high pixels as they work well.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
 
 When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
@@ -161,6 +335,9 @@ Once you are on the website, create your free account if you do not have one, an
 
 **Step 2: Create a design for stories highlight cover**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
 
 On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
@@ -175,10 +352,16 @@ If you choose to create Instagram highlight covers from scratch without a templa
 
 On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
 
 **Step 4: Choose an icon or add text**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
 
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
@@ -201,12 +384,18 @@ Before you upload the highlight covers on Instagram, ensure you turn on the Arch
 
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
 
 If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
 
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: Tips for making better Instagram Highlight cover
 
 Instagram highlight covers design should be such that it immediately grabs the attention of your audience. Since it forms a part of your brand aesthetics, the color and design elements you use should be consistent.
@@ -245,6 +434,9 @@ Instagram highlight covers or Instagram Story covers are little circles right be
 
 No worries, here in this article, we will walk you through each step on how to create Instagram highlight covers.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Instagram Highlight Cover Size and Dimensions
 
 The highlight covers are small. Thus, it is vital to have the correct size and dimensions. Creating highlight covers with proper width and height ensures that you do not have to crop any of your designs.
@@ -291,12 +483,18 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
 
 You can make as many highlights covers as you want. Just click on the +Add page to replicate the background and then add a new icon or text for each new page created.
 
 **Step 5: Download the highlight covers**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
 
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
@@ -305,114 +503,9 @@ Once you are done making the Instagram highlight covers and are satisfied with t
 
 Before you upload the highlight covers on Instagram, ensure you turn on the Archive feature. Go to your Instagram settings and select the story settings and then turn on the Save to Archive. This enables you to see your old stories without downloading them.
 
-![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
-
-As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
-
-## Part 4: How to Change Existing Highlight Cover on Instagram?
-
-If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
-
-Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
-
-## Bonus: Tips for making better Instagram Highlight cover
-
-Instagram highlight covers design should be such that it immediately grabs the attention of your audience. Since it forms a part of your brand aesthetics, the color and design elements you use should be consistent.
-
-Here are a few tips to make better Instagram highlight covers.
-
-**Tip #1 – Have the Same Style**
-
-When creating Insta highlight covers with either a photo, icons, typography, or illustrations, keep the same style across all covers. A compilation of different styles makes your highlight covers disorganized and difficult to follow.
-
-**Tip #2 – Be Precise**
-
-Highlight covers have a small viewing window. Make sure the design is easy to read and clear. Simple designs are perfect for highlight covers as they are easy to see for your audience.
-
-**Tip #3 – Incorporate Your Brand Assets**
-
-Instagram highlight covers are an extension of your brand. Incorporating your brand's assets is an excellent way to make your highlights feel more professional. You can include your brand voice and style. Or go with the colors, fonts, or design trademarks that you use on other channels.
-
-**Conclusion**
-
-Creating Instagram Highlight Covers is a quick and easy way to maintain your brand aesthetic and get more views. Putting in some time and effort into creating beautiful, high-quality highlight covers benefits you in many ways. It helps increase brand awareness, showcase your most valuable Instagram Stories content, and attract new followers. Use this post as your go-to guide on how to make Instagram highlight covers using Canva. It will take you just a few minutes to create awesome IG highlight covers, so go ahead and get started now with Canva.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Instagram highlight covers or Instagram Story covers are little circles right below your IG profile bio. They are a great way to categorize and eternalize your stories on the feed for your audience to enjoy repeatedly. **Creating Instagram highlight covers** is a great way to build your brand and make your profile stand out. Moreover, you can customize your highlight covers with patterns, colors, and graphics to add to the overall aesthetic. However, the question is, how to make Instagram highlight covers?
-
-No worries, here in this article, we will walk you through each step on how to create Instagram highlight covers.
-
-## Part 1: Instagram Highlight Cover Size and Dimensions
-
-The highlight covers are small. Thus, it is vital to have the correct size and dimensions. Creating highlight covers with proper width and height ensures that you do not have to crop any of your designs.
-
-Generally, the Instagram highlight covers dimensions are the same as Insta stories, that is, 1080 pixels by 1920 pixels or a 9:16 aspect ratio. We recommend using square 1:1 dimensions when designing your custom highlight covers with high pixels as they work well.
-
-![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
-
-When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
-
-## Part 2: How to Make Instagram Highlight Cover on Canva?
-
-Instagram allows you to use just about any image you like for your highlight covers. However, if you want your brand to stand out among the competition, you must get past just any image. Highlight covers are a prime space to attract visitors, turn them into customers, and leave a lasting impression. So, make the best use of it by creating custom highlight covers.
-
-There are many photo editors you can use for Instagram highlight cover and creating great-looking Instagram highlight covers is super easy with the free online tool Canva.
-
-Here is a step-by-step guide to follow on how to make highlight covers using the tool
-
-**Step 1: Head over to canva.com or download the Canva App**
-
-Once you are on the website, create your free account if you do not have one, and then log into your account. You can also download and install the Canva app on your iPhone or Android phone, and then log in to start using the app. In the following section, I will show you how to create the Instagram Story Highlight cover with Canva online.
-
-**Step 2: Create a design for stories highlight cover**
-
-![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
-
-On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
-
-**Step 3: Select a background color or photo**
-
-Canva provides fully customizable templates for highlight cover, you can drag one from the left pane to the blank canvas to start, add some texts or elements to customize.
-
-![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
-
-If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
-
-On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
-
-![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
-
-**Step 4: Choose an icon or add text**
-
-![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
-
-Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
-
-![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
-
-You can make as many highlights covers as you want. Just click on the +Add page to replicate the background and then add a new icon or text for each new page created.
-
-**Step 5: Download the highlight covers**
-
-![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
-
-Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
-
-## Part 3: How to Upload a Highlight Cover on Instagram
-
-Before you upload the highlight covers on Instagram, ensure you turn on the Archive feature. Go to your Instagram settings and select the story settings and then turn on the Save to Archive. This enables you to see your old stories without downloading them.
-
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
 
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
@@ -476,3 +569,45 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-guiding-principles-for-swapping-gender-on-instagram-facebook-and-snapchat-pics/"><u>[New] 2024 Approved  Guiding Principles for Swapping Gender on Instagram, Facebook & Snapchat Pics</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-decelerating-action-the-ultimate-guide-to-ig-reels-slow-motion/"><u>[New] Decelerating Action  The Ultimate Guide to IG Reels’ Slow Motion</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-fast-track-to-fame-masterful-use-of-insta-likes-and-vids/"><u>[New] In 2024, Fast Track to Fame  Masterful Use of Insta Likes and Vids</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-business-on-instagram-a-step-by-step-guide/"><u>[New] In 2024, Mastering Business on Instagram  A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-by-step-guide-to-stunning-instagram-videos/"><u>[New] In 2024, Step-by-Step Guide to Stunning Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-tune-into-success-with-instagram-soundscapes/"><u>[New] Tune Into Success with Instagram Soundscapes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outubes-adsense-income-strategy-calculating-per-thousand-viewers/"><u>[New] Youtube's AdSense Income Strategy  Calculating Per Thousand Viewers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-elevate-instagram-presence-with-professional-video-editing-skills/"><u>[Updated] 2024 Approved  Elevate Instagram Presence with Professional Video Editing Skills</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-secrets-of-the-social-elite-6-actionable-tips-for-growing-instagram-followers/"><u>[Updated] 2024 Approved  Secrets of the Social Elite  6 Actionable Tips for Growing Instagram Followers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-building-brands-and-bonds-on-instagram-steps-to-reach-a-thousand-followers-for-2024/"><u>[Updated] Building Brands and Bonds on Instagram  Steps to Reach a Thousand Followers for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-exploring-advanced-techniques-making-a-difference-with-your-slow-motion-images-on-instagram-for-2024/"><u>[Updated] Exploring Advanced Techniques  Making a Difference with Your Slow Motion Images on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-flip-the-script-mastering-instagram-video-replay-for-2024/"><u>[Updated] Flip the Script  Mastering Instagram Video Replay for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-free-limit-breakers-for-every-story-lover/"><u>[Updated] In 2024, Free Limit Breakers for Every Story Lover</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagrams-hidden-gems-designing-stunning-engaging-puzzle-posts/"><u>[Updated] In 2024, Instagram's Hidden Gems  Designing Stunning, Engaging Puzzle Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-storyboarding-through-instagram-slides/"><u>[Updated] In 2024, Storyboarding Through Instagram Slides</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unseen-chronicles-5-expertly-crafted-viewer-tools/"><u>[Updated] In 2024, Unseen Chronicles  5 Expertly Crafted Viewer Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagrams-music-stickers-integration/"><u>[Updated] Mastering Instagram's Music Stickers Integration</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-memetic-mastery-creating-viral-content-on-facebook-and-insta/"><u>[Updated] Memetic Mastery  Creating Viral Content on Facebook and Insta</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-professional-insights-concealed-strategies-for-instagram-success-for-2024/"><u>[Updated] Professional Insights  Concealed Strategies for Instagram Success for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-what-is-igtv-and-how-to-use-it-everything-you-need-to-know/"><u>[Updated] What Is IGTV and How to Use It  Everything You Need to Know</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-a-step-by-step-guide-to-including-vimeo-on-instagram/"><u>2024 Approved  A Step-by-Step Guide to Including Vimeo on Instagram</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-oppo-reno-9a-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Oppo Reno 9A to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/can-instagrams-video-selfies-be-trusted-in-2024/"><u>Can Instagram's Video Selfies Be Trusted, In 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-vivo-s18-pro-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Vivo S18 Pro FRP Locks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/harmony-haven-gather-download-and-dissect-audio/"><u>Harmony Haven  Gather, Download & Dissect Audio</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-boost-cash-flow-with-these-5-instagram-hacks/"><u>In 2024, Boost Cash Flow with These 5 Instagram Hacks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-implementing-video-transcripts-via-youtube-captions/"><u>In 2024, Implementing Video Transcripts via YouTube Captions</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-top-5-free-video-compression-apps-for-iphone-and-ipad/"><u>In 2024, Top 5 Free Video Compression Apps for iPhone and iPad</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unleashing-creativity-in-stories-adding-personalized-graphics/"><u>In 2024, Unleashing Creativity in Stories  Adding Personalized Graphics</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unlocking-ig-potential-strategies-for-accumulating-1000plus-likesmonth/"><u>In 2024, Unlocking IG Potential  Strategies for Accumulating 1,000+ Likes/Month</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-whats-driving-facebook-views-8-hotly-debated-videos/"><u>In 2024, What's Driving Facebook Views  8 Hotly Debated Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/insta-story-hack-for-stealthy-tech-users-for-2024/"><u>Insta Story Hack for Stealthy Tech Users for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-filter-mastery-essential-skills/"><u>Instagram Filter Mastery - Essential Skills</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-insta-reels-with-tiktok-techniques-for-massive-shares/"><u>Mastering Insta Reels with TikTok Techniques for Massive Shares</u></a></li>
+<li><a href="https://extra-information.techidaily.com/metaverse-contrasted-with-multimetaverse-a-detailed-breakdown-in-depth-guide/"><u>Metaverse Contrasted with MultiMetaverse  A Detailed Breakdown (In-Depth Guide)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-for-youtube-trailers-in-filmora-for-2024/"><u>Step-by-Step for YouTube Trailers in Filmora for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-law-of-lyrics-on-instagram-platforms/"><u>The Law of Lyrics on Instagram Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/whispers-from-the-past-secrets-unveiled-in-age-old-texts-for-2024/"><u>Whispers From the Past  Secrets Unveiled in Age-Old Texts for 2024</u></a></li>
+</ul></div>

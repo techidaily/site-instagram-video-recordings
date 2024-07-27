@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Last Minute to First Impression  How to Rewind Video on Instagram\""
-date: 2024-05-21T19:17:15.059Z
-updated: 2024-05-22T19:17:15.059Z
+date: 2024-07-26T00:25:28.379Z
+updated: 2024-07-27T00:25:28.379Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, From Last Minute to First Impression: How to Rewind Video on Instagram\""
 excerpt: "\"This Article Describes [New] In 2024, From Last Minute to First Impression: How to Rewind Video on Instagram\""
 keywords: "\"Instagram Replay Feature,InstaVideo Rewind,Live Video Undo,Quick Reverse IG,Immediate Video Rev,Post-Live Replay Fix,Last Minute Edit IG\""
-thumbnail: https://www.lifewire.com/thmb/36O6mR-32uZPQcZCa_oWmrz1kHY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Childlearningonline_WillieBThomas_Getty-3e51600a64d742a0b5db4fadacead069.jpg
+thumbnail: https://thmb.techidaily.com/52f8da45eabd9e84edabed13a325d84ff2b39dca8fb87ff4960ee8bff73c07e4.jpg
 ---
 
 ## From Last Minute to First Impression: How to Rewind Video on Instagram
@@ -31,6 +31,9 @@ However, since Instagram has eliminated the ability to reverse video from Storie
 
 04 [How to Reverse Instagram Videos and Audios Online?](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to Record Video in Reverse on Instagram?
 
 When you play a video backwards, you will generate some unique effects with your video. Examples include making people walk backward, getting them to leap forward instead of forward, and dancing in reverse.
@@ -49,6 +52,9 @@ _Here's how you can record video in reverse on Instagram:_
 
 And there you have it – you've just recorded a video in reverse mode on Instagram!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Reverse Video on Instagram Reels and Story on Mobile?
 
 To reverse a recorded video and upload to Instagram later, you can also try some mobile video editing software on Android and iPhone. CapCut is one of the best reverse video program that we suggest the most for you to use out of all the ones available on the market.
@@ -105,6 +111,9 @@ Right-click on the split clip in the timeline, hover over the **Speed** option f
 
 Click the drop-down menu on the Normal Speed in the timeline to slow down or speed up the playback.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![change reverse speed filmora video editor](https://images.wondershare.com/filmora/article-images/change-reverse-speed-filmora-video-editor.jpg)
 
 In case you don’t want the distorted sound after reversing, you can mute the audio or detach the audio from video easily. To reverse
@@ -119,6 +128,132 @@ For macOS 10.12 or later
 
 Note: Filmora video editor allows you to apply filters and accents to your movie if you want to make it more appealing. You may choose a filter from the **Effects** menu at the top.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![add effects to reversed video filmora](https://images.wondershare.com/filmora/article-images/add-effects-to-reversed-video-filmora.jpg)
+
+**Step 3:** After polishing the video with additional effects, filters or elements, you can then click the **Export** button to save the video. You may either choose a video format to save it on local or upload it straight to YouTube.
+
+![filmora export window](https://images.wondershare.com/filmora/article-images/filmora-export-window.jpg)
+
+**Conclusion**
+
+According to Instagram, the purpose to reverse Instagram video and sharing it to your Instagram profile is to provide diversity to your posts while also impressing your viewers or followers. While the activity of reversing a video is straightforward, you may get a unique look by filming the movie using your creativity first before reversing it.
+
+We have provided some solutions to reversing videos and audio for Instagram video in the above content, hope it is helpful. You can record a video in rewind mode to reverse the video on Ins, try some mobile editing apps or desktop video editors, or use online video reversers。
+
+Out of all of the ways listed above, you will find utilizing Filmora the most straightforward and intuitive. What’s more, by using Filmora's rich editing tools, you may produce even better films than you would have otherwise.
+
+02 [How to Reverse Video on Instagram Reels and Story on Mobile?](#part2)
+
+03 [How to Reverse Instagram Videos and Audio on Desktop?](#part3)
+
+04 [How to Reverse Instagram Videos and Audios Online?](#part4)
+
+## Part 1: How to Record Video in Reverse on Instagram?
+
+When you play a video backwards, you will generate some unique effects with your video. Examples include making people walk backward, getting them to leap forward instead of forward, and dancing in reverse.
+
+While many would also say that you can challenge the principles of science, whether it's releasing a microphone and seeing it fly up into your palm or filming a fountain in action and showing a replay of the water rising right up to the top of your display.
+
+You can even make pets run backward and rainfall up instead of down. Many of the significant consumer video editing applications (such as Snapchat) have begun to follow the trend, and they are all doing it effortlessly!
+
+_Here's how you can record video in reverse on Instagram:_
+
+**Step 1:** If you want to create a video that plays in reverse mode, start by opening the **Instagram Stories** camera.
+
+**Step 2:** Swipe through the available choices at the bottom of the display, such as **_Hands-Free, Boomerang, Live_**, etc., until you reach the **Rewind recording** mode, which looks like this as shown in the picture below.
+
+**Step 3:** Click the **Record button** at the bottom of the display to create videos.
+
+And there you have it – you've just recorded a video in reverse mode on Instagram!
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How to Reverse Video on Instagram Reels and Story on Mobile?
+
+To reverse a recorded video and upload to Instagram later, you can also try some mobile video editing software on Android and iPhone. CapCut is one of the best reverse video program that we suggest the most for you to use out of all the ones available on the market.
+
+In addition to being completely free and without a watermark, the instructions on how to reverse in CapCut are also straightforward to follow. With a single click, you can instantly create a reverse video on your Android or iOS device without the need to first configure any settings.
+
+_Here are the steps that you should be familiar with and practice if necessary:_
+
+**Step 1:** Open the **CapCut** application on your smartphone and click on the **Create a New Project** option, to begin with.
+
+**Step 2:** Now, select the video of your choice from the phone **Gallery** and press the **Add** button to import it to the CapCut app.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![add video to capcut](https://images.wondershare.com/filmora/article-images/add-video-to-capcut.jpg)
+
+_Note: If you want to download your previous Story or Reels videos, you can try some_ [_video downloaders for Instagram_](https://tools.techidaily.com/wondershare/filmora/download/) _to get your videos._
+
+**Step 3**: After the file has been imported, tap on the **Effects** option as shown at the bottom of your display. From the array of options available in the Effects menu, swipe to your right-hand side until you reach the **Reverse** option, as shown in the picture below. Now, click on it.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+![reverse video capcut option](https://images.wondershare.com/filmora/article-images/reverse-video-capcut-option.jpg)
+
+**Step 4:** The moment you click on the Reverse option, the video will automatically start reversing. It may take a while to reverse the video if the **_size of the video_** is too large. In our case, this Wondershare Filmora video was only 24 seconds which didn't take longer than 40 seconds to reverse.
+
+**Step 5**: Once the video is reversed, you can begin **Exporting** the file by clicking the **Arrow-like** option in the upper right-hand corner of the screen. And now, you can **Share/Upload** the reversed video to Instagram.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![share reverse video from capcut instagram](https://images.wondershare.com/filmora/article-images/share-reverse-video-from-capcut-instagram.jpg)
+
+## Part 3: How to Reverse Instagram Videos and Audio on Desktop?
+
+In several instances, the reversing video effect has been utilized to great advantage by the filmmakers.
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is an excellent tool for creating your desired effect. It is compatible with practically all video formats, including AVI, DVD, compatible-MPEG, MP4, MOV, and MKV.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+If you have some footages on desktop, you can then try some desktop video editors to make a reverse video for Ins. Here, we recommend Wondershare Filmora video editor, which is one of the [best Instagram video editors](https://tools.techidaily.com/wondershare/filmora/download/) on Windows and Mac computers, and it offers you a complete set of editing tools that range from the most basic to the most advanced available on the market to [edit your videos](https://tools.techidaily.com/wondershare/filmora/download/) in an easy and advanced way.
+
+_Check out the article to find out_ [_how to edit Instagram videos_](https://tools.techidaily.com/wondershare/filmora/download/) _with Filmora video editor in detail. And the following illustrations of how you can use Filmora video editor to produce a reverse video effect_:
+
+**Step 1:** Open the **Filmora** video editor and choose **New Project** from the main menu. Then**,** import your video files into the timeline. You may need to change the project aspect ratio to 1:1 or 9:16 based on your needs.
+
+![add video to timeline](https://images.wondershare.com/filmora/article-images/add-video-to-timeline.jpg)
+
+**Step 2:** Here I just want to add the reverse effect at a specific segmentation, so I split the video clip. If you don’t know how to split the video, you can check: [How to use Filmora video splitter to split video into small parts](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Right-click on the split clip in the timeline, hover over the **Speed** option from the context menu, and then click the **Reverse** option. The video and audio will be reversed automatically with normal speed in the timeline, and you can play it in the Preview window to check.
+
+![filmora video reverse option](https://images.wondershare.com/filmora/article-images/filmora-video-reverse-option.jpg)
+
+Click the drop-down menu on the Normal Speed in the timeline to slow down or speed up the playback.
+
+![change reverse speed filmora video editor](https://images.wondershare.com/filmora/article-images/change-reverse-speed-filmora-video-editor.jpg)
+
+In case you don’t want the distorted sound after reversing, you can mute the audio or detach the audio from video easily. To reverse
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Note: Filmora video editor allows you to apply filters and accents to your movie if you want to make it more appealing. You may choose a filter from the **Effects** menu at the top.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![add effects to reversed video filmora](https://images.wondershare.com/filmora/article-images/add-effects-to-reversed-video-filmora.jpg)
 
 **Step 3:** After polishing the video with additional effects, filters or elements, you can then click the **Export** button to save the video. You may either choose a video format to save it on local or upload it straight to YouTube.
@@ -181,6 +316,9 @@ _Note: If you want to download your previous Story or Reels videos, you can try 
 
 **Step 5**: Once the video is reversed, you can begin **Exporting** the file by clicking the **Arrow-like** option in the upper right-hand corner of the screen. And now, you can **Share/Upload** the reversed video to Instagram.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![share reverse video from capcut instagram](https://images.wondershare.com/filmora/article-images/share-reverse-video-from-capcut-instagram.jpg)
 
 ## Part 3: How to Reverse Instagram Videos and Audio on Desktop?
@@ -203,16 +341,25 @@ _Check out the article to find out_ [_how to edit Instagram videos_](https://too
 
 **Step 1:** Open the **Filmora** video editor and choose **New Project** from the main menu. Then**,** import your video files into the timeline. You may need to change the project aspect ratio to 1:1 or 9:16 based on your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![add video to timeline](https://images.wondershare.com/filmora/article-images/add-video-to-timeline.jpg)
 
 **Step 2:** Here I just want to add the reverse effect at a specific segmentation, so I split the video clip. If you don’t know how to split the video, you can check: [How to use Filmora video splitter to split video into small parts](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Right-click on the split clip in the timeline, hover over the **Speed** option from the context menu, and then click the **Reverse** option. The video and audio will be reversed automatically with normal speed in the timeline, and you can play it in the Preview window to check.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora video reverse option](https://images.wondershare.com/filmora/article-images/filmora-video-reverse-option.jpg)
 
 Click the drop-down menu on the Normal Speed in the timeline to slow down or speed up the playback.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![change reverse speed filmora video editor](https://images.wondershare.com/filmora/article-images/change-reverse-speed-filmora-video-editor.jpg)
 
 In case you don’t want the distorted sound after reversing, you can mute the audio or detach the audio from video easily. To reverse
@@ -231,6 +378,9 @@ Note: Filmora video editor allows you to apply filters and accents to your movie
 
 **Step 3:** After polishing the video with additional effects, filters or elements, you can then click the **Export** button to save the video. You may either choose a video format to save it on local or upload it straight to YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora export window](https://images.wondershare.com/filmora/article-images/filmora-export-window.jpg)
 
 **Conclusion**
@@ -247,6 +397,9 @@ Out of all of the ways listed above, you will find utilizing Filmora the most st
 
 04 [How to Reverse Instagram Videos and Audios Online?](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## Part 1: How to Record Video in Reverse on Instagram?
 
 When you play a video backwards, you will generate some unique effects with your video. Examples include making people walk backward, getting them to leap forward instead of forward, and dancing in reverse.
@@ -277,6 +430,9 @@ _Here are the steps that you should be familiar with and practice if necessary:_
 
 **Step 2:** Now, select the video of your choice from the phone **Gallery** and press the **Add** button to import it to the CapCut app.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![add video to capcut](https://images.wondershare.com/filmora/article-images/add-video-to-capcut.jpg)
 
 _Note: If you want to download your previous Story or Reels videos, you can try some_ [_video downloaders for Instagram_](https://tools.techidaily.com/wondershare/filmora/download/) _to get your videos._
@@ -311,16 +467,25 @@ _Check out the article to find out_ [_how to edit Instagram videos_](https://too
 
 **Step 1:** Open the **Filmora** video editor and choose **New Project** from the main menu. Then**,** import your video files into the timeline. You may need to change the project aspect ratio to 1:1 or 9:16 based on your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add video to timeline](https://images.wondershare.com/filmora/article-images/add-video-to-timeline.jpg)
 
 **Step 2:** Here I just want to add the reverse effect at a specific segmentation, so I split the video clip. If you don’t know how to split the video, you can check: [How to use Filmora video splitter to split video into small parts](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Right-click on the split clip in the timeline, hover over the **Speed** option from the context menu, and then click the **Reverse** option. The video and audio will be reversed automatically with normal speed in the timeline, and you can play it in the Preview window to check.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora video reverse option](https://images.wondershare.com/filmora/article-images/filmora-video-reverse-option.jpg)
 
 Click the drop-down menu on the Normal Speed in the timeline to slow down or speed up the playback.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![change reverse speed filmora video editor](https://images.wondershare.com/filmora/article-images/change-reverse-speed-filmora-video-editor.jpg)
 
 In case you don’t want the distorted sound after reversing, you can mute the audio or detach the audio from video easily. To reverse
@@ -335,114 +500,9 @@ For macOS 10.12 or later
 
 Note: Filmora video editor allows you to apply filters and accents to your movie if you want to make it more appealing. You may choose a filter from the **Effects** menu at the top.
 
-![add effects to reversed video filmora](https://images.wondershare.com/filmora/article-images/add-effects-to-reversed-video-filmora.jpg)
-
-**Step 3:** After polishing the video with additional effects, filters or elements, you can then click the **Export** button to save the video. You may either choose a video format to save it on local or upload it straight to YouTube.
-
-![filmora export window](https://images.wondershare.com/filmora/article-images/filmora-export-window.jpg)
-
-**Conclusion**
-
-According to Instagram, the purpose to reverse Instagram video and sharing it to your Instagram profile is to provide diversity to your posts while also impressing your viewers or followers. While the activity of reversing a video is straightforward, you may get a unique look by filming the movie using your creativity first before reversing it.
-
-We have provided some solutions to reversing videos and audio for Instagram video in the above content, hope it is helpful. You can record a video in rewind mode to reverse the video on Ins, try some mobile editing apps or desktop video editors, or use online video reversers。
-
-Out of all of the ways listed above, you will find utilizing Filmora the most straightforward and intuitive. What’s more, by using Filmora's rich editing tools, you may produce even better films than you would have otherwise.
-
-02 [How to Reverse Video on Instagram Reels and Story on Mobile?](#part2)
-
-03 [How to Reverse Instagram Videos and Audio on Desktop?](#part3)
-
-04 [How to Reverse Instagram Videos and Audios Online?](#part4)
-
-## Part 1: How to Record Video in Reverse on Instagram?
-
-When you play a video backwards, you will generate some unique effects with your video. Examples include making people walk backward, getting them to leap forward instead of forward, and dancing in reverse.
-
-While many would also say that you can challenge the principles of science, whether it's releasing a microphone and seeing it fly up into your palm or filming a fountain in action and showing a replay of the water rising right up to the top of your display.
-
-You can even make pets run backward and rainfall up instead of down. Many of the significant consumer video editing applications (such as Snapchat) have begun to follow the trend, and they are all doing it effortlessly!
-
-_Here's how you can record video in reverse on Instagram:_
-
-**Step 1:** If you want to create a video that plays in reverse mode, start by opening the **Instagram Stories** camera.
-
-**Step 2:** Swipe through the available choices at the bottom of the display, such as **_Hands-Free, Boomerang, Live_**, etc., until you reach the **Rewind recording** mode, which looks like this as shown in the picture below.
-
-**Step 3:** Click the **Record button** at the bottom of the display to create videos.
-
-And there you have it – you've just recorded a video in reverse mode on Instagram!
-
-## Part 2: How to Reverse Video on Instagram Reels and Story on Mobile?
-
-To reverse a recorded video and upload to Instagram later, you can also try some mobile video editing software on Android and iPhone. CapCut is one of the best reverse video program that we suggest the most for you to use out of all the ones available on the market.
-
-In addition to being completely free and without a watermark, the instructions on how to reverse in CapCut are also straightforward to follow. With a single click, you can instantly create a reverse video on your Android or iOS device without the need to first configure any settings.
-
-_Here are the steps that you should be familiar with and practice if necessary:_
-
-**Step 1:** Open the **CapCut** application on your smartphone and click on the **Create a New Project** option, to begin with.
-
-**Step 2:** Now, select the video of your choice from the phone **Gallery** and press the **Add** button to import it to the CapCut app.
-
-![add video to capcut](https://images.wondershare.com/filmora/article-images/add-video-to-capcut.jpg)
-
-_Note: If you want to download your previous Story or Reels videos, you can try some_ [_video downloaders for Instagram_](https://tools.techidaily.com/wondershare/filmora/download/) _to get your videos._
-
-**Step 3**: After the file has been imported, tap on the **Effects** option as shown at the bottom of your display. From the array of options available in the Effects menu, swipe to your right-hand side until you reach the **Reverse** option, as shown in the picture below. Now, click on it.
-
-![reverse video capcut option](https://images.wondershare.com/filmora/article-images/reverse-video-capcut-option.jpg)
-
-**Step 4:** The moment you click on the Reverse option, the video will automatically start reversing. It may take a while to reverse the video if the **_size of the video_** is too large. In our case, this Wondershare Filmora video was only 24 seconds which didn't take longer than 40 seconds to reverse.
-
-**Step 5**: Once the video is reversed, you can begin **Exporting** the file by clicking the **Arrow-like** option in the upper right-hand corner of the screen. And now, you can **Share/Upload** the reversed video to Instagram.
-
-![share reverse video from capcut instagram](https://images.wondershare.com/filmora/article-images/share-reverse-video-from-capcut-instagram.jpg)
-
-## Part 3: How to Reverse Instagram Videos and Audio on Desktop?
-
-In several instances, the reversing video effect has been utilized to great advantage by the filmmakers.
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is an excellent tool for creating your desired effect. It is compatible with practically all video formats, including AVI, DVD, compatible-MPEG, MP4, MOV, and MKV.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-If you have some footages on desktop, you can then try some desktop video editors to make a reverse video for Ins. Here, we recommend Wondershare Filmora video editor, which is one of the [best Instagram video editors](https://tools.techidaily.com/wondershare/filmora/download/) on Windows and Mac computers, and it offers you a complete set of editing tools that range from the most basic to the most advanced available on the market to [edit your videos](https://tools.techidaily.com/wondershare/filmora/download/) in an easy and advanced way.
-
-_Check out the article to find out_ [_how to edit Instagram videos_](https://tools.techidaily.com/wondershare/filmora/download/) _with Filmora video editor in detail. And the following illustrations of how you can use Filmora video editor to produce a reverse video effect_:
-
-**Step 1:** Open the **Filmora** video editor and choose **New Project** from the main menu. Then**,** import your video files into the timeline. You may need to change the project aspect ratio to 1:1 or 9:16 based on your needs.
-
-![add video to timeline](https://images.wondershare.com/filmora/article-images/add-video-to-timeline.jpg)
-
-**Step 2:** Here I just want to add the reverse effect at a specific segmentation, so I split the video clip. If you don’t know how to split the video, you can check: [How to use Filmora video splitter to split video into small parts](https://tools.techidaily.com/wondershare/filmora/download/).
-
-Right-click on the split clip in the timeline, hover over the **Speed** option from the context menu, and then click the **Reverse** option. The video and audio will be reversed automatically with normal speed in the timeline, and you can play it in the Preview window to check.
-
-![filmora video reverse option](https://images.wondershare.com/filmora/article-images/filmora-video-reverse-option.jpg)
-
-Click the drop-down menu on the Normal Speed in the timeline to slow down or speed up the playback.
-
-![change reverse speed filmora video editor](https://images.wondershare.com/filmora/article-images/change-reverse-speed-filmora-video-editor.jpg)
-
-In case you don’t want the distorted sound after reversing, you can mute the audio or detach the audio from video easily. To reverse
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-Note: Filmora video editor allows you to apply filters and accents to your movie if you want to make it more appealing. You may choose a filter from the **Effects** menu at the top.
-
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![add effects to reversed video filmora](https://images.wondershare.com/filmora/article-images/add-effects-to-reversed-video-filmora.jpg)
 
 **Step 3:** After polishing the video with additional effects, filters or elements, you can then click the **Export** button to save the video. You may either choose a video format to save it on local or upload it straight to YouTube.
@@ -480,3 +540,54 @@ Out of all of the ways listed above, you will find utilizing Filmora the most st
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-away-from-igs-suggestion-engine/"><u>[New] 2024 Approved  Navigating Away From IG's Suggestion Engine</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-enhance-your-content-creating-engaging-loop-videos-for-ig/"><u>[New] Enhance Your Content  Creating Engaging Loop Videos for IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-will-instagrams-algorithm-update-transform-feeds/"><u>[New] In 2024, How Will Instagram’s Algorithm Update Transform Feeds?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-instagrams-green-screen-magic/"><u>[New] In 2024, Mastering Instagram's Green Screen Magic</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-influencers-list-25-top-influencers-you-should-know-for-2024/"><u>[New] Instagram Influencers List  25 Top Influencers You Should Know for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-photographicperfection-how-to-fine-tune-insta-images-and-videos/"><u>[New] PhotographicPerfection  How to Fine-Tune Insta Images & Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-turning-back-the-clock-mastering-instagram-video-reverse-for-2024/"><u>[New] Turning Back the Clock  Mastering Instagram Video Reverse for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-compreayers-primer-to-navigating-the-online-copyright-labyrinth/"><u>[Updated] 2024 Approved  A Compreayer's Primer to Navigating the Online Copyright Labyrinth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-adding-emojis-in-youtube-discussions/"><u>[Updated] 2024 Approved  Adding Emojis in YouTube Discussions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-brand-visibility-boosted-by-instagram-photowatermarking/"><u>[Updated] 2024 Approved  Brand Visibility Boosted by Instagram Photowatermarking</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-elevate-viewer-response-crafting-engaging-ig-story-qandas/"><u>[Updated] 2024 Approved  Elevate Viewer Response  Crafting Engaging IG Story Q&As</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-elevate-your-brand-a-comprehensive-guide-to-instagram-video-marketing-plans/"><u>[Updated] 2024 Approved  Elevate Your Brand  A Comprehensive Guide to Instagram Video Marketing Plans</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-snickel-and-wail-instagrams-10-most-hilarious-meme-accounts/"><u>[Updated] 2024 Approved  Snickel & Wail  Instagram's 10 Most Hilarious Meme Accounts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-constructing-unique-instagram-post-images/"><u>[Updated] Constructing Unique Instagram Post Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-decoding-and-manipulating-gender-presentation-online-a-step-by-step-approach/"><u>[Updated] Decoding and Manipulating Gender Presentation Online  A Step-by-Step Approach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-engaging-users-with-instagrams-interactive-survey-feature-for-2024/"><u>[Updated] Engaging Users with Instagram's Interactive Survey Feature for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-ultimate-list-of-6-instagram-reel-enhancers/"><u>[Updated] In 2024, The Ultimate List of 6 Instagram Reel Enhancers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-master-the-art-of-cutting-a-video-editors-handbook-for-instagram/"><u>[Updated] Master the Art of Cutting  A Video Editor's Handbook for Instagram</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-optimizing-call-and-chat-preservation-in-the-digital-age-fb-edition-for-2024/"><u>[Updated] Optimizing Call & Chat Preservation in the Digital Age  FB Edition for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-pic-tastic-top-20-ideas-to-energize-your-feed/"><u>[Updated] Pic-Tastic! Top 20 Ideas to Energize Your Feed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-sleeper-coupons-in-instagram-the-underrated-tips-and-tricks-for-2024/"><u>[Updated] Sleeper Coupons in Instagram  The Underrated Tips and Tricks for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-sleepy-screenplays-for-nights-end/"><u>[Updated] Sleepy Screenplays for Night's End</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-top-10-innovative-tweets-de-followers-and-cleanup-apps/"><u>[Updated] Top 10 Innovative Tweets De-Followers & Cleanup Apps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-beyond-the-basics-advanced-livestreaming-tools/"><u>2024 Approved  Beyond the Basics  Advanced Livestreaming Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-immediate-techniques-for-instagram-video-audio-extraction-mp3/"><u>2024 Approved  Immediate Techniques for Instagram Video Audio Extraction (MP3)</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-infinix-hot-40-pro-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Infinix Hot 40 Pro by Name | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/audioanalyzer-reaction-to-recordings-for-2024/"><u>AudioAnalyzer  Reaction to Recordings for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/breakthrough-vloggers-reviewed-the-best-15-youtube-channels-for-product-reviews/"><u>Breakthrough Vloggers Reviewed  The Best 15 YouTube Channels for Product Reviews</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-system-of-iphone-15-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System of iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-safeguard-your-feed-remove-followers/"><u>How to Safeguard Your Feed  Remove Followers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-constructing-unique-instagram-post-images/"><u>In 2024, Constructing Unique Instagram Post Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-cut-through-competition-advanced-techniques-for-instagram-ready-videos/"><u>In 2024, Cut Through Competition  Advanced Techniques for Instagram-Ready Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-beginner-to-pro-transforming-windows-videos-with-minimal-tools/"><u>In 2024, From Beginner to Pro  Transforming Windows Videos with Minimal Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-from-simple-to-sophisticated-weaving-multiple-images-into-your-insta-story/"><u>In 2024, From Simple to Sophisticated  Weaving Multiple Images Into Your Insta Story</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-harmonizing-imagery-and-tunes-on-social-media-platforms/"><u>In 2024, Harmonizing Imagery & Tunes on Social Media Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-video-frustrations-find-solutions-now/"><u>In 2024, Instagram Video Frustrations? Find Solutions Now</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-video-wisdom-strategies-that-score-big/"><u>In 2024, Instagram Video Wisdom  Strategies That Score Big</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-leveraging-mac-integration-for-top-tier-mixer-streams/"><u>In 2024, Leveraging Mac Integration for Top-Tier Mixer Streams</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-auditory-interface-win/"><u>In 2024, Ultimate Auditory Interface, WIN</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-vivo-y77t-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Vivo Y77t Device</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-art-of-igtv-production-phone-and-dslr-techniques/"><u>Mastering the Art of IGTV Production  Phone and DSLR Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigate-to-notoriety-on-facebook-with-10-effective-tactics/"><u>Navigate to Notoriety on Facebook with 10 Effective Tactics</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/personalize-win11-panorama-selecting-stunning-walls-for-2024/"><u>Personalize Win11 Panorama  Selecting Stunning Walls for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/privacy-prowess-how-to-disconnect-on-insta/"><u>Privacy Prowess  How to Disconnect on Insta</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/setting-benchmarks-a-look-at-successful-igtv-videos-for-2024/"><u>Setting Benchmarks  A Look at Successful IGTV Videos for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/strategies-to-create-memorable-podcast-intro-lines-for-2024/"><u>Strategies to Create Memorable Podcast Intro Lines for 2024</u></a></li>
+</ul></div>
