@@ -1,0 +1,165 @@
+---
+title: "\"[New] In 2024, From Capture to Share  Precision Cropping & Export Tips for Instagram\""
+date: 2024-08-05T06:56:53.889Z
+updated: 2024-08-06T06:56:53.889Z
+tags:
+  - ai video
+  - ai instagram
+  - ai instagram video
+categories:
+  - ai
+  - instagram
+description: "\"This Article Describes [New] In 2024, From Capture to Share: Precision Cropping & Export Tips for Instagram\""
+excerpt: "\"This Article Describes [New] In 2024, From Capture to Share: Precision Cropping & Export Tips for Instagram\""
+keywords: "Instagram Cropping Guide,Insta Export Techniques,Perfect Photo Sharing,Social Media Crop Tips,Image Editing For Instagram,Precision Photo Export,Share Images Wisely"
+thumbnail: https://thmb.techidaily.com/573a01f636332d7e5c995b169e7da5e56cb9c949cb98537f68160223a0f7de27.jpg
+---
+
+## From Capture to Share: Precision Cropping & Export Tips for Instagram
+
+# How to Crop and Export Videos to Instagram
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+With more than 500 million active daily users Instagram has become one of the largest photo and video sharing platforms in the world. Videos posted on this platform have a sixty-second limit, but Instagram users must also pay close attention to the aspect ratio of their videos. Instagram allows you to upload videos in square (1:1), landscape (16:9) and portrait (4:5) aspect ratios and in this article we will show you how to export videos that have an aspect ratio that matches the one demanded by Instagram.
+
+**You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## How to crop and export videos to instagram
+
+#### **Best cropping tool – Wondershare Filmora**
+
+In order to create videos that will get thousands of likes on Instagram, you need a video editing software that will enable you to adjust the aspect ratio of the videos you want to upload to this platform.[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that provides support for a large number of different video file formats and it will enable you to crop your videos and get them ready for online use.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### **How to crop videos for instagram in Filmora**
+
+Unless you shoot your video directly from the Instagram app, the aspect ratio of your videos will not match the square aspect ratio used on Instagram. The only solution to this issue is to crop the video and change its aspect ratio so it fits one of the commonly used aspect ratios on Instagram.
+
+**Step 1: Download Filmora and Import the file into the software**
+
+In order to start cropping your videos, you first must install the Filmora video editing software on your computer. Open the video editor in the **Full Feature Mode**, and then click on the Import drop-down menu and select the Import Media Files option.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Step 2: Drag and Drop the video file onto the Timeline**
+
+![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
+
+Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
+
+**Step 3: Crop videos for Instagram**
+
+**1\. Landscape (16:9)**
+
+Chances are that the camera you used to record your video clip recorded the footage in the landscape aspect ratio. Before you can export your video clip, you must first check the resolution and frame rate of the clip you want to export. Right-click on the clip in the media panel and select Properties. After you found out this information, click on the Export button located just below the media panel.
+
+![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
+
+Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
+
+Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
+
+**2\. Portrait (4:3)**
+
+In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
+
+![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
+
+Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
+
+**3\. Square (1:1)**
+
+The process of creating a square video is the same as the process of creating a portrait video, but height and weight values need to be identical, so you'll want to set them to 1080X1080, for example. Adjust the position of the crop rectangle and click OK.
+
+The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-100-instagram-captions-to-show-yourself-to-the-world-filmora/"><u>[New] 100 Instagram Captions to Show Yourself to the World - Filmora</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-transforming-your-video-content-making-square-format-footage-for-instagram/"><u>[New] 2024 Approved  Transforming Your Video Content  Making Square-Format Footage for Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-triumph-over-triviality-amass-a-million-ish-followers-on-ig/"><u>[New] 2024 Approved  Triumph Over Triviality  Amass a Million-Ish Followers on IG</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-firecapture-plugins-for-firefox/"><u>[New] FireCapture Plugins for Firefox</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-disseminating-your-work-sharing-igtv-on-facebook/"><u>[New] In 2024, Disseminating Your Work  Sharing IGTV on Facebook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-essential-tips-for-harvesting-instagram-highlights/"><u>[New] In 2024, Essential Tips for Harvesting Instagram Highlights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-how-to-rotate-youtube-videos-by-any-angle-2023-guide-andeditors/"><u>[New] In 2024, How to Rotate YouTube Videos by Any Angle [2023 Guide &Editors]</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-maximize-creativity-with-these-10-androidpc-video-tools/"><u>[New] In 2024, Maximize Creativity with These 10 Android/PC Video Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-content-top-15-download-apps-unveiled-for-2024/"><u>[New] Instagram Content  Top 15 Download Apps Unveiled for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-reverse-image-scanning-on-instagram-photos/"><u>[New] Mastering Reverse Image Scanning on Instagram Photos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-guide-inserting-captions-in-instagram-clips/"><u>[New] Step-by-Step Guide  Inserting Captions in Instagram Clips</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-5-cozy-winter-scenes-for-youtube-backdrops/"><u>[New] Top 5 Cozy Winter Scenes for YouTube Backdrops</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-transformative-tinsel-a-journey-from-box-to-joy-for-2024/"><u>[New] Transformative Tinsel  A Journey From Box to Joy for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unmasking-momentum-makers-seeking-out-niche-influencers/"><u>[New] Unmasking Momentum Makers  Seeking Out Niche Influencers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-no-cost-speedy-tips-for-exposing-deceptive-instagram-acquaintances/"><u>[Updated] 2024 Approved  No-Cost, Speedy Tips for Exposing Deceptive Instagram Acquaintances</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-shortcuts-to-turn-off-instagrams-igtv/"><u>[Updated] 2024 Approved  Shortcuts to Turn Off Instagram's IGTV</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-stepwise-approach-to-mastering-vimeo-recording/"><u>[Updated] 2024 Approved  Stepwise Approach to Mastering Vimeo Recording</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-lowdown-on-the-maximum-video-length-on-instagram/"><u>[Updated] 2024 Approved  The Lowdown on the Maximum Video Length on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-assessing-instagrams-selfie-validation/"><u>[Updated] Assessing Instagram's Selfie Validation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-becoming-an-instagram-video-conversation-guru-your-ultimate-guide/"><u>[Updated] Becoming an Instagram Video Conversation Guru  Your Ultimate Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-guidelines-for-perfect-nightscape-photography/"><u>[Updated] Guidelines for Perfect Nightscape Photography</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-instagram-alter-your-tone-effectively/"><u>[Updated] In 2024, Mastering Instagram  Alter Your Tone Effectively</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-top-10-best-ways-to-optimize-instagram-highlights-for-your-business/"><u>[Updated] In 2024, Top 10 Best Ways to Optimize Instagram Highlights for Your Business</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unleash-creativity-a-compreayer-to-slow-motion-photography-and-videos-for-instagram-success/"><u>[Updated] In 2024, Unleash Creativity  A Compreayer to Slow-Motion Photography and Videos for Instagram Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-and-youtube-synergy-sharing-video-links-in-stories-for-2024/"><u>[Updated] Instagram and YouTube Synergy  Sharing Video Links in Stories for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/12-ultimate-insta-image-enhancers-for-2024/"><u>12 Ultimate Insta Image Enhancers for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-premium-top-11-list-audio-recording-essentials/"><u>2024 Approved  Premium Top 11 List - Audio Recording Essentials</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-studio-technique-breakdown-comprehensive-xvideooverview/"><u>2024 Approved  Studio Technique Breakdown  Comprehensive XVideoOverview</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/3-steps-for-perfect-instagram-video-margins/"><u>3 Steps for Perfect Instagram Video Margins</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-ushers-new-era-key-capabilities-we-expect-in-gpt-5/"><u>AI Ushers New Era: Key Capabilities We Expect in GPT-5</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-of-iphone-15-plus-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data of iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-motorola-defy-2-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Motorola Defy 2 to iPod | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-enhancing-your-snap-with-soundtracks-without-stickers/"><u>In 2024, Enhancing Your Snap with Soundtracks (Without Stickers)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-storytelling-integrating-fun-custom-emojis/"><u>In 2024, Mastering Instagram Storytelling  Integrating Fun, Custom Emojis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-quick-fame-formula-amplify-your-insta-presence-with-content/"><u>In 2024, Quick Fame Formula  Amplify Your Insta Presence with Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-essential-blueprint-crafting-memes-that-perform-on-social-networks/"><u>In 2024, The Essential Blueprint  Crafting Memes That Perform on Social Networks</u></a></li>
+<li><a href="https://review-topics.techidaily.com/iphone-15-plus-data-recovery-an-infographic-to-conquer-iphone-data-loss-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone 15 Plus Data Recovery – An Infographic to Conquer iPhone Data Loss | Stellar</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/solving-the-fcpx-crash-problem-top-solutions/"><u>Solving the FCPX Crash Problem Top Solutions</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-vivo-y17s-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Vivo Y17s Phones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-insta-authenticity-your-selfie-verification-journey-for-2024/"><u>Unlocking Insta Authenticity  Your Selfie Verification Journey for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-high-definition-video-editing-top-5-software-solutions-for-2024/"><u>Updated High-Definition Video Editing Top 5 Software Solutions for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/weaving-digital-tapestries-with-loom/"><u>Weaving Digital Tapestries with Loom</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
