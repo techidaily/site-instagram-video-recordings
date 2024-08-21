@@ -1,0 +1,224 @@
+---
+title: "\"[Updated] In 2024, The Photographer's Edge  Innovating with Instagram’s Bokeh Features\""
+date: 2024-08-20T03:45:42.339Z
+updated: 2024-08-21T03:45:42.339Z
+tags:
+  - ai video
+  - ai instagram
+  - ai instagram video
+categories:
+  - ai
+  - instagram
+description: "\"This Article Describes [Updated] In 2024, The Photographer's Edge: Innovating with Instagram’s Bokeh Features\""
+excerpt: "\"This Article Describes [Updated] In 2024, The Photographer's Edge: Innovating with Instagram’s Bokeh Features\""
+keywords: "PhotoEdgeBokehTech,BokehInnovationPhotog,InstaBokehCreativeArt,EdgePhotographyBokeh,BokehEffectsSocialMedia,CreativeBokehInstagram,PhotographerBokehAdvance"
+thumbnail: https://thmb.techidaily.com/f14d93751e019bfea4a977ac2ac9bc564b77ea9b7c9b8b27159acb247e2b395b.jpg
+---
+
+## The Photographer's Edge: Innovating with Instagram’s Bokeh Features
+
+# How to Add Good Bokeh Effects in Instagram Stories
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Instagram never ceases to come out with the latest and greatest features to help users create and publish professional-level photos and videos, among which is the Bokeh effect. The app has revolutionized the way we digest content and the standards for creativity are always on the rise. With Instagram now offering a Bokeh effect feature, users can get this professional photography effect from their phones (or desktops).
+
+This article will teach you what the Bokeh effect is, how to add this effect when taking photos and videos from your phone, bokeh effect apps and how to apply this feature on a desktop computer.
+
+* [Part 1: What is Bokeh Effect?](#part1)
+* [Part 2: How to Apply Bokeh Effects in IG?](#part2)
+* [Part 3: Best Bokeh Effect Apps for iOS and Android](#part3)
+* [Part 4: How to Add the Bokeh Effect for Instagram Videos](#part4)
+
+## Part 1: What is Bokeh Effect?
+
+The word “Bokeh” or “boke” refers to the Japanese concept of “blur.” We’ve all seen images where one subject is in clear focus, and the rest of the image or video is blurred. This is the Bokeh effect in its most basic description. The reason this style of photography is so appealing is that it forces viewers to focus on a very specific part of the image, the part that is in focus.
+
+A somewhat more complicated, but descriptive way to explain Bokeh is that it is not the actual blur of the background. The background blur is related to the depth of field in photography. Bokeh is the quality and feel of the reflected light points and surrounding “blur.” Complicated yet beautiful, and now accessible to people on mobile and desktop platforms.
+
+## Part 2: How to Apply the Bokeh Effect to Blur the Background of Instagram Stories
+
+Adding the Bokeh Effect to your Instagram Story is easy, although not all mobile devices have this feature available. Worry not, there are a variety of apps you can download that can get you this effect, and you can upload your final image from the camera roll.
+
+_Steps for Adding the Bokeh Effect from the Instagram App_
+
+1. Open Instagram and create a new story (click the + in the top left-hand corner of your home page or profile, or swipe right on the home page to access your Instagram camera).
+2. At the bottom of your screen, you will find **Focus**. If you do not see this function skip to the instructions on how to access this effect using alternative methods.
+3. Once **Focus** has been selected, you can take a photo or video that will feature the Bokeh effect. It is best achieved by photographing a person or a single object.
+4. You can still edit the image as desired using Instagram’s filter options after taking the image with the focus effect.
+5. Lastly, add to the story and you’re done!
+
+Again, _not all mobile devices are able to perform this function._ I’ve compiled a list of third-party applications you can download to generate the same effect.
+
+## Part 3: Best Bokeh Effect Apps for iOS and Android
+
+If you fall into the category of individuals whose Instagram does not include the Focus feature, there are a handful of apps you can use to create the Bokeh effect. Below I will share 2 apps that are perfect for adding bokeh effects to photos and videos.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 1\.  Auto Blur Background - iOS & Android - FREE
+
+![bokeh effects app - Auto Blur Background](https://images.wondershare.com/filmora/article-images/auto-blur-background-bokeh-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
+The Auto Blur Background app for [iOS](https://apps.apple.com/us/app/auto-blur-background-dslr/id1473558422) and [Android](https://play.google.com/store/apps/details?id=com.judi.autoblur&hl=en&gl=US) is free to users and allows you to import images from your camera roll or take a photo right on the app for it to blur. Once you’ve set the desired amount of background blur you are provided with a variety of bokeh effects you can add.
+
+To create an Instagram Story with the bokeh effect from this app:
+
+1. Import or take your photo on the Auto Blur Background application
+2. Edit as desired using a variety of tools offered at the bottom of your screen.
+3. To export, select the icon in the bottom right-hand corner
+4. From this step, you can either import directly to Instagram, or export to camera roll. If exported to camera roll, open the Instagram app and add a new story, select photo from camera roll and hit add to the story!
+
+**Pros:**
+
+* Variety of editing tools
+* Saving and sharing options are available
+* Editing tools are customizable
+* Easy to read interface
+
+**Cons:**
+
+* Ad placements appear multiple times while using the app
+* Blur function not always accurate for the image
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
+### 2\.  AfterFocus - iOS & Android - $0.99
+
+![bokeh effects app - AfterFocus](https://images.wondershare.com/filmora/article-images/create-bokeh-effects-with-afterfocus.jpg)
+
+AfterFocus is another Bokeh effect editing app you can use to import photos to your Instagram story with this feature. This app allows you to define the focus area and then the app does the rest of the work! This app has an extremely natural and professional appearance.
+
+To add photos from AfterFocus to your phone:
+
+1. Select your image for editing using the variety of features provided.
+2. Select the export function and save to camera roll
+3. Open the Instagram app and add a new story by selecting the photo from your camera roll and hit add to the story!
+
+**Pros:**
+
+* Basic and advanced editing tools
+* Easily downloadable
+* Double photo feature
+
+**Cons:**
+
+* Ad placements appear multiple times while using the app
+
+## Part 4: How to Add the Bokeh Effect for Instagram Videos Using Wondershare Filmora
+
+Now that you’ve learned a few different ways to create the Bokeh effect for Instagram on mobile, it’s time to learn how to add the bokeh effect to a video using your desktop. Here I recommend you try Wondershare Filmora, an easy-to-use yet powerful enough video editing software for Windows and Mac.
+
+[![Download Filmora  Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora   Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+With **Filmora**, you can apply the tilt-shift circle or linear effects to give your content to create the bokeh effect easily. Follow the steps below to create the bokeh effects with Filmora for the [Instagram Story video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Upon downloading this software here are the steps to creating the tilt-shift effect:
+
+1. Launch Filmora and set up the [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) to 1:1 accordingly for Instagram video, and then import your video media from your desktop, phone, or tablet to the editing software.
+2. Bring the clip you’re looking to edit from the upper box to your “timeline” (the lower box of your screen).
+3. Go to the **Effects** panel and find the **utility** category, you will see options for **Tilt-shift Circle** and **Tilt-Shift Linear.** Or you can use the search bar at the top and search tilt, and you will see the tilt-shift circle and tilt-shift linear.
+
+![add bokeh effect in Filmora](https://images.wondershare.com/filmora/article-images/find-tilt-shift-effect-bokeh-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+1. Drag the effect over the portion of the clip you are editing. These effects can be adjusted to change the intensity, size and rotation of the effect.
+
+![add bokeh effect in Filmora](https://images.wondershare.com/filmora/article-images/add-tilt-shift-circle-bokeh-effect.jpg)
+
+1. Exporting media from Filmora is easy. Your content can be shared from this platform directly to YouTube and Vimeo, or save to your computer. Click the **Export** button in the main interface features, select the format with which you’d like your content to be saved as, and name your file accordingly. Select the location with which you will be exporting the content to and then hit **Export**.
+
+Note: Besides using the tilt-shift circle and linear effects to make a bokeh result, you can also try some bokeh effects directly. Directly type “bokeh” in the search bar, and then try the bokeh overlays and effects.
+
+![add bokeh effect in Filmora](https://images.wondershare.com/filmora/article-images/add-bokeh-effects-filmora.jpg)
+
+**Takeaway**
+
+All in all, Instagram is a multifaceted platform that allows users to create and share their own unique content. The app is constantly including new features and options to help people maximize their creativity. Among these features is the Focus tool, or the Bokeh effect. Instagram Bokeh is possible on some, but not all, devices. If your Instagram account does not give you the option for the Focus feature, there are apps and platforms designed specifically to help you achieve this effect.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-learn-to-flip-videos-a-guide-for-instagram-users/"><u>[New] 2024 Approved  Learn to Flip Videos  A Guide for Instagram Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-resolving-the-disappearance-of-shorts-thumbnails/"><u>[New] 2024 Approved  Resolving the Disappearance of Shorts Thumbnails</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-art-of-crafting-engaging-igtv-titles/"><u>[New] 2024 Approved  The Art of Crafting Engaging IGTV Titles</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-altering-your-voice-for-stories-and-reels-on-instagram-for-2024/"><u>[New] Altering Your Voice for Stories & Reels on Instagram for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-prime-concepts-to-transform-vhs-imagery-on-computers/"><u>[New] In 2024, Prime Concepts to Transform VHS Imagery on Computers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-top-4-proven-tactics-for-exceptional-loop-videos-on-ig/"><u>[New] In 2024, Top 4 Proven Tactics for Exceptional Loop Videos on IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-filters-a-2023-guide-to-enhanced-photography-for-2024/"><u>[New] Instagram Filters  A 2023 Guide to Enhanced Photography for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-instagram-3-key-caption-techniques-for-videos/"><u>[New] Mastering Instagram  3 Key Caption Techniques for Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-the-best-instagram-performance-insight-platforms/"><u>[New] Navigating the Best Instagram Performance Insight Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-setting-up-for-success-an-instagram-business-account-blueprint-for-2024/"><u>[New] Setting Up for Success  An Instagram Business Account Blueprint for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-transformation-of-user-interaction-understanding-the-update/"><u>[New] The Transformation of User Interaction  Understanding the Update</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-top-10-premium-android-and-pc-compatible-video-editors/"><u>[New] Top 10 Premium Android & PC-Compatible Video Editors</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unveiling-the-secrets-to-creating-an-enterprise-instagram-profile-for-2024/"><u>[New] Unveiling the Secrets to Creating an Enterprise Instagram Profile for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-archive-of-awe-high-quality-gif-preservation-for-tweeters/"><u>[Updated] Archive of Awe  High-Quality GIF Preservation for Tweeters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-boost-your-media-library-top-20-freeware-tools-turning-instagram-videos-into-mp4/"><u>[Updated] Boost Your Media Library  Top 20 Freeware Tools Turning Instagram Videos Into MP4</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-edit-vertical-videos-for-instagram-in-final-cut-pro-x-in-2024/"><u>[Updated] How to Edit Vertical Videos for Instagram in Final Cut Pro X, In 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-masterful-picks-top-6-mac-compatible-capture-tools/"><u>[Updated] In 2024, Masterful Picks  Top 6 Mac-Compatible Capture Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-storystitcher-compelling-collage-for-instagram-users-for-2024/"><u>[Updated] StoryStitcher  Compelling Collage for Instagram Users for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-tailoring-the-frame-how-to-optimize-videography-for-instagram-for-2024/"><u>[Updated] Tailoring the Frame  How to Optimize Videography for Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-ultimate-guide-to-share-your-igtv-story-with-ease/"><u>[Updated] Ultimate Guide to Share Your IGTV Story with Ease</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-uncloaking-sham-followers-on-your-instagram-network/"><u>[Updated] Uncloaking Sham Followers on Your Instagram Network</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2023s-elite-web-based-recording-devices-for-2024/"><u>2023'S Elite Web-Based Recording Devices for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-boost-engagement-with-effective-video-loops-on-instagram/"><u>2024 Approved  Boost Engagement with Effective Video Loops on Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-dimension-dilemma-in-videos-insight-into-imovie-trimming/"><u>2024 Approved  Dimension Dilemma in Videos  Insight Into iMovie Trimming</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-no-cost-upgrade-excellent-online-beat-detection-for-music-producers/"><u>2024 Approved  No Cost Upgrade  Excellent Online Beat Detection for Music Producers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-art-of-instagram-filter-selection-tips-for-the-year-2023/"><u>2024 Approved  The Art of Instagram Filter Selection  Tips for the Year 2023</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-tips-for-three-engaging-video-descriptions-on-ig/"><u>2024 Approved  Tips for Three Engaging Video Descriptions on IG</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-honor-magic5-ultimate-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-realme-11-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/5-hilarious-tiktoks-laughter-unleashed-for-2024/"><u>5 Hilarious TikToks  Laughter Unleashed for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/building-your-broadcast-empire-with-obs-and-online-platforms-for-2024/"><u>Building Your Broadcast Empire with OBS and Online Platforms for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/craft-compelling-fb-video-ads-free-toolkit-included/"><u>Craft Compelling FB Video Ads - Free Toolkit Included</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhance-hd-quality-install-updated-driver-for-webcam-c270-on-w11/"><u>Enhance HD Quality: Install Updated Driver for Webcam C270 on W11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-faces-crafting-7-cheeky-youtube-comedy-videos-for-2024/"><u>Funny Faces  Crafting 7 Cheeky YouTube Comedy Videos for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-apple-iphone-12-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My Apple iPhone 12 After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-make-facebook-videos-full-screen/"><u>How to Make Facebook Videos Full Screen?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-20-most-reliable-hashtag-tracker-tools-fbtwitterinsta/"><u>In 2024, 20 Most Reliable Hashtag Tracker Tools (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-11-pro-mirror-to-pc-top-apps-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 11 Pro Mirror to PC? Top Apps You Must Know | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-cut-to-the-chase-boosting-your-instagram-with-content/"><u>In 2024, Cut to the Chase - Boosting Your Instagram with Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-key-strategies-for-navigating-complex-youtube-discussions/"><u>In 2024, Key Strategies for Navigating Complex YouTube Discussions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-techniques-to-increase-instagram-content-playback-speed/"><u>In 2024, Techniques to Increase Instagram Content Playback Speed</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/incorporate-soundscape-into-visual-discussions-for-2024/"><u>Incorporate Soundscape Into Visual Discussions for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/inside-scoop-on-western-digital-data-lifeguard-an-in-depth-review/"><u>Inside Scoop on Western Digital Data LifeGuard: An In-Depth Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/real-vs-fake-quick-ways-to-audit-your-insta-circle/"><u>Real Vs. Fake  Quick Ways to Audit Your Insta Circle</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/reveal-the-disenchanted-instagrams-unfollowers-for-2024/"><u>Reveal the Disenchanted  Instagram's Unfollowers for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-igtvs-potential-5-ways-to-surge-follower-count-for-2024/"><u>Unlocking IGTV's Potential  5 Ways to Surge Follower Count for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/visual-storytelling-for-instagram-mastering-fcpx-edits/"><u>Visual Storytelling for Instagram  Mastering FCPX Edits</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>

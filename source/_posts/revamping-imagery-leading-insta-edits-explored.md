@@ -1,0 +1,236 @@
+---
+title: "\"Revamping Imagery  Leading Insta Edits Explored\""
+date: 2024-08-20T03:42:46.417Z
+updated: 2024-08-21T03:42:46.417Z
+tags:
+  - ai video
+  - ai instagram
+  - ai instagram video
+categories:
+  - ai
+  - instagram
+description: "\"This Article Describes Revamping Imagery: Leading Insta Edits Explored\""
+excerpt: "\"This Article Describes Revamping Imagery: Leading Insta Edits Explored\""
+keywords: "\"Instagram Image Editing,Imagery Enhancement,Professional Photo Upgrades,Edit Mastery Tips,High-Quality Image Edits,Social Media Picture Perfection,Expert Photography Adjustments\""
+thumbnail: https://www.lifewire.com/thmb/wfNT36IciljH0ezohkFihnWQntE=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/woman-using-laptop-on-diving-board-at-poolside-468840349-58d553785f9b584683dfa24c.jpg
+---
+
+## Revamping Imagery: Leading Insta Edits Explored
+
+# Top 11 Best Instagram Photo Editors
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Whether you're using Instagram to advertise your business, to lay a pathway to celebrity status or simply to share gorgeous images with your family and friends, you'll already know that not every photo turns out quite how we'd like. As much as the built-in filters can go some way to ironing out the wrinkles in our images (sometimes literally), occasionally we need a little extra helping hand.
+
+Whether it's an unexpected shadow, something unfortunate in the background or an unwanted light flare that needs toning down, there are literally hundreds of flavors of Instagram photo editor out there to help you perfect your pics. We're giving a quick rundown of the best Instagram photo editor solutions (for iOS, Android, and online).
+
+You May also like
+
+[**12 Facebook Marketing Tips for Animation**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**15 Best Facebook Analyzers to Increase Sales**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+## Best Instagram Photo Editing Apps
+
+You've got two basic choices when it comes to an Instagram photo editor; online or via an app. We'll look at both options here, so that you can pick the best Instagram photo editor for your needs.
+
+* [Part 1: App solutions](#part1)
+* [Part 2: Online solutions](#part2)
+
+### Instagram photo editor apps for your smartphone
+
+Whether you're an Android or an Apple, there are tons of worthy Instagram photo editor app products out there that will help you turn your snaps into works of art. Here are five of our faves:
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 1\.  Snapseed
+
+![](https://images.wondershare.com/filmora/article-images/snapseed.jpg)
+
+It's powerful, it's user-friendly and it's developed by Google themselves. Snapseed is considered one of the best Instagram photo editor apps on Android, and it's available on iOS too. Even better; it's free!
+
+Snapseed comes with 26 built-in tools and filters, including popular options like lens blur, HDR Scape, and vintage filters. You can even remove people from your selfies and isolate individual items in your image for separate editing from the rest. It's considered one of the best image editors for serious photographers, which can mean there's a rather steep learning curve but a climb certainly worth making judging by the spectacular results.
+
+For [iOS](https://itunes.apple.com/app/snapseed/id439438619?mt=8)
+
+For [Android](https://play.google.com/store/apps/details?id=com.niksoftware.snapseed)
+
+#### 2\.  Adobe Photoshop Express
+
+![](https://images.wondershare.com/filmora/article-images/adobe-photoshop-express.jpg)
+
+For years, Adobe has set the bar for image editing software, but if you're not quite ready for the intricacies of their full package, the Express app allows you to get the best of Adobe expertise without needing a degree in desktop publishing. Free on iOS and Android, but with in-app purchases for the advanced features.
+
+Expect to find all the usual tools such as crop, straighten and rotate, as well as tools to smooth, balance and remove red eye. If you're keen to fork out for the advanced features, there's even the ability to add objects from other photos to your images, creating highly unique and unusual results.
+
+For [iOS](https://itunes.apple.com/app/adobe-photoshop-express/id331975235?mt=8)
+
+For [Android](https://play.google.com/store/apps/details?id=com.adobe.psmobile)
+
+#### 3\.  VSCO
+
+![](https://images.wondershare.com/filmora/article-images/vsco-app.jpg)
+
+If you prefer your editor to be kept simple, VSCO Cam is well worth a look. It can be used as a camera app as well as an Instagram photo editor app, meaning you can take better images in the first place as well as refine those you've already taken.
+
+We like it because it's simple. User friendly sliders help you adjust the lighting, sharpness, saturation and temperature as well as tinting and adding vignette effects to the photo. It's available on both iOS and Android, free with all the basic tools and filters, although you can buy additional photo filter packs in the store.
+
+For [iOS](https://itunes.apple.com/app/vsco/id588013838?mt=8)
+
+For [Android](https://play.google.com/store/apps/details?id=com.vsco.cam)
+
+#### 4\.  Pixlr
+
+![](https://images.wondershare.com/filmora/article-images/pixlr-android.jpg)
+
+Pixlr has been around forever and was originally an entirely web-based photo and image editor, offering Photoshop functionality for free online. Although certainly very useful to those of us who didn't want to pay for editing software, when the company was bought out by Autodesk in 2011, they finally brought the intuitive functionality of Pixlr to our smartphones too.
+
+You can do pretty much everything you want with this sweet little Instagram photo editor app. Blur, sharpen, collage, add text, resize… you can even make your photo look like an ink drawing or a pencil sketch. With so many options, it can take a while to master, but there are numerous video tutorials online for support.
+
+For [iOS](https://itunes.apple.com/us/app/pixlr-photo-collages-effect/id526783584?mt=8)
+
+For [Android](https://play.google.com/store/apps/details?id=com.pixlr.express)
+
+#### 5\.  Facetune
+
+![](https://images.wondershare.com/filmora/article-images/facetune-app.jpg)
+
+We couldn't do a list of the best Instagram photo editor apps without a nod to the epic invention that is Facetune. Although rather controversial, the editing available from this little app is truly out of this world, with nothing else in the market quite matching it for selfie tuning. It costs $3.99 to download, but there are no more purchases to make once you've bought the software.
+
+From a standard portrait, you can add make up, reduce wrinkles, sweep highlight over your cheeks or make your eyelashes look fuller. Enhance your cheekbones, straighten your nose, fill in patchy eyebrows and get an instant tooth whitening treatment… there's really not much that this can't improve on a face. If Instagram selfies are your thing, this is one to have a play with.
+
+For [iOS](https://itunes.apple.com/app/facetune/id606310581?mt=8)
+
+For [Android](https://play.google.com/store/apps/details?id=com.lightricks.facetune)
+
+There are many more Instagram photo editor app choices out there, so do take a look around and see what suits your needs the best. Do watch out for 'free' editing apps which have a rapidly approaching paywall; these we have mentioned here are perfectly functional without additional payment, but there are others which may not be as free as they first seem.
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
+### Instagram photo editor online
+
+If you prefer to use your PC to edit your photos, then there are plenty of options in the online world too. Here are five of the best Instagram photo editor options from the web.
+
+#### 1\. [Canva](https://www.canva.com/)
+
+If you haven't come across Canva yet, it's absolutely a tool to investigate if you love beautiful Instagram images. Choose their 'social graphic 800 x 800px' template for the perfect Instagram image size and upload your own photo to the editor with a click.
+
+Once uploaded, you can add wording, filters and more to perfect your image. We love the funky fonts and word layouts, which are perfect for creating those shareable quotes and inspirational memes for your followers to enjoy. The software is free online, and although you do have to pay for some of the images and fonts, there's plenty to do without paying a penny.
+
+#### 2\. [Wondershare PixStudio](https://tools.techidaily.com/wondershare/fotophire/download/)
+
+Wondershare PixStudio is an all-in-one and powerful online graphic design maker for everyone. It has various types of templates for YouTube Thumbnails, Logos, Posters, etc. You can create a beautiful design by simply dragging and dropping the elements and photos. The online platform is free to use all templates, just One-Click to download your creations and share to your Facebook, Instagram Story, and YouTube Thumbnails, etc. immediately.
+
+PixStudio has special features to remove the image background. With a single click, you can quickly remove the image background, and use your image with more flexibility. Just payment of $7.99 per month to use the features.
+
+#### 3\. [Fotor](https://www.fotor.com)
+
+Another free-to-use online Instagram photo editor is Fotor. It's absolutely packed with tools and functions to prepare your images ready for sharing. It comes with filters of its own, many of which are not available on Instagram, as well as templates for adding text to your image.
+
+The software works in layers, which can be a huge advantage if you'd like to add more to your picture. It also means you can work on various parts of the image without risking affecting any of the other layers, helping you to avoid non-undoable mistakes that simply ruin a morning's work. As with Canva, there are some paid options, but enough to keep you busy without opening for wallet for sure.
+
+#### 4\. [Pixlr Editor](https://pixlr.com/editor/)
+
+If you've tried the Pixlr Express app and love it, why not step your game up a bit with the fully fledged Pixlr Editor. It's a hairs breadth away from having full Photoshop functionality, but hallelujah it's free!
+
+It's got layers, masks, clone stamps, lasso selection tools, and much, much more. If you've never used a pro photo editing suite before it might take a bit of getting used to, but it's far and away the most powerful Instagram photo editor on the web. The only downside is that it's fully Flash based, so access via a tablet is out.
+
+#### 5\. [piZap](https://www.pizap.com/)
+
+For those looking for a simpler, less fussy Instagram photo editor, piZap might be just what you need. It's created solely for social sharing, and makes it easy to import photos from Facebook, Google Photos or wherever to work on with the editor.
+
+Unlike Pixlr Editor, piZap works in both HTML5 and Flash, so you can use it whatever device you happen to be using. It bases its functionality on sliders, which you might find more user friendly than the drop-down menus of Fotor and Pixlr if you're using your mobile device. Yes, it's free, but there are lots more features available to those willing to pay for their account.
+
+#### 6\. [Adobe Spark Post](https://spark.adobe.com/)
+
+From the photo geniuses (genii?) at Adobe comes this easy to use, fun and free photo editor, perfect for Instagram-worthy compositions. Choose from a selection of templates or start from scratch, and add filters, layers and beautiful text to anything.
+
+It's all free, although businesses might want to consider upgrading to the paid version, as this allows the removal of the Adobe Spark logo from your posts. It also gives live phone and chat support and the options for branded templates, and costs just $10 a month with no ongoing commitment.
+
+Most of these online Instagram photo editors have been designed to work with all major browsers, including Safari, Chrome, Firefox and Edge. However, if you're having problems getting them to work on your PC or tablet, do try them in another browser as there have been some conflictions reported.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+### Conclusion
+
+There you have our pick of the best Instagram photo editor apps and online services, many of which are completely free to use. As to which is the absolute best, it will entirely depend on what you are looking to achieve and how complicated you want to make things.
+
+Many of these Instagram photo editor apps and online services offer fairly basic functionality, which means you can get to grips with them in a matter of moments. More complex software will take more time to get to know but will certainly produce much better results. Why not try out a few and see how you get on, and let us know which of these Instagram photo editor solutions you like the best?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mastering-video-trimming-for-maximum-instagram-impact-mac/"><u>[New] 2024 Approved  Mastering Video Trimming for Maximum Instagram Impact (Mac)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-meme-magic-sending-laughs-across-fb-and-insta-with-video-content/"><u>[New] 2024 Approved  Meme Magic  Sending Laughs Across FB & Insta with Video Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-decoding-instagrams-max-video-length-policy-for-2024/"><u>[New] Decoding Instagram's Max Video Length Policy for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-effortless-and-easy-video-snapshots-of-win11/"><u>[New] Effortless & Easy Video Snapshots of Win11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-expressive-poetry-in-images-and-text-top-100-instagramcaptions/"><u>[New] Expressive Poetry in Images and Text - Top 100 #InstagramCaptions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-masterclass-in-instagram-designing-eye-catching-cover-images/"><u>[New] Masterclass in Instagram  Designing Eye-Catching Cover Images</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-masterful-videography-top-15-cameras-selection-guide/"><u>[New] Masterful Videography  Top 15 Cameras Selection Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-instagram-videos-size-and-format-tips/"><u>[New] Mastering Instagram Videos  Size and Format Tips</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-streamline-video-calls-using-google-hangouts-efficiently/"><u>[New] Streamline Video Calls  Using Google Hangouts Efficiently</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlock-your-true-instagram-potential-followers-guide-for-2024/"><u>[New] Unlock Your True Instagram Potential - Followers Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-crafting-content-gaining-profits-an-insiders-tale-on-instagram-sponsorship/"><u>[Updated] 2024 Approved  Crafting Content, Gaining Profits  An Insider's Tale on Instagram Sponsorship</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-loop-video-liftoff-engaging-audiences-on-ig/"><u>[Updated] 2024 Approved  Loop Video Liftoff  Engaging Audiences on IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-saving-reels-made-simple-direct-and-indirect-techniques-explained/"><u>[Updated] 2024 Approved  Saving Reels Made Simple  Direct and Indirect Techniques Explained</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-decoding-instagrams-maximum-video-duration-length-limit-for-2024/"><u>[Updated] Decoding Instagram’s Maximum Video Duration Length Limit for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-diy-video-meme-guide-boost-your-posts-on-fb-and-instagram/"><u>[Updated] DIY Video Meme Guide  Boost Your Posts on FB & Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-success-stories-adopting-viral-techniques-from-tiktok-for-2024/"><u>[Updated] Instagram Success Stories  Adopting Viral Techniques From TikTok for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagrams-hidden-details-uncovering-story-viewer-truths-for-2024/"><u>[Updated] Instagram's Hidden Details  Uncovering Story Viewer Truths for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-maximizing-post-engagement/"><u>[Updated] Mastering Instagram  Maximizing Post Engagement</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-twisting-the-narrative-a-guide-to-angled-photography-in-todays-digital-landscape-for-2024/"><u>[Updated] Twisting the Narrative  A Guide to Angled Photography in Today's Digital Landscape for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-decoding-music-copyright-rules-in-the-world-of-instagram/"><u>2024 Approved  Decoding Music Copyright Rules in the World of Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-direct-video-access-top-5-ways-to-transfer-igtv-content/"><u>2024 Approved  Direct Video Access  Top 5 Ways to Transfer IGTV Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-igtv-broadcasts-to-facebook-explained/"><u>2024 Approved  IGTV Broadcasts to Facebook Explained</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-restful-narratives-on-display/"><u>2024 Approved  Restful Narratives on Display</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-streamlining-your-instagram-video-experience/"><u>2024 Approved  Streamlining Your Instagram Video Experience</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-8-best-tips-for-perfecting-igtv-video-dimensions-and-layouts/"><u>2024 Approved  The 8 Best Tips for Perfecting IGTV Video Dimensions and Layouts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-untold-journey-of-an-instagram-story-enthusiast/"><u>2024 Approved  The Untold Journey of an Instagram Story Enthusiast</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unlock-the-potential-of-paid-endorsements-with-these-tips/"><u>2024 Approved  Unlock the Potential of Paid Endorsements with These Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-visual-voyage-through-youtubes-2017-data-deluge-for-2024/"><u>A Visual Voyage Through Youtube's 2017 Data Deluge for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/deciphering-digital-self-identity-the-insta-selfie-guide-for-2024/"><u>Deciphering Digital Self-Identity  The Insta Selfie Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/essential-tips-for-adding-text-to-instagram-videos-for-2024/"><u>Essential Tips for Adding Text to Instagram Videos for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-disable-sleep-settings-for-uninterrupted-mac-usage/"><u>How to Disable Sleep Settings for Uninterrupted Mac Usage</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-itel-p40-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-inside-track-understanding-sound-rights-on-instagram/"><u>In 2024, Inside Track  Understanding Sound Rights on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagrams-best-practices-video-sizes-and-formats/"><u>In 2024, Instagram's Best Practices  Video Sizes and Formats</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-iphone-saving-insta-pics-and-videos/"><u>In 2024, IPhone  Saving Insta Pics and Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-sizing-up-best-practices-for-instagram-videos-in-2eary-2023/"><u>In 2024, Sizing Up  Best Practices for Instagram Videos in 2Eary 2023</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-tailoring-your-videos-for-impact-on-instagram-feed/"><u>In 2024, Tailoring Your Videos for Impact on Instagram Feed</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-xiaomi-redmi-a2-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Xiaomi Redmi A2</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/premier-8-screen-recorders-guidebook-for-2024/"><u>Premier 8 Screen Recorders Guidebook for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341686952-public-hearings-may-provide-community-members-with-a-platform-to-influence-the-land-division-process/"><u>Public Hearings May Provide Community Members with a Platform to Influence the Land Division Process</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/rebooted-login-claiming-back-to-facebook/"><u>Rebooted Login  Claiming Back to Facebook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722976937434-reiteration-of-commitment-to-quality-innovation-and-sustainable-practices/"><u>Reiteration of Commitment to Quality, Innovation, and Sustainable Practices</u></a></li>
+<li><a href="https://windows11.techidaily.com/streamlining-security-refreshing-windows-group-policies/"><u>Streamlining Security: Refreshing Windows Group Policies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-procedure-for-severing-digital-bonds-for-2024/"><u>The Procedure for Severing Digital Bonds for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-social-lift-transform-from-zero-to-millionth-follower-in-months/"><u>The Social Lift  Transform From Zero to Millionth Follower in Months</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-guide-to-peak-post-times-on-instagram/"><u>The Ultimate Guide to Peak Post Times on Instagram</u></a></li>
+<li><a href="https://win11.techidaily.com/tidy-up-files-adopt-the-minimalist-way-with-windows-explorer/"><u>Tidy Up Files: Adopt the Minimalist Way with Windows Explorer</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-potential-in-instagram-engagement-with-advanced-data-tools/"><u>Unlocking Potential in Instagram Engagement with Advanced Data Tools</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
