@@ -1,0 +1,182 @@
+---
+title: "[New] In 2024, Elevating Your Instagram Presence with Optimized Video Sizes"
+date: 2024-08-26T21:53:35.847Z
+updated: 2024-08-27T21:53:35.847Z
+tags:
+  - ai video
+  - ai instagram
+  - ai instagram video
+categories:
+  - ai
+  - instagram
+description: "This Article Describes [New] In 2024, Elevating Your Instagram Presence with Optimized Video Sizes"
+excerpt: "This Article Describes [New] In 2024, Elevating Your Instagram Presence with Optimized Video Sizes"
+keywords: "\"Optimal Video Size,InstaVideo Enhance,Boosting Instagram Vids,Elevate Insta Videos,Video Size for Instagram,Improve Insta Video,Small-Large Instagram Vid\""
+thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e22c8ccd434c4356090bf9d54.jpg
+---
+
+## Elevating Your Instagram Presence with Optimized Video Sizes
+
+# 6 Effective Ways of Resizing Your IGTV Videos
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+The amount of opportunities Instagram offers to marketers and all other video content creators has recently been expanded. Finally, the users of one of the largest social networks ever created can post videos that last longer than sixty seconds, although there are a number of limitations. [Uploading a video to Instagram TV, or IGTV](https://tools.techidaily.com/wondershare/filmora/download/) is a straightforward process, but at the moment you can only add vertically oriented videos to your IGTV channel. That’s why we’ve decided to show you several quick and easy ways of resizing and rotating your videos so that each video you share on IGTV fits the platform’s demands perfectly.
+
+### Make Your IGTV Marketing Videos Shine
+
+Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
+
+[![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+* [Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]](#part1)
+* [Part 2: A Few Tips for Shooting Better IGTV Videos](#part2)
+* [Part 3: Tips for Resizing IGTV Videos](#part3)
+
+## Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]
+
+At the moment, IGTV only supports videos with aspect ratios that range from **4:5 to 9:16**, so if you recorded a video in any other aspect ratio you will have to change it before you share it on your IGTV channel. Moreover, the maximum size of a video file that lasts up to ten minutes is limited to just **650MB**, and the chances are that you will have to change the file’s size in order to be able to upload it to IGTV. Let’s have a look at some of the most effective ways of reformatting your IGTV videos.
+
+#### Resizing Videos with Filmora on Mac and PC Computers
+
+Changing the aspect ratio and the resolution of a video file in Filmora is easy. After you launch Wondershare’s video editor, you’ll have the option to **create a new project** or continue working on a project you already created. Once Filmora’s main window appears on the screen you just have to go to the **File menu** and select the **Project Settings option**.
+
+You can then change the resolution or choose a different frame rate. It is best to pick the **1080X1920 (9:16 Portrait) option** since the files exported in 2160X3840 (9:16 Portrait) resolution can end up being too large for the IGTV platform. Click on the OK button to confirm the adjustments you’ve made, and proceed to edit your video.
+
+In case the process of changing a video’s aspect ratio and resolution is too complicated for you, Filmora offers an even simpler way of reformatting footage. Simply **import a video** into the video editor, and then **place it on a video track on the timeline**. **Right-click on the file** and select the **Crop and Zoom option** from the menu, or alternatively, just use the left mouse click to select a video you added to the timeline and use the **Alt+C keyboard shortcut** to access the **Crop and Zoom window**.
+
+Click on the **Ratio drop-down menu** and choose the **9:16 option**, and then **position the Crop rectangle over the area of the video you’d like to keep**. Clicking on the **Ok button** will remove all the parts of the video that were outside of the area covered by the Crop rectangle, and you can then click on the **Play button** below the **Preview Window** to see the results before you export the video.
+
+Here is a video tutorial for you to learn how to resize the video with Filmora.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### Using Kapwing to Resize Videos Online
+
+[Kapwing](https://www.kapwing.com/) is an online video editing platform that offers a number of useful tools that enable its users to quickly polish their videos before posting them on social media. Upon arriving at Kapwing’s home page you will be able to see a number of different options, such as **Video Maker, Rotate Video, Filter Video, or Video Speed**, so you just have to click on the **Resize video** tool to start changing the aspect ratio and the resolution of your video.
+
+A new window will open in your browser after you click on the Resize video feature, and you will be asked to **upload a file** from your computer or to **paste a video’s URL**. Once you upload a video to the Kapwing platform you can choose from **Instagram, Story or IGTV, YouTube, FB/Twitter Portrait, FB/Twitter Landscape, or Facebook Cover** options. Click on the **Story or IGTV setting**, choose between **No Crop and Crop** presets, and select the **background color** before hitting the **Create button**.
+
+After the platform processes the video, you’ll be able to download it to your computer or continue editing it. The only downside is that all of your IGTV videos are going to be watermarked if you’re using the free version of the platform.
+
+#### Resizing Vertical Videos with iMovie on macOS
+
+Even though iMovie allows its users to change a video’s aspect ratio, this video editor for Mac computers only lets you choose between standard **16:9 and 4:3 aspect ratios**. That’s the reason why the only way to get your videos ready for IGTV in iMovie is to crop them.
+
+Simply click on the **Crop icon** in the editor’s toolbar and then use the **crop rectangle** to create a vertically oriented video. Use the Preview Window to make sure that you are satisfied with the results and proceed to export it from iMovie.
+
+#### Using the Video Resizer for IGTV&Frame app on iPhones
+
+Creators who frequently record their IGTV videos with their iPhones, don’t necessarily have to use desktop-based video editors, because apps like [Video Resizer for IGTV&Frame Resizing IGTV](https://itunes.apple.com/us/app/video-resizer-for-igtv-frame/id1379007244?mt=8) make optimizing footage for IGTV quick and easy.
+
+The app offers a wide range of resizing options, and you can **match width or height**, add a **border around a video** or even **move the video** in any way you want. The best part is that **preset video file sizes for Instagram, Facebook, and Twitter videos are available within the app**, so you can quickly resize a video before uploading it to IGTV. Even though you can use this app for free, you must upgrade to the Pro version in order to use all the features it has to offer.
+
+#### Videos with Smart Video Rotate and Flip – Rotator and Flipper app on Android Devices
+
+Unfortunately, there isn’t much more you can do with this app other than **flip or rotate videos**. Changing the aspect ratio is not an option [Smart Video Rotate and Flip – Rotator and Flipper app](https://play.google.com/store/apps/details?id=com.clogica.videorotator&hl=en%5FUS) offer and you can’t use the app to crop your videos. The results you’ll be able to get by rotating a landscape video can be underwhelming, so this app can only be helpful for IGTV creators if the footage you’re rotating is captured in a 16:9 aspect ratio since you can then turn it to 9:16 by simply rotating it.
+
+#### Part 2: A Few Tips for Shooting Better IGTV Videos
+
+Recording the footage with your Smartphone is perhaps the quickest way to create an IGTV video since you can just hold your phone vertically while recording is in progress. There are lots of video editing apps you can use to enhance the colors, add hardcoded subtitles or visual effects to each video you want to upload to your IGTV channel.
+
+Until recently recording vertical videos with video cameras was one of the biggest mistakes you could make, but platforms like IGTV have changed that. So, if you would like to capture your IGTV videos with professional cameras and lenses, all you have to do is rotate the camera for 90-degrees. You can also record horizontally oriented videos and then rotate them to change their aspect ratio in video editing software like Filmora.
+
+#### Part 3: Tips for Resizing IGTV Videos
+
+Resizing a video or changing its aspect ratio is a fairly simple process, but if you want to post videos on IGTV it is better if you record all of your content in accordance with the platform’s demands. The shot composition is an important aspect of creating an IGTV video since if your framing isn’t perfect you may end up removing parts of your footage. Despite the fact that IGTV lets you upload videos that last up to ten minutes, posting shorter videos that last two or three minutes will produce better results, as most social media users have a short attention span.
+
+**Conclusion**
+
+You don’t have to be a skilled video editor in order to **resize a video**, because most video editing software products offer a lot of easy ways to accomplish this. In addition, you don’t even have to edit your videos from a computer, because there are a lot of Android and iOS-based apps that enable you to rotate or reformat your IGTV videos in just a few easy taps. Which method of resizing IGTV videos do you like to use the most? Leave a comment below and let us know.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-transforming-your-photos-on-instagram-green-screen/"><u>[New] 2024 Approved  Transforming Your Photos on Instagram Green Screen</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-upload-and-share-like-a-pro-quick-and-easy-gif-tutorial-for-instagram-users/"><u>[New] 2024 Approved  Upload and Share Like a Pro  Quick & Easy GIF Tutorial for Instagram Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-viral-loop-creations-instagrams-boomerang-guide/"><u>[New] 2024 Approved  Viral Loop Creations  Instagram's Boomerang Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-achieve-social-media-excellence-with-ios-and-androids-best-planners-for-2024/"><u>[New] Achieve Social Media Excellence with iOS & Android's Best Planners for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-comparing-reels-and-stories-whats-the-best-choice/"><u>[New] Comparing Reels & Stories  What's the Best Choice?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-capture-to-share-a-quick-guide-to-instagram-video-uploads-on-desktop/"><u>[New] From Capture to Share  A Quick Guide to Instagram Video Uploads on Desktop</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-see-who-unfollowed-you-on-instagram/"><u>[New] In 2024, How to See Who Unfollowed You On Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-key-role-of-image-quality-in-generating-clicks-on-youtube-videos/"><u>[New] The Key Role of Image Quality in Generating Clicks on YouTube Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-pathway-to-perfection-a-pro-guide-to-instagram-photos/"><u>[New] The Pathway to Perfection  A Pro Guide to Instagram Photos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-top-10-hashtag-trackers-on-facebook-twitter-and-instagram-networks/"><u>[New] Top 10 Hashtag Trackers on Facebook, Twitter & Instagram Networks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-transform-your-visual-content-on-instagram-using-these-6-tools-for-2024/"><u>[New] Transform Your Visual Content on Instagram Using These 6 Tools for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-instagram-stories-download-crafting-strategies-for-2024/"><u>[New] Unlocking Instagram Stories  Download, Crafting Strategies for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-100-instagram-captions-to-show-yourself-to-the-world-filmora-for-2024/"><u>[Updated] 100 Instagram Captions to Show Yourself to the World - Filmora for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-assessing-igtv-content-performance-levels/"><u>[Updated] 2024 Approved  Assessing IGTV Content Performance Levels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-avoiding-unwanted-accounts-on-insta/"><u>[Updated] 2024 Approved  Avoiding Unwanted Accounts on Insta</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-captivating-creations-the-process-of-making-popular-video-memes/"><u>[Updated] 2024 Approved  Captivating Creations  The Process of Making Popular Video Memes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-identify-10-shadowy-instagram-story-observers/"><u>[Updated] 2024 Approved  Identify 10 Shadowy Instagram Story Observers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-inside-instagrams-maximum-video-restriction-policy/"><u>[Updated] 2024 Approved  Inside Instagram's Maximum Video Restriction Policy</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-the-art-of-secretive-insta-story-consumption/"><u>[Updated] 2024 Approved  Mastering the Art of Secretive Insta Story Consumption</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-navigating-through-instagrams-new-trends/"><u>[Updated] 2024 Approved  Navigating Through Instagram's New Trends</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-techniques-for-more-watches-on-your-insta-vids/"><u>[Updated] 2024 Approved  Techniques for More Watches on Your Insta Vids</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-complete-manual-to-mobile-igtv-video-acquisition/"><u>[Updated] 2024 Approved  The Complete Manual to Mobile IGTV Video Acquisition</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-tiktok-feasts-current-favorites-explored/"><u>[Updated] 2024 Approved  TikTok Feasts  Current Favorites Explored</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-5-best-apps-to-watch-instagram-stories-anonymously/"><u>[Updated] 5 Best Apps to Watch Instagram Stories Anonymously</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-8-most-popular-instagram-after-effects-packs-for-2024/"><u>[Updated] 8 Most Popular Instagram After Effects Packs for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-instagram-content-with-visual-flair/"><u>[Updated] Crafting Instagram Content with Visual Flair</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-discovering-the-hottest-templates-for-social-media-vfx/"><u>[Updated] Discovering the Hottest Templates for Social Media VFX</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-effortless-preservation-of-your-loved-instagram-reels-for-2024/"><u>[Updated] Effortless Preservation of Your Loved Instagram Reels for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-go-global-quickly-optimal-tags-to-escalate-your-youtube-snippets-for-2024/"><u>[Updated] Go Global Quickly  Optimal Tags to Escalate Your YouTube Snippets for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-amazon-prime-videos-social-stardom-on-twitter/"><u>[Updated] In 2024, Amazon Prime Video's Social Stardom on Twitter</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-upload-a-video-to-instagram-from-a-desktop/"><u>[Updated] In 2024, How to Upload a Video to Instagram From a Desktop</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-metrics-mastery-gain-more-followers/"><u>[Updated] In 2024, Instagram Metrics Mastery - Gain More Followers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-master-the-art-of-organizing-group-conversations-on-skype-irrespective-of-your-systems-os/"><u>[Updated] In 2024, Master the Art of Organizing Group Conversations on Skype, Irrespective of Your System's OS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-images-10-instagram-enhancing-apps-for-2024/"><u>[Updated] Mastering Images  10 Instagram Enhancing Apps for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-insta-exiting-a-step-by-step-guide/"><u>[Updated] Mastering Insta Exiting  A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-tips-for-picture-perfect-posts/"><u>[Updated] Mastering Instagram  Tips for Picture-Perfect Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-the-art-of-ignoring-ig-suggestions/"><u>[Updated] Mastering the Art of Ignoring IG Suggestions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-star-studded-stories-the-ultimate-guide-to-3-instagram-highlights/"><u>[Updated] Star-Studded Stories  The Ultimate Guide to 3 Instagram Highlights</u></a></li>
+<li><a href="https://video-capture.techidaily.com/10-excellent-web-based-screen-capture-solutions-for-2024/"><u>10 Excellent Web-Based Screen Capture Solutions for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-insight-into-excellence-a-detailed-guide-to-mastering-vivacut-editing/"><u>2024 Approved  Insight Into Excellence  A Detailed Guide to Mastering VivaCut Editing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-mystery-of-non-existent-videos-insight-into-fb-feed-absence/"><u>2024 Approved  The Mystery of Non-Existent Videos  Insight Into FB Feed Absence</u></a></li>
+<li><a href="https://windows11.techidaily.com/arcade-mode-for-window-users-key-fixes-ahead/"><u>Arcade Mode for Window Users: Key Fixes Ahead!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/diy-techniques-transforming-smartphones-into-webcams-for-2024/"><u>DIY Techniques  Transforming Smartphones Into Webcams for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/gaining-financial-power-secrets-to-thriving-as-a-tiktok-creator-for-2024/"><u>Gaining Financial Power  Secrets to Thriving as a TikTok Creator for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/getting-started-with-nvidia-driver-setup-and-installation-for-your-surface-book-device/"><u>Getting Started with NVIDIA Driver Setup and Installation for Your Surface Book Device</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-asus-rog-phone-7-ultimate-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Asus ROG Phone 7 Ultimate Quickly? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-install-and-update-sas-software-in-windows-10-8-or-7/"><u>How to Install and Update SAS Software in Windows 10, 8 or 7</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-tackle-destiny-2s-broccoli-glitch-with-a-2024-update-solution/"><u>How to Tackle Destiny 2'S Broccoli Glitch with a 2024 Update Solution</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-s18-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo S18 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-fbs-look-back-feature-edit-tutorial-for-2024/"><u>Mastering FB's Look Back Feature  Edit Tutorial for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-vs-virtual-reality-exploring-6-diverging-paradigms/"><u>Metaverse Vs. Virtual Reality: Exploring 6 Diverging Paradigms</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-best-video-editing-software-for-mac-similar-to-pinnacle-studio-for-2024/"><u>New Best Video Editing Software for Mac Similar to Pinnacle Studio for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/no-more-glue-techniques-to-free-tiktok-video-from-stickers-for-2024/"><u>No More Glue  Techniques to Free TikTok Video From Stickers for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-tab-s3-does-it-hold-up-against-new-competitors/"><u>Samsung Galaxy Tab S3: Does It Hold Up Against New Competitors?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solutions-for-critical-dev-errors-in-call-of-duty-modern-warfare-and-warzone/"><u>Solutions for Critical Dev Errors in Call of Duty: Modern Warfare & Warzone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-boundaries-of-ai-comprehension-insights-into-chatgptebilities/"><u>The Boundaries of AI Comprehension: Insights Into ChatGPT'ebilities</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-techniques-to-pen-convincing-proposals-leveraging-the-power-of-chatgpt/"><u>The Ultimate Techniques to Pen Convincing Proposals Leveraging the Power of ChatGPT</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-7-essential-color-correction-techniques/"><u>Top 7 Essential Color Correction Techniques</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-secret-for-instantaneous-deletion-of-youtube-feedbacks-for-2024/"><u>Unveiling the Secret for Instantaneous Deletion of Youtube Feedbacks for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-filmmaking-for-all-7-accessible-software-for-low-budget-productions/"><u>Updated 2024 Approved Filmmaking for All 7 Accessible Software for Low-Budget Productions</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-list-of-free-stock-image-websites-for-2024/"><u>Updated The Ultimate List of Free Stock Image Websites for 2024</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
