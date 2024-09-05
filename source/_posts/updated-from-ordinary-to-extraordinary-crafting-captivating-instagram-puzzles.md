@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Ordinary to Extraordinary  Crafting Captivating Instagram Puzzles\""
-date: 2024-08-26T21:54:15.419Z
-updated: 2024-08-27T21:54:15.419Z
+date: 2024-09-04T14:51:40.293Z
+updated: 2024-09-05T14:51:40.293Z
 tags:
   - ai video
   - ai instagram
@@ -66,9 +66,6 @@ If you want to make your Instagram profile look creative and artistically driven
 
 ![ripped ig puzzle feed](https://images.wondershare.com/filmora/article-images/2021/ripped-ig-puzzle-feed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _More info:_ [__elements.envato.com_](https://elements.envato.com/ripped-instagram-puzzle-DA8NVGD)
 
 #### 2.Color Contrasting Puzzle Theme
@@ -77,9 +74,6 @@ For all those who would like to instantly catch the attention of their audience,
 
 ![color contrasting puzzle feed](https://images.wondershare.com/filmora/article-images/2021/color-contrasting-puzzle-feed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _More info:_ [__free-psd-templates.com_](https://free-psd-templates.com/free-creative-social-media-template-for-instagram-in-psd/)
 
 #### 3.Minimalist Puzzle Feed Template for Instagram
@@ -88,6 +82,12 @@ Let’s be honest, there are times when the overall layout of the theme can take
 
 ![minimalist ig puzzle feed](https://images.wondershare.com/filmora/article-images/2021/minimalist-ig-puzzle-feed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _More info:_ [__behance.net_](https://www.behance.net/gallery/86999393/Free-Instagram-Template)
 
 #### 4.Creative Fashion Puzzle Template for Instagram
@@ -96,6 +96,12 @@ Are you a fashion influencer or a lifestyle blogger who would like to level up y
 
 ![fashion puzzle template ig](https://images.wondershare.com/filmora/article-images/2021/fashion-puzzle-template-ig.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _More info:_ [__free-psd-templates.com_](https://free-psd-templates.com/free-psd-instagram-fashion-template/)
 
 #### 5.Lala Free Puzzle Template
@@ -105,12 +111,30 @@ Lastly, this would be an all-in-one template that you can readily use to spark u
 ![lala puzzle template](https://images.wondershare.com/filmora/article-images/2021/lala-puzzle-template.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 _More info:_ [__pixelbuddha.net_](https://pixelbuddha.net/social/lala-puzzle-instagram-templates)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: How to Make an Instagram Puzzle Feed Instantly via Canva?
 
@@ -131,7 +155,16 @@ This will simply open a new canvas on your interface so that you can add all kin
 ![add grids to puzzle feed](https://images.wondershare.com/filmora/article-images/2021/add-grids-to-puzzle-feed.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 3: Add Elements and Photos to your Grid**
 
@@ -143,15 +176,24 @@ Following the same approach, you can find all kinds of elements on the sidebar t
 
 ![add photo to grid](https://images.wondershare.com/filmora/article-images/2021/add-photo-to-grid.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 4: Split and Post your Photos on Instagram**
 
 That’s it! Once you have worked on the entire grid, you can go to the Export button and save the entire grid image on your system. Later, you can use any free solution (like Pine Tools) to split the grid into individual 1080x1080 photos for your Instagram feed.
 
 ![split grid ig puzzle](https://images.wondershare.com/filmora/article-images/2021/split-grid-ig-puzzle.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 In this way, you can easily explore your creative side to make all kinds of puzzle feeds for Instagram via Canva.
 
 ## Part 5: Effective Instagram Puzzle Feed Ideas
@@ -170,15 +212,24 @@ If you have just started with a puzzle theme on Instagram, then be consistent an
 
 Don’t go with any free or paid Instagram puzzle feed just because it looks appealing. You should consider the overall theme of your brand or personal account. The template should reflect the idea of your business. For instance, luxury brands can go with bold colors while fashion influencers can have some contrasting gradients on their template.
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Conclusion
 
 I’m sure that after reading this guide, you would be able to pick the perfect puzzle feed for your Instagram account. As you can see, I have listed some readily available Instagram puzzle feed templates (free download) options. Besides that, I have also provided a solution on how to create a puzzle feed for Instagram on Canva. You can go through these Instagram puzzle feed ideas and spark up your creativity to have a unique presence on the social media platform as well.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
