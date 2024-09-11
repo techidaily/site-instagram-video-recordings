@@ -1,7 +1,7 @@
 ---
 title: "[New] Quick Tips for Editing IGTV Content to Stand Out"
-date: 2024-09-04T14:51:46.946Z
-updated: 2024-09-05T14:51:46.946Z
+date: 2024-09-10T01:55:57.131Z
+updated: 2024-09-11T01:55:57.131Z
 tags:
   - ai video
   - ai instagram
@@ -29,19 +29,75 @@ A **title of a video and its description** can often be the reason why someone w
 
 You may also like: [8 Best Popular Instagram After Effects Templates](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## How to Add Titles and Descriptions to Videos You’re Uploading to IGTV?
 
 Regardless of the device, you’re using to upload a video to your IGTV account, you will be asked to give a title to the video and to add a description. The video’s title **can’t have more than 75 characters**, while the **description can’t exceed the 2200-character limit** and these constrain are the same if you are **[uploading a video to IGTV from web, Instagram or IGTV app](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/edit-igtv-title-description.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **After granting the IGTV access to the videos stored on your phone’s camera roll** you will be able to **add a cover photo, choose a title or write a description of the video**. You don’t have to be a social media expert in order to know that **the title should tell your audience what the video is about**. The **description of an IGTV video can be a mini blog post** that tells the story of a video or conveys important messages related to the topic of a video. Furthermore, you can add **clickable mentions of other IGTV users** or up to **30 searchable hashtags** to improve the visibility of your video. You can also **include links to your podcast, Facebook page, YouTube channel or your website** so that the viewers can find out more about the video’s topic. When you’re done, just click or tap on the **Post button** and the video you shared will contain all the information you added to it.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to Edit IGTV Video Descriptions and Titles After You Upload Them?
 
 Upon posting the video you can see the title by simply viewing the video in the full-screen mode. Just **tap on the center of the video** to start viewing it in full screen and **the title will be displayed in the left corner of the video**. Tap on the **drop-down arrow** next to the video’s title if you want to view the video’s description.
 
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/change-igtv-video-title-description.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Editing titles, however, is only possible from a **web browser**, because the IGTV and Instagram apps still don’t offer this option. Go to your IGTV channel and **click on a video** you’d like to edit and then click on **the three-dot icon**. Select **the Edit Video option** from the menu and proceed to edit the video’s title by either clicking on the **Change Title or the Change Description** option. Don’t forget to click on the **Save button** to confirm the adjustments you’ve just made, and the text displayed in the **Title and Description boxes** will be automatically updated.
 
@@ -53,7 +109,35 @@ Besides add the Titles and Description for the IGTV videos when uploading, you c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Shanoon Cox
 
@@ -112,15 +196,3 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

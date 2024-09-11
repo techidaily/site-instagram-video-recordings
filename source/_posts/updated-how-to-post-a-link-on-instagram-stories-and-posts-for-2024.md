@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Post a Link on Instagram Stories and Posts for 2024"
-date: 2024-09-04T14:51:41.690Z
-updated: 2024-09-05T14:51:41.690Z
+date: 2024-09-10T01:55:52.200Z
+updated: 2024-09-11T01:55:52.200Z
 tags:
   - ai video
   - ai instagram
@@ -21,6 +21,20 @@ thumbnail: https://thmb.techidaily.com/d73b1ab39f29e2cca73b5589c07d89e3cba6a2b83
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -32,6 +46,20 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
  Here are the top solutions to understand how to post a link on Instagram and gain the best exposure among your counterparts.
 
  You can add a clickable link to your Instagram post by putting a link on your profile (bio), running a promotion, and [Instagram Stories](https://tools.techidaily.com/wondershare/filmora/download/). With the detailed processes, we take you through every method.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to post a link on Instagram
 
@@ -55,12 +83,6 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 **Step 3** – Once the URL is incorporated, enjoy editing your Story with filters, stickers, text and then tap 'Next'. It is important to add a call to action here. So, you can mention 'Swipe up to know more', 'See more', 'Explore' etc. to guide the users.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Section 2: Add a link to main post
 
  You can add a link to your Instagram post, but the only restraint is, it's not clickable. Unless you pay for it, there is no way you can officially add a link to your Instagram photo. You can create paid promotions, in order to access the link posting services with your Instagram main post that would lead to a product page and enable call to action. It is possible to advertise and boost your post, tracks analytics, and links email/phone through the advertising platform of Instagram, without spending much. For this, your account needs to be a business account.
@@ -71,22 +93,38 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-0.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 **Step 3** – You need to click 'Continue' to move forward, in order to make the profile a business one.
 
 **Step 4** \- Browse any picture in your profile and click the blue color 'Promotion' button to get diverted to 'Facebook'. Add a link there and checkout with payment.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Section 3: Add a link in bio
 
  Adding a link to your profile is the traditional way of how to post a link on Instagram without any extra charge. In this case, when you post a new picture, you need to mention 'Link in bio' under the description section, so that the audience comes to the main page of your profile and visit the clickable link found there. Though, you need to always guide the viewers to visit your profile's main page in order to browse the latest updated URL to your product or service page. It's important to give the CTA – call to action, no matter which way you post your link in Instagram.
@@ -95,28 +133,38 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-2.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 **Step 1** – Post a picture on Instagram and under the description section mention 'Link in bio' and upload it.
 
 **Step 2** – Under the profile description part, update the 'URL' and then save it.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Benefits of using links for your Instagram
 
  After going through the varied range of options available online to brand your website using Instagram, it's time to analyze the benefits of posting a link in your profile. Here is a sneak peek.
@@ -130,12 +178,6 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

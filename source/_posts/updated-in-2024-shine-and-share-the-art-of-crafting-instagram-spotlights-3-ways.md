@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Shine and Share  The Art of Crafting Instagram Spotlights (3 Ways)\""
-date: 2024-09-04T14:51:38.590Z
-updated: 2024-09-05T14:51:38.590Z
+date: 2024-09-10T01:55:49.245Z
+updated: 2024-09-11T01:55:49.245Z
 tags:
   - ai video
   - ai instagram
@@ -21,6 +21,20 @@ thumbnail: https://thmb.techidaily.com/3dd5b17c533ab88ed9cc0f3b00c7a2aa3b7c864b4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -35,6 +49,26 @@ Once the active story has been selected, you will find an option at the bottom o
 
 ![ Instagram Highlight](https://images.wondershare.com/filmora/article-images/create-instagram-highlight-from-active-story.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## How to Create A Highlight on Instagram From an Archived Story?
 
 Creating a highlight from an archived Story follows a similar process. Simply go to your profile and tap on the story highlights below your bio. Tap on the plus icon to access the new Highlight option. Click on the stories which you want to have included in your new highlight. You can have stories in multiple highlights.
@@ -43,14 +77,22 @@ Tap the **Edit Cover** and choose the graphic for your highlight then enter a na
 
 ![ add Instagram Highlight](https://images.wondershare.com/filmora/article-images/add-highlight-instagram-edit-cover.jpg)
 
-Note that although Instagram is available on desktop, creating highlights should be created on your mobile device. PC desktops do not allow you to create highlights from a desktop. Highlights created on your mobile device will appear on your desktop profile underneath your bio.
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+Note that although Instagram is available on desktop, creating highlights should be created on your mobile device. PC desktops do not allow you to create highlights from a desktop. Highlights created on your mobile device will appear on your desktop profile underneath your bio.
+
 ## How to Add More Stories in A Current Highlight?
 
 If you find that a certain highlight is receiving substantial traffic, you may wish to add content to it. Appropriately, highlights which are not receiving the numbers desired can be edited with new stories. To edit your highlights is remarkably similar to how to make a highlight on Instagram. Simply hold down your finger on the highlight under your profile. Chose the **Edit Highlight** option. Click on the stories which you wish to add or remove from your highlight. You can also change the name or the graphic while in edit mode. Once you are satisfied with the stories in the highlight click or tap on the add/done option.
@@ -59,18 +101,20 @@ It is advised that you choose to edit your highlights as needed rather than crea
 
 ![ add more stories to Instagram Highlight](https://images.wondershare.com/filmora/article-images/edit-highlight-on-instagram.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+
+
+
 ## How to Add Highlights to Instagram Profile?
 
 Once you have created a highlight, that highlight will appear on your profile. If you have not created a highlight yet, you will need to create your first highlight from a story for you to see anything on your profile. After the first highlight has been made, you can create additional highlights and name them accordingly simply by clicking the new button.
@@ -79,18 +123,20 @@ If a highlight does not show up on your profile, check that you have a unique na
 
 ![  Instagram Highlight Profile](https://images.wondershare.com/filmora/article-images/instagram-highlight-profile.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+
+
+
 ## How to Use Highlights and Story Links to Increase Conversions?
 
 Generally, stories disappear after 24 hours if they are just posted to your profile. The ability to create highlights puts the stories into the profile until the highlight is deleted using the methods previously mentioned. If you happen to forget to add a story to your highlights within 24 hours, you can still access the story in your archives. Instagram automatically archives stories, meaning that the content you wish to save for a later date can be kept in the archive until you wish to put that material into a highlight.
@@ -109,12 +155,20 @@ By following these simple methods of how to make a highlight on Instagram, wheth
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

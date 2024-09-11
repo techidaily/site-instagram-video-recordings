@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Simplified Guide  Uploading URLs to Instagram Media\""
-date: 2024-08-20T03:47:40.355Z
-updated: 2024-08-21T03:47:40.355Z
+date: 2024-09-10T01:55:57.804Z
+updated: 2024-09-11T01:55:57.804Z
 tags:
   - ai video
   - ai instagram
@@ -21,6 +21,20 @@ thumbnail: https://thmb.techidaily.com/2eefe00fc71984145735604d7f6409f58eabe8499
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -33,6 +47,20 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
  You can add a clickable link to your Instagram post by putting a link on your profile (bio), running a promotion, and [Instagram Stories](https://tools.techidaily.com/wondershare/filmora/download/). With the detailed processes, we take you through every method.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## How to post a link on Instagram
 
  So, you are keen to understand how to post a link on Instagram in detail. Worry not! In this section, we are discussing each of the methods to share links on Instagram and your life gets simple.
@@ -41,11 +69,39 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 * [Add a link to main post](#part2)
 * [Add a link in bio](#part3)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Section 1: Add a link to Instagram Stories – for verified accounts or business profiles
 
  The first method in this segment is adding a link to Instagram through Instagram Stories. The main point here is, one needs to have a verified account by Instagram or a [business profil](https://tools.techidaily.com/wondershare/filmora/download/) with at least 10000 followers. Without either of them, it is not possible to share a link with call to action.
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-1.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  You need to be very popular in order to get your account verified by Instagram to avail this opportunity. It's a big thing to get that, unless you are a public figure. Alternatively, you can just have a text overlay that displays your URL, though, it is not clickable. Future updates might support sharing links on Instagram Stories for all.
 
@@ -55,9 +111,6 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 **Step 3** – Once the URL is incorporated, enjoy editing your Story with filters, stickers, text and then tap 'Next'. It is important to add a call to action here. So, you can mention 'Swipe up to know more', 'See more', 'Explore' etc. to guide the users.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Section 2: Add a link to main post
 
  You can add a link to your Instagram post, but the only restraint is, it's not clickable. Unless you pay for it, there is no way you can officially add a link to your Instagram photo. You can create paid promotions, in order to access the link posting services with your Instagram main post that would lead to a product page and enable call to action. It is possible to advertise and boost your post, tracks analytics, and links email/phone through the advertising platform of Instagram, without spending much. For this, your account needs to be a business account.
@@ -68,16 +121,30 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-0.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 **Step 3** – You need to click 'Continue' to move forward, in order to make the profile a business one.
 
 **Step 4** \- Browse any picture in your profile and click the blue color 'Promotion' button to get diverted to 'Facebook'. Add a link there and checkout with payment.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Section 3: Add a link in bio
 
  Adding a link to your profile is the traditional way of how to post a link on Instagram without any extra charge. In this case, when you post a new picture, you need to mention 'Link in bio' under the description section, so that the audience comes to the main page of your profile and visit the clickable link found there. Though, you need to always guide the viewers to visit your profile's main page in order to browse the latest updated URL to your product or service page. It's important to give the CTA – call to action, no matter which way you post your link in Instagram.
@@ -86,16 +153,30 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 1** – Post a picture on Instagram and under the description section mention 'Link in bio' and upload it.
 
 **Step 2** – Under the profile description part, update the 'URL' and then save it.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Benefits of using links for your Instagram
 
  After going through the varied range of options available online to brand your website using Instagram, it's time to analyze the benefits of posting a link in your profile. Here is a sneak peek.
@@ -109,9 +190,6 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
