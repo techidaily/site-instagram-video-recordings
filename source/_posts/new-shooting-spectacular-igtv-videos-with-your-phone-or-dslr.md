@@ -1,7 +1,7 @@
 ---
 title: "[New] Shooting Spectacular IGTV Videos with Your Phone or DSLR"
-date: 2024-09-10T01:55:52.494Z
-updated: 2024-09-11T01:55:52.494Z
+date: 2024-09-11T04:50:23.224Z
+updated: 2024-09-17T05:21:44.971Z
 tags:
   - ai video
   - ai instagram
@@ -15,65 +15,17 @@ keywords: "Mobile IGTV Shooting,DIY PhotoVideos,DSLR VideoTutorials,StunningICTV
 thumbnail: https://thmb.techidaily.com/647ef78b4d08f0529cf98c1ddda37990b536ba3daaeb866103686a0f1d6cb404.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Shooting Spectacular IGTV Videos with Your Phone or DSLR
 
 # How to Shoot IGTV Videos With Smartphone/DLSR Cameras?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Record IGTV Videos With a Smartphone?
 
@@ -87,20 +39,6 @@ The type of video you’re trying to create determines which pieces of equipment
 
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Shoot IGTV Videos With a DSLR Camera?
 
 Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
@@ -113,39 +51,11 @@ Shooting videos on DSLR cameras also mean that you need access to a **video edit
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Conclusion**
 
 You don’t have to be a professional in order to record an IGTV video, but you still need to have at least basic knowledge about how cameras work and how you can use them to create vertical videos. Do you use a DSLR camera or Smartphone to record IGTV videos? Which one do you like using more? Leave a comment and lets us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -153,49 +63,37 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-exploring-innovative-sequencing-with-gopros-burst-feature/"><u>[New] Exploring Innovative Sequencing with GoPro's Burst Feature</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-boomerang-on-instagram-create-addictive-loop-videos-on-ig/"><u>[New] In 2024, Boomerang on Instagram  Create Addictive Loop Videos on IG</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-download-youtube-audio-safely-and-legally-in-3-ways/"><u>[New] In 2024, Download Youtube Audio  Safely & Legally in 3 Ways</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-igtv-video-sharing-to-facebook-explained-in-3-ways/"><u>[New] In 2024, IGTV Video Sharing to Facebook Explained in 3 Ways</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-laughter-and-tears-connected-10-memes-that-resonate-on-ig/"><u>[New] In 2024, Laughter and Tears Connected  10 Memes That Resonate On IG</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mobilizing-audience-engagement-igtv-and-fb-synchronization/"><u>[New] In 2024, Mobilizing Audience Engagement  IGTV and FB Synchronization</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-simplified-guide-uploading-urls-to-instagram-media/"><u>[New] In 2024, Simplified Guide  Uploading URLs to Instagram Media</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-streamlining-your-social-space-stop-following-steps/"><u>[New] In 2024, Streamlining Your Social Space  Stop Following Steps</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-instagram-adding-borders-to-your-photos-for-2024/"><u>[New] Mastering Instagram  Adding Borders to Your Photos for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-maximize-engagement-crafting-vids-with-3-powerful-descriptors-on-insta-for-2024/"><u>[New] Maximize Engagement  Crafting Vids with 3 Powerful Descriptors on Insta for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-perfecting-your-instagram-format-imovie-square-video-creation-for-2024/"><u>[New] Perfecting Your Instagram Format  IMovie Square Video Creation for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-guide-to-seamlessly-replace-backgrounds-on-instagram-for-2024/"><u>[New] Step-by-Step Guide to Seamlessly Replace Backgrounds on Instagram for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-top-10-mac-video-capture-tools-for-2024/"><u>[New] Top 10 Mac Video Capture Tools for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-essential-guide-leading-video-editing-tools-androidpc/"><u>[Updated] 2024 Approved  Essential Guide  Leading Video Editing Tools (Android/PC)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-key-principles-to-write-captivating-vlog-dialogues/"><u>[Updated] 2024 Approved  Key Principles to Write Captivating Vlog Dialogues</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-echoes-of-antiquity-tracing-the-footsteps-of-ancient-scribes-for-2024/"><u>[Updated] Echoes of Antiquity  Tracing the Footsteps of Ancient Scribes for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-8-free-instagram-to-mp4-converters-that-you-can-try-onlinewindowsmac/"><u>[Updated] In 2024, 8 Free Instagram to MP4 Converters That You Can Try [Online/Windows/Mac]</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-incorporating-melodic-essence-into-your-creative-videos-with-premiere-pro/"><u>[Updated] Incorporating Melodic Essence Into Your Creative Videos with Premiere Pro</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-infuse-style-in-vids-3-proven-methods-for-instagram-borders/"><u>[Updated] Infuse Style in Vids  3 Proven Methods for Instagram Borders</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagrams-time-travelling-method-master-reversal-of-videos/"><u>[Updated] Instagram's Time-Travelling Method  Master Reversal of Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-prime-tools-for-pro-video-creation-on-android-windows-for-2024/"><u>[Updated] Prime Tools for Pro Video Creation on Android, Windows for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-angle-artistry-guide-mastering-the-craft-of-video-spinning-on-social-sites/"><u>[Updated] The Angle Artistry Guide  Mastering the Craft of Video Spinning on Social Sites</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-metaverse-meetups-the-ultimate-friendly-list/"><u>2024 Approved  Metaverse Meetups  The Ultimate Friendly List</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/comprehensive-ratchet-and-clank-examination-reborn-for-a-new-generation/"><u>Comprehensive Ratchet & Clank Examination: Reborn for a New Generation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/comprehensive-tutorial-for-periscope-proficiency-for-2024/"><u>Comprehensive Tutorial for Periscope Proficiency for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-7-to-ipad-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 7 to iPad? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-y100-5g-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Vivo Y100 5G</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/perfect-posts-every-time-mastering-instagram-video-uploads-on-desktop-for-2024/"><u>Perfect Posts Every Time  Mastering Instagram Video Uploads on Desktop for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/raise-the-decibels-custom-sound-adjustments-on-a-windows-10-machine/"><u>Raise the Decibels: Custom Sound Adjustments on a Windows 10 Machine</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/the-insta-archivists-playbook-for-mastery-for-2024/"><u>The Insta Archivist's Playbook for Mastery for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/top-7-instagram-money-sources-a-comprehensive-guide/"><u>Top 7 Instagram Money Sources - A Comprehensive Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/ultimate-selection-premier-long-range-networking-devices/"><u>Ultimate Selection: Premier Long-Range Networking Devices</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/uncovering-10-discreet-instagram-story-aficionados/"><u>Uncovering 10 Discreet Instagram Story Aficionados</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-mac-video-editing-made-easy-download-splice-for-2024/"><u>Updated Mac Video Editing Made Easy Download Splice for 2024</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-flip-and-float-instagrams-guide-to-crafting-versatile-visual-content/"><u>[New] In 2024, Flip and Float Instagram's Guide to Crafting Versatile Visual Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-quick-tips-for-editing-igtv-content-to-stand-out/"><u>[New] Quick Tips for Editing IGTV Content to Stand Out</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-revolutionize-your-storytelling-6-superior-instagram-reel-apps/"><u>[New] Revolutionize Your Storytelling 6 Superior Instagram Reel Apps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-shave-seconds-off-your-youtube-video-submission/"><u>[Updated] How to Shave Seconds Off Your YouTube Video Submission</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-elevate-your-farm-adventure-uncovering-stardews-top-7-mods/"><u>[Updated] In 2024, Elevate Your Farm Adventure Uncovering Stardew's Top 7 Mods</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-igtv-to-fb-broadcast-optimal-sharing-strategies/"><u>[Updated] In 2024, IGTV to FB Broadcast Optimal Sharing Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-producing-shareable-videos-as-memes-on-social-media/"><u>[Updated] Step-by-Step Producing Shareable Videos as Memes on Social Media</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-the-secrets-to-social-media-success-with-igtv-hashtag-techniques/"><u>[Updated] Unlock the Secrets to Social Media Success with IGTV Hashtag Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-top-10-video-editing-apps-for-instagram-magic/"><u>[Updated] Unveiling the Top 10 Video Editing Apps for Instagram Magic</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/complete-look-into-razers-streaming-hardware/"><u>Complete Look Into Razer's Streaming Hardware</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-huawei-frp-by-drfone-android/"><u>Full Guide to Bypass Huawei FRP</u></a></li>
+<li><a href="https://win-able.techidaily.com/getting-the-best-performance-out-of-your-intel-hardware-driver-update-guide/"><u>Getting the Best Performance Out of Your Intel Hardware - Driver Update Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-comprehensive-guide-to-youtubes-subscription-advantages/"><u>In 2024, Comprehensive Guide to YouTube's Subscription Advantages</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-techniques-for-chapter-integration-in-youtube-content/"><u>In 2024, Innovative Techniques for Chapter Integration in YouTube Content</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/secure-superuser-access-for-applications-a-step-by-step-tutorial-for-windows-11-users/"><u>Secure Superuser Access for Applications: A Step-by-Step Tutorial for Windows 11 Users</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
