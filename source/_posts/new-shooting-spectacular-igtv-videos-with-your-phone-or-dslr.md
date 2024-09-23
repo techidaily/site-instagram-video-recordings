@@ -1,7 +1,7 @@
 ---
 title: "[New] Shooting Spectacular IGTV Videos with Your Phone or DSLR"
-date: 2024-09-11T04:50:23.224Z
-updated: 2024-09-17T05:21:44.971Z
+date: 2024-09-22T09:45:45.813Z
+updated: 2024-09-23T06:23:56.057Z
 tags:
   - ai video
   - ai instagram
@@ -39,6 +39,13 @@ The type of video you’re trying to create determines which pieces of equipment
 
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Shoot IGTV Videos With a DSLR Camera?
 
 Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
@@ -51,11 +58,37 @@ Shooting videos on DSLR cameras also mean that you need access to a **video edit
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 You don’t have to be a professional in order to record an IGTV video, but you still need to have at least basic knowledge about how cameras work and how you can use them to create vertical videos. Do you use a DSLR camera or Smartphone to record IGTV videos? Which one do you like using more? Leave a comment and lets us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -72,28 +105,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-flip-and-float-instagrams-guide-to-crafting-versatile-visual-content/"><u>[New] In 2024, Flip and Float Instagram's Guide to Crafting Versatile Visual Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-quick-tips-for-editing-igtv-content-to-stand-out/"><u>[New] Quick Tips for Editing IGTV Content to Stand Out</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-revolutionize-your-storytelling-6-superior-instagram-reel-apps/"><u>[New] Revolutionize Your Storytelling 6 Superior Instagram Reel Apps</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-shave-seconds-off-your-youtube-video-submission/"><u>[Updated] How to Shave Seconds Off Your YouTube Video Submission</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-elevate-your-farm-adventure-uncovering-stardews-top-7-mods/"><u>[Updated] In 2024, Elevate Your Farm Adventure Uncovering Stardew's Top 7 Mods</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-igtv-to-fb-broadcast-optimal-sharing-strategies/"><u>[Updated] In 2024, IGTV to FB Broadcast Optimal Sharing Strategies</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-producing-shareable-videos-as-memes-on-social-media/"><u>[Updated] Step-by-Step Producing Shareable Videos as Memes on Social Media</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-the-secrets-to-social-media-success-with-igtv-hashtag-techniques/"><u>[Updated] Unlock the Secrets to Social Media Success with IGTV Hashtag Techniques</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-top-10-video-editing-apps-for-instagram-magic/"><u>[Updated] Unveiling the Top 10 Video Editing Apps for Instagram Magic</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/complete-look-into-razers-streaming-hardware/"><u>Complete Look Into Razer's Streaming Hardware</u></a></li>
-<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-huawei-frp-by-drfone-android/"><u>Full Guide to Bypass Huawei FRP</u></a></li>
-<li><a href="https://win-able.techidaily.com/getting-the-best-performance-out-of-your-intel-hardware-driver-update-guide/"><u>Getting the Best Performance Out of Your Intel Hardware - Driver Update Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-comprehensive-guide-to-youtubes-subscription-advantages/"><u>In 2024, Comprehensive Guide to YouTube's Subscription Advantages</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-techniques-for-chapter-integration-in-youtube-content/"><u>In 2024, Innovative Techniques for Chapter Integration in YouTube Content</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/secure-superuser-access-for-applications-a-step-by-step-tutorial-for-windows-11-users/"><u>Secure Superuser Access for Applications: A Step-by-Step Tutorial for Windows 11 Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-key-techniques-to-optimize-igtv-video-dimensions/"><u>[New] Key Techniques to Optimize IGTV Video Dimensions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mapping-out-instagram-departures/"><u>[New] Mapping Out Instagram Departures</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-tinysnap-capture-assessment-with-variants-for-2024/"><u>[Updated] TinySnap Capture Assessment with Variants for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-deciphering-the-complexity-of-online-content-monetization/"><u>2024 Approved Deciphering the Complexity of Online Content Monetization</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/bypassing-the-no-audio-devices-connected-problem-a-guide-for-windows-1087-users-with-external-speakers-or-headphones/"><u>Bypassing the 'No Audio Devices Connected' Problem: A Guide for Windows 10/8/7 Users with External Speakers or Headphones</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-data-from-iphone-se-2022-using-stellar-data-recovery-for-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Data from iPhone SE (2022) using Stellar Data Recovery for iPhone? | Stellar</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-xs-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone XS to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/quick-and-easy-conducting-instagram-stories-polls-today-for-2024/"><u>Quick & Easy Conducting Instagram Stories Polls Today for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ely-download-your-youtube-playlist-at-any-time/"><u>Securely Download Your YouTube Playlist at Any Time</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/techniques-for-finding-original-images-in-instagram-posts-for-2024/"><u>Techniques for Finding Original Images in Instagram Posts for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transcription-mastery-for-office-productivity-using-microsoft-words-voice-recognition-features/"><u>Transcription Mastery for Office Productivity Using Microsoft Word's Voice Recognition Features</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-guide-fixing-crashes-and-enhancing-obs-on-windows-1110-whats-new/"><u>Ultimate Guide: Fixing Crashes and Enhancing OBS on Windows 11/10 - What's New</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

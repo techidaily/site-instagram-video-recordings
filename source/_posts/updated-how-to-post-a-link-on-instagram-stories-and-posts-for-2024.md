@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Post a Link on Instagram Stories and Posts for 2024"
-date: 2024-09-15T00:06:50.309Z
-updated: 2024-09-17T12:03:26.765Z
+date: 2024-09-19T05:42:19.114Z
+updated: 2024-09-22T20:47:04.770Z
 tags:
   - ai video
   - ai instagram
@@ -41,11 +41,25 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 * [Add a link to main post](#part2)
 * [Add a link in bio](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Section 1: Add a link to Instagram Stories – for verified accounts or business profiles
 
  The first method in this segment is adding a link to Instagram through Instagram Stories. The main point here is, one needs to have a verified account by Instagram or a [business profil](https://tools.techidaily.com/wondershare/filmora/download/) with at least 10000 followers. Without either of them, it is not possible to share a link with call to action.
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You need to be very popular in order to get your account verified by Instagram to avail this opportunity. It's a big thing to get that, unless you are a public figure. Alternatively, you can just have a text overlay that displays your URL, though, it is not clickable. Future updates might support sharing links on Instagram Stories for all.
 
@@ -65,6 +79,13 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-0.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3** – You need to click 'Continue' to move forward, in order to make the profile a business one.
 
 **Step 4** \- Browse any picture in your profile and click the blue color 'Promotion' button to get diverted to 'Facebook'. Add a link there and checkout with payment.
@@ -77,22 +98,15 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 1** – Post a picture on Instagram and under the description section mention 'Link in bio' and upload it.
 
 **Step 2** – Under the profile description part, update the 'URL' and then save it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Benefits of using links for your Instagram
@@ -123,17 +137,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ccelerated-sizing-youtube-content-for-macs/"><u>[New] Accelerated Sizing YouTube Content for MACs</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-discover-unmissable-adventures-in-sandbox-gaming-for-2024/"><u>[New] Discover Unmissable Adventures in Sandbox Gaming for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-fresh-content-massive-traction-secrets-to-a-thriving-insta-account-for-2024/"><u>[New] Fresh Content, Massive Traction Secrets to a Thriving Insta Account for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-keep-track-who-dropped-off-my-insta-feed/"><u>[New] In 2024, Keep Track Who Dropped Off My Insta Feed?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-the-art-of-instagram-video-bordering-for-2024/"><u>[New] Mastering the Art of Instagram Video Bordering for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-changing-tide-of-youtube-earnings/"><u>[New] The Changing Tide of YouTube Earnings</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-bring-charisma-to-your-stories-mastery-of-custom-emoji-use-on-instagram-for-2024/"><u>[Updated] Bring Charisma to Your Stories Mastery of Custom Emoji Use on Instagram for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-leading-mac-gif-recorders-the-ultimate-list/"><u>[Updated] In 2024, Leading Mac GIF Recorders The Ultimate List</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-interpreting-second-duration-from-mb-content/"><u>[Updated] Interpreting Second Duration From MB Content</u></a></li>
-<li><a href="https://blog-min.techidaily.com/ameliorez-et-reconstruisez-votre-contenu-video-en-4k8k10k-grace-a-winxvideo-ia/"><u>Améliorez Et Reconstruisez Votre Contenu Vidéo en 4K/8K/10K Grâce À WinxVideo IA</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/sharpening-gaming-experience-via-smart-models/"><u>Sharpening Gaming Experience via Smart Models</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-best-free-online-youtube-tag-extractors-for-2024/"><u>[New] 7 Best Free Online YouTube Tag Extractors for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-capture-and-share-with-confidence-a-step-by-step-guide-to-desktop-video-uploads-on-instagram-for-2024/"><u>[New] Capture & Share with Confidence A Step-by-Step Guide to Desktop Video Uploads on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-creating-engaging-instagram-highlight-tags/"><u>[New] In 2024, Creating Engaging Instagram Highlight Tags</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-igtv-broadcasts-to-facebook-explained/"><u>[New] In 2024, IGTV Broadcasts to Facebook Explained</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-top-25-social-stars-essential-instagram-icons/"><u>[New] In 2024, Top 25 Social Stars Essential Instagram Icons</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-milestone-mastery-breaking-into-the-millions/"><u>[New] In 2024, Youtube Milestone Mastery Breaking Into the Millions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-stardom-a-beginners-blueprint/"><u>[New] Instagram Stardom A Beginner's Blueprint</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-rise-through-the-instagram-rankings-fast-for-2024/"><u>[New] Rise Through the Instagram Rankings Fast for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unplugging-from-fbs-invasive-video-commercials/"><u>[Updated] 2024 Approved Unplugging From FB's Invasive Video Commercials</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-examining-the-elite-the-top-10-pc-vr-headsets-of-now/"><u>[Updated] Examining the Elite The Top 10 PC VR Headsets of Now</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-elevate-instagram-creativity-with-musical-elements/"><u>[Updated] In 2024, Elevate Instagram Creativity with Musical Elements</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-next-gen-escapades-upcoming-best-playstation-vr-games-to-try/"><u>[Updated] Next-Gen Escapades Upcoming Best PlayStation VR Games to Try</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-most-popular-instagram-story-filters-for-2024/"><u>[Updated] The Most Popular Instagram Story Filters for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-vanguard-visions-ultimate-laptop-choices-for-uhd-content-creators/"><u>[Updated] Vanguard Visions Ultimate Laptop Choices for UHD Content Creators</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-practices-for-stream-backgrounds/"><u>In 2024, Best Practices for Stream Backgrounds</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-play-8t-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor Play 8T by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-poco-f5-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Poco F5 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/quick-and-easy-your-guide-to-agentdeployment-on-agentgpt/"><u>Quick and Easy: Your Guide to AgentDeployment on AgentGPT</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/sifting-through-new-ios-features-are-you-a-candidate/"><u>Sifting Through New iOS Features: Are You a Candidate?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Shine and Share  The Art of Crafting Instagram Spotlights (3 Ways)\""
-date: 2024-09-11T23:11:18.546Z
-updated: 2024-09-17T05:53:38.827Z
+date: 2024-09-19T11:25:54.667Z
+updated: 2024-09-23T07:44:07.539Z
 tags:
   - ai video
   - ai instagram
@@ -35,6 +35,13 @@ Once the active story has been selected, you will find an option at the bottom o
 
 ![ Instagram Highlight](https://images.wondershare.com/filmora/article-images/create-instagram-highlight-from-active-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Create A Highlight on Instagram From an Archived Story?
 
 Creating a highlight from an archived Story follows a similar process. Simply go to your profile and tap on the story highlights below your bio. Tap on the plus icon to access the new Highlight option. Click on the stories which you want to have included in your new highlight. You can have stories in multiple highlights.
@@ -43,7 +50,21 @@ Tap the **Edit Cover** and choose the graphic for your highlight then enter a na
 
 ![ add Instagram Highlight](https://images.wondershare.com/filmora/article-images/add-highlight-instagram-edit-cover.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Note that although Instagram is available on desktop, creating highlights should be created on your mobile device. PC desktops do not allow you to create highlights from a desktop. Highlights created on your mobile device will appear on your desktop profile underneath your bio.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Add More Stories in A Current Highlight?
 
@@ -54,10 +75,10 @@ It is advised that you choose to edit your highlights as needed rather than crea
 ![ add more stories to Instagram Highlight](https://images.wondershare.com/filmora/article-images/edit-highlight-on-instagram.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Add Highlights to Instagram Profile?
@@ -86,13 +107,6 @@ By following these simple methods of how to make a highlight on Instagram, wheth
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -108,20 +122,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harness-the-full-potential-of-your-youtube-content-using-wmm/"><u>[New] 2024 Approved Harness the Full Potential of Your YouTube Content Using WMM</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-streamlining-long-videos-on-youtube-through-effective-chapter-management/"><u>[New] 2024 Approved Streamlining Long Videos on YouTube Through Effective Chapter Management</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-6-effective-ways-of-resizing-your-igtv-videos-for-2024/"><u>[New] 6 Effective Ways of Resizing Your IGTV Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-digital-footprints-on-instagram-effective-photo-watermarking-for-2024/"><u>[New] Digital Footprints on Instagram Effective Photo Watermarking for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-flip-and-float-instagrams-guide-to-crafting-versatile-visual-content/"><u>[New] Flip and Float Instagram's Guide to Crafting Versatile Visual Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-tailoring-your-video-for-optimal-instagram-impact/"><u>[New] In 2024, Tailoring Your Video for Optimal Instagram Impact</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unlock-the-secrets-to-social-media-success-with-igtv-hashtag-techniques/"><u>[New] In 2024, Unlock the Secrets to Social Media Success with IGTV Hashtag Techniques</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-step-by-written-by-john-smith-phd/"><u>[Updated] In 2024, Step-By Written by John Smith, PhD</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-transforming-brands-with-language-mastery-techniques/"><u>[Updated] In 2024, Transforming Brands with Language Mastery Techniques</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-g2-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo G2 Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/glad-grev-grev-till-sverige/"><u>Glad Grev: Grev Till Sverige</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-nokia-130-music-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Nokia 130 Music FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-depth-look-at-the-garmin-vivosmart-4-with-advanced-health-monitors/"><u>In-Depth Look at the Garmin Vivosmart 4 with Advanced Health Monitors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/notable-book-trailers-showcasing-stories/"><u>Notable Book Trailers Showcasing Stories</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/skyrocketing-subscribers-5-proven-strategies-for-igtv-success/"><u>Skyrocketing Subscribers 5 Proven Strategies for IGTV Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-cutting-ties-with-instagram-navigating-a-permanent-exit-strategy/"><u>[New] Cutting Ties with Instagram Navigating a Permanent Exit Strategy</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-financial-forecasts-in-focus-select-stock-youtube-channels-for-2024/"><u>[New] Financial Forecasts in Focus Select Stock YouTube Channels for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-how-to-upscalled-vids-on-instagram/"><u>[New] Step-by-Step How to Upscalled Vids on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-top-2-secrets-to-convert-instagram-videos-into-premium-mp4/"><u>[Updated] 2024 Approved Top 2 Secrets to Convert Instagram Videos Into Premium MP4</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unleashing-your-inner-instagram-reel-mastermind/"><u>[Updated] In 2024, Unleashing Your Inner Instagram Reel Mastermind</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/assessing-cloud-price-trends-and-economical-alternatives/"><u>Assessing Cloud Price Trends & Economical Alternatives</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/expert-techniques-for-swift-mac-screenshotting-using-shortcuts/"><u>Expert Techniques for Swift Mac Screenshotting Using Shortcuts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-honor-x8b-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Honor X8b to PC? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-proiphone-techniques-capturing-perfect-close-up-and-macro-shots/"><u>In 2024, Proiphone Techniques Capturing Perfect Close-Up and Macro Shots</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723125123567-master-tech-essentials-with-toms-gear-advice-find-the-perfect-components-now/"><u>Master Tech Essentials with Tom’s Gear Advice - Find the Perfect Components Now!</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-samsung-galaxy-z-fold-5-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Samsung Galaxy Z Fold 5 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-review-of-j5-tactical-prov1-flashlight-robust-construction-and-compact-glow/"><u>Unboxing and Review of J5 Tactical ProV1 Flashlight – Robust Construction & Compact Glow</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-top-video-editing-tools-for-professionals/"><u>Updated Top Video Editing Tools for Professionals</u></a></li>
 </ul></div>
 

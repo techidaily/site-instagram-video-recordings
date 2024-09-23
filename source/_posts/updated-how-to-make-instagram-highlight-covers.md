@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Make Instagram Highlight Covers"
-date: 2024-09-11T18:00:23.309Z
-updated: 2024-09-17T08:29:05.229Z
+date: 2024-09-21T19:03:25.688Z
+updated: 2024-09-23T05:31:43.004Z
 tags:
   - ai video
   - ai instagram
@@ -63,6 +63,13 @@ Canva provides fully customizable templates for highlight cover, you can drag on
 
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
 
 On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
@@ -85,6 +92,13 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
 Before you upload the highlight covers on Instagram, ensure you turn on the Archive feature. Go to your Instagram settings and select the story settings and then turn on the Save to Archive. This enables you to see your old stories without downloading them.
@@ -93,19 +107,6 @@ Before you upload the highlight covers on Instagram, ensure you turn on the Arch
 
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
 
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
 
 If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
@@ -113,10 +114,10 @@ If you have existing highlight covers, you can easily edit and change them. Go t
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: Tips for making better Instagram Highlight cover
@@ -143,6 +144,13 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -158,18 +166,25 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-understanding-and-executing-photo-gender-modification-online/"><u>[New] 2024 Approved Understanding and Executing Photo Gender Modification Online</u></a></li>
 <li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-when-is-the-best-time-to-post-on-instagram-the-ultimate-guide/"><u>[New] 2024 Approved When Is The Best Time to Post on Instagram - The Ultimate Guide</u></a></li>
 <li><a href="https://instagram-video-recordings.techidaily.com/new-a-closer-look-at-instagram-stories-beyond-the-screen-for-2024/"><u>[New] A Closer Look at Instagram Stories Beyond the Screen for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-image-ingenuity-optimal-apps-and-platforms-for-frames-to-photos/"><u>[New] Image Ingenuity Optimal Apps and Platforms for Frames to Photos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-instagram-verification-boost-your-following-with-these-6-secrets/"><u>[New] Mastering Instagram Verification Boost Your Following with These 6 Secrets</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-recording-the-next-level-of-play/"><u>[New] In 2024, Recording the Next Level of Play</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-victory-tackling-video-tribulations-head-on-for-2024/"><u>[New] Instagram Victory Tackling Video Tribulations Head-On for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-instant-melodic-livestreaming-on-iqiyi/"><u>[New] Instant Melodic Livestreaming on IQiYi</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-most-trending-templates-transforming-social-video/"><u>[New] The Most Trending Templates Transforming Social Video</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ultimate-ranking-of-8-swift-recorders/"><u>[New] Ultimate Ranking of 8 Swift Recorders</u></a></li>
 <li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-beyond-brand-promotion-real-insights-into-instagram-reels/"><u>[Updated] In 2024, Beyond Brand Promotion Real Insights Into Instagram Reels</u></a></li>
 <li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagrams-qanda-feature-beyond-the-basics/"><u>[Updated] Mastering Instagram's Q&A Feature Beyond the Basics</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Oppo A1 5G | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-reigning-titans-unveiling-reddits-ultimate-10-threads/"><u>2024 Approved Reigning Titans Unveiling Reddit's Ultimate 10 Threads</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/behind-the-scenes-crafting-a-movie-blueprint-for-2024/"><u>Behind the Scenes Crafting a Movie Blueprint for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-update-hid-keyboard-drivers-quick-simple-steps/"><u>Download & Update HID Keyboard Drivers: Quick, Simple Steps</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-16-from-xiaomi-13-ultra-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 16 from Xiaomi 13 Ultra to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/resolving-complete-disk-saturation-on-your-windows-10-machine-a-step-by-step-guide/"><u>Resolving Complete Disk Saturation on Your Windows 10 Machine: A Step-by-Step Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/the-ultimate-guide-to-flawless-remote-recording-experience/"><u>The Ultimate Guide to Flawless Remote Recording Experience</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-narrative-nuance-a-guide-to-crafting-compelling-film-dialogues/"><u>[Updated] Narrative Nuance A Guide to Crafting Compelling Film Dialogues</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-quicken-video-playback-on-instagram-apps/"><u>[Updated] Quicken Video Playback on Instagram Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-snicker-sonatas-top-10-humorous-hits/"><u>[Updated] Snicker Sonatas Top 10 Humorous Hits</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-tap-into-silence-disabling-recommended-content-on-ig-for-2024/"><u>[Updated] Tap Into Silence Disabling Recommended Content on IG for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-better-engagement-on-instagram-with-video-loops/"><u>[Updated] Unlock Better Engagement on Instagram With Video Loops</u></a></li>
+<li><a href="https://video-capture.techidaily.com/cam-repaired-obs-recovery-successful/"><u>Cam Repaired OBS Recovery Successful</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/elevate-your-ark-beyond-sanctuary-frames-per-second-in-pc-gaming-a-complete-guide/"><u>Elevate Your ARK: Beyond Sanctuary Frames Per Second in PC Gaming - A Complete Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/insta-zoom-mastery-in-and-out-for-clearer-selfies/"><u>Insta Zoom Mastery In and Out for Clearer Selfies</u></a></li>
+<li><a href="https://extra-information.techidaily.com/revolutionize-your-mini-pc-game-the-gem1n-pros-new-amd-7805hs-chip-miniscule-monitor-and-oculink-features-unveiled/"><u>Revolutionize Your Mini PC Game: The Gem1n Pro's New AMD 7805HS Chip, Miniscule Monitor & OCuLink Features Unveiled</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-microphone-issues-in-the-oculus-quest-2-a-step-by-step-guide/"><u>Solving Microphone Issues in the Oculus Quest 2: A Step-by-Step Guide</u></a></li>
 </ul></div>
 
