@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Spotlight on Stories  Crafting Three Effective Highlights for 2024\""
-date: 2024-09-17T04:13:41.237Z
-updated: 2024-09-23T01:00:17.202Z
+date: 2024-09-23T03:31:39.879Z
+updated: 2024-09-29T22:38:16.353Z
 tags:
   - ai video
   - ai instagram
@@ -35,6 +35,13 @@ Once the active story has been selected, you will find an option at the bottom o
 
 ![ Instagram Highlight](https://images.wondershare.com/filmora/article-images/create-instagram-highlight-from-active-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Create A Highlight on Instagram From an Archived Story?
 
 Creating a highlight from an archived Story follows a similar process. Simply go to your profile and tap on the story highlights below your bio. Tap on the plus icon to access the new Highlight option. Click on the stories which you want to have included in your new highlight. You can have stories in multiple highlights.
@@ -45,6 +52,19 @@ Tap the **Edit Cover** and choose the graphic for your highlight then enter a na
 
 Note that although Instagram is available on desktop, creating highlights should be created on your mobile device. PC desktops do not allow you to create highlights from a desktop. Highlights created on your mobile device will appear on your desktop profile underneath your bio.
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add More Stories in A Current Highlight?
 
 If you find that a certain highlight is receiving substantial traffic, you may wish to add content to it. Appropriately, highlights which are not receiving the numbers desired can be edited with new stories. To edit your highlights is remarkably similar to how to make a highlight on Instagram. Simply hold down your finger on the highlight under your profile. Chose the **Edit Highlight** option. Click on the stories which you wish to add or remove from your highlight. You can also change the name or the graphic while in edit mode. Once you are satisfied with the stories in the highlight click or tap on the add/done option.
@@ -54,17 +74,10 @@ It is advised that you choose to edit your highlights as needed rather than crea
 ![ add more stories to Instagram Highlight](https://images.wondershare.com/filmora/article-images/edit-highlight-on-instagram.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Add Highlights to Instagram Profile?
@@ -74,13 +87,6 @@ Once you have created a highlight, that highlight will appear on your profile. I
 If a highlight does not show up on your profile, check that you have a unique name for the highlight and that you have followed all of the steps needed to create the graphic, naming, and story selections properly. Remember it is best not to have too many highlights on your profile as this could cause confusion for the visitor.
 
 ![  Instagram Highlight Profile](https://images.wondershare.com/filmora/article-images/instagram-highlight-profile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Use Highlights and Story Links to Increase Conversions?
 
@@ -101,10 +107,10 @@ By following these simple methods of how to make a highlight on Instagram, wheth
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -120,5 +126,18 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-filigree-alterations/"><u>[New] Expert Filigree Alterations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-tips-for-efficient-music-integration-in-premiere-pro/"><u>[New] Expert Tips for Efficient Music Integration in Premiere Pro</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-exploring-the-difference-between-ig-reels-and-stories/"><u>[New] In 2024, Exploring the Difference Between IG Reels & Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-top-8-instagram-story-filters/"><u>[New] In 2024, Top 8 Instagram Story Filters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-blueprint-for-effective-use-of-audio-emojis/"><u>[New] The Ultimate Blueprint for Effective Use of Audio Emojis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-getting-more-from-instagram-videos-and-photos/"><u>[Updated] 2024 Approved Getting More From Instagram Videos & Photos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-secrets-of-flawless-video-capture-top-4-apps-for-pcmac-for-2024/"><u>[Updated] Secrets of Flawless Video Capture Top 4 Apps for PC/Mac for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/fixing-the-non-functional-hyperx-cloud-headset-mic-a-step-by-step-guide/"><u>Fixing the Non-Functional HyperX Cloud Headset Mic: A Step-by-Step Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Nokia G310? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-back-control-untag-on-facebook-photos/"><u>Taking Back Control: Untag on Facebook Photos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Oppo A78 5G | Dr.fone</u></a></li>
+</ul></div>
 
