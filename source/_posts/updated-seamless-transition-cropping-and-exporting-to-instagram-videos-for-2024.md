@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Seamless Transition  Cropping & Exporting to Instagram Videos for 2024\""
-date: 2024-09-10T01:55:58.855Z
-updated: 2024-09-11T01:55:58.855Z
+date: 2024-09-30T16:47:12.533Z
+updated: 2024-10-04T19:24:33.353Z
 tags:
   - ai video
   - ai instagram
@@ -15,45 +15,11 @@ keywords: "\"Instagram Video Export,Video Cropping Seamless,Smooth Crop-Export,E
 thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca424f0cd6791d36a2f65c9d0a1.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Seamless Transition: Cropping & Exporting to Instagram Videos
 
 # How to Crop and Export Videos to Instagram
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ##### Liza Brown
 
@@ -81,35 +47,7 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
@@ -131,20 +69,6 @@ Click on the Settings button and then set the Quality of the video to Best and s
 
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **2\. Portrait (4:3)**
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
@@ -161,27 +85,11 @@ The steps for exporting square videos are the same as the steps you need to take
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -189,3 +97,30 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-high-speed-top-8-screenshots-compilation/"><u>[New] High-Speed Top 8 Screenshots Compilation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-rotate-to-win-insta-tricks-for-video-transformation/"><u>[New] In 2024, Rotate to Win Insta-Tricks for Video Transformation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-crafting-igtv-content-with-multilingual-support/"><u>[Updated] 2024 Approved Crafting IGTV Content with Multilingual Support</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-amplify-and-modify-your-instagram-voice/"><u>[Updated] In 2024, How to Amplify and Modify Your Instagram Voice</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-ultimate-guide-to-stunning-ig-video-creation/"><u>[Updated] In 2024, The Ultimate Guide to Stunning IG Video Creation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-vloggers-verdict-youtube-vs-tiktok/"><u>[Updated] In 2024, Vlogger's Verdict Youtube Vs. TikTok</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-guide-to-turn-off-ig-predictions-for-2024/"><u>[Updated] The Guide to Turn Off IG Predictions for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-igtv-saved-iosandroid-techniques-and-tricks/"><u>2024 Approved IGTV Saved IOS/Android Techniques and Tricks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/a-straightforward-path-to-iphone-screen-capture-for-2024/"><u>A Straightforward Path to iPhone Screen Capture for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-joint-venture-campaigns-for-brands-on-video-platforms/"><u>In 2024, Joint Venture Campaigns for Brands on Video Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-rotate-videos-for-instagram-a-guide-for-desktop-and-mobile-users-alke/"><u>In 2024, Rotate Videos for Instagram A Guide for Desktop and Mobile Users Alke</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-art-of-live-action-sims-4-playback/"><u>In 2024, The Art of Live-Action Sims 4 Playback</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/optimize-your-films-a-mac-approach-to-instagram-shortening/"><u>Optimize Your Films A Mac Approach to Instagram Shortening</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/time-savers-screen-recording-on-instagrams-story/"><u>Time Savers Screen Recording on Instagram's Story</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
