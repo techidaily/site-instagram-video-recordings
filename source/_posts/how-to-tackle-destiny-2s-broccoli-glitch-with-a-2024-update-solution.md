@@ -1,7 +1,7 @@
 ---
 title: How to Tackle Destiny 2'S Broccoli Glitch with a 2024 Update Solution
-date: 2024-08-20T03:40:57.723Z
-updated: 2024-08-21T03:40:57.723Z
+date: 2024-10-09T22:44:54.310Z
+updated: 2024-10-10T20:54:26.661Z
 tags:
   - win11
   - win10
@@ -61,8 +61,12 @@ To check the specs of your PC:
  If your PC specs have been up to the mark but the broccoli error still occurs, please try**Fix 2** , below.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Fix 2: Update your device drivers
 
  Drivers are vital for the full functioning of your hardware devices. A wrong, outdated or corrupt driver could make your system unstable or even cause the whole system to crash. So you should always keep your drivers up-to-date. If you don’t have the time, patience or skills to update the driver manually, you can do it automatically with[](https://tools.techidaily.com/drivereasy/download/) **[Driver Easy](https://tools.techidaily.com/drivereasy/download/)**  .
@@ -75,24 +79,29 @@ To check the specs of your PC:
 2. Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://www.drivereasy.com/wp-content/uploads/2021/05/de-scan-6.1.png)
 3. Click the**Activate & Update** button next to the flagged device to automatically download and install the correct version of this driver.  
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Or click **Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (You’ll need the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  for this – when you select Update All, you’ll get a prompt to upgrade. If you’re not prepared to purchase the Pro version yet, Driver Easy provides a 7-day trial at no cost, granting access to all Pro features like fast downloads and easy installation. No charges will occur until after your 7-day trial period ends.)  
 ![](https://www.drivereasy.com/wp-content/uploads/2021/05/amd-graphics.png)
 4. Restart your computer for the change to take effect.
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Launch Destiny 2 and check to see if crashing issue has been resolved. If yes, then great! If the issue persists, please try **Fix 3** , below.
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Fix 3: Enable Vsync option in Game Settings
 
  VSync is a graphics technology designated to reduce syncing issues by matching the graphics processor’s frame rate with the monitor’s refresh rate. According to some players, enabling VSync has helped them mitigate the broccoli error crash in Destiny 2 games. You can try it to see if it works in your case.
@@ -104,6 +113,19 @@ The steps are pretty easy:
 3. In the left of the window, click the**Video** tab, then for the**Frame rate** item, select**On** ; for**Frame rate cap** , set the value to**72** .
 4. Apply the settings.
 5. Play Destiny 2 to see if you can play properly now, If it’s no joy, please head on to**Fix 4** , below.
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 4: Switch game mode
 
@@ -118,11 +140,24 @@ Here’s how to do it:
 1. On your keyboard, press the**Windows logo** key and type**settings** , then click on**Settings** as it pops up as a result.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/settings.png)
 2. In the pop-up window, click the**Gamings** category.  
+
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/gaming.png)
 3. In the left panel, click**Game Mode** , then switch the toggle for**Game Mode** to the opposite status.  
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/game-mode.png)
 4. Run Destiny 2 and see if the Broccoli crash error is solved. If it doesn’t happen anymore, then congrats! If it still persists. try**Fix 5** , below.
 
@@ -134,6 +169,13 @@ Here’s how to do it:
 3. Toggle off the Game Mode option to see if Broccoli crashes still. If so, toggle it on and see how Broccoli works.  
 ![](https://www.drivereasy.com/wp-content/uploads/2021/05/game-mode-on-off.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 5: Install all available Windows updates
 
  The Destiny 2 broccoli crashing error could be a vulnerability in your system. To rule out this as a possible cause, you could check on your system to see if there are any pending updates – if yes, you should let Windows install them all. After that, you can go on to check to see if the crashing issue is put to an end.
@@ -141,8 +183,12 @@ Here’s how to do it:
 Here are the steps:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### On Windows 10
 
 1. On your keyboard, press**the Windows logo key** and type**check for updates** , then click on**Check for updates** as it pops up as a matching result.  
@@ -150,14 +196,8 @@ Here are the steps:
 2. Click**Check for updates** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/cc.png)
 3. Wait a while for Windows to check and automatically install the updates for you.
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 4. Restart your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### On Windows 11
 
 1. On your keyboard, hit the**Windows** key, then type**check for update** s, then click C**heck for updates** .  
@@ -167,13 +207,7 @@ Here are the steps:
 ![](https://images.drivereasy.com/wp-content/uploads/2023/09/image-19.png)
 3. If there are available updates, Windows will automatically download them for you. Restart your computer for the update to take effect if needed.![](https://images.drivereasy.com/wp-content/uploads/2023/09/image-20.png)
 4. If there are_no_ available updates, you’ll see**You’re up to date** like this.![](https://images.drivereasy.com/wp-content/uploads/2023/09/image-21.png)
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Destiny 2 broccoli error still occurs? Please continue with**Fix 6** , below.
 
 ---
@@ -196,8 +230,6 @@ Here are the steps:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -205,4 +237,24 @@ Here are the steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-streamlining-your-approach-to-configuring-and-gauging-fb-instream-ads/"><u>[New] 2024 Approved Streamlining Your Approach to Configuring & Gauging FB Instream Ads</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-comprehensive-assessment-unveiling-du-recorders-features/"><u>[New] Comprehensive Assessment Unveiling Du Recorder's Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-filter-application-guide-tips-and-tricks/"><u>[New] Instagram Filter Application Guide - Tips & Tricks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unleash-potential-our-picks-for-the-most-inspiring-films/"><u>[New] Unleash Potential Our Picks for the Most Inspiring Films</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-get-paid-on-instagram-the-leading-money-making-strategies/"><u>[Updated] 2024 Approved Get Paid on Instagram The Leading Money-Making Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-spotting-instagrams-newly-deactivated-accounts/"><u>[Updated] 2024 Approved Spotting Instagram's Newly Deactivated Accounts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-power-of-persuasion-how-to-boost-instagram-post-reach/"><u>[Updated] 2024 Approved The Power of Persuasion How to Boost Instagram Post Reach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-navigating-the-truth-in-your-photos-an-instagram-selfie-audit/"><u>[Updated] In 2024, Navigating the Truth in Your Photos An Instagram Selfie Audit</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-steps-to-sign-in-with-google-meet-laptop-and-mobile/"><u>[Updated] Steps to Sign-In with Google Meet (Laptop & Mobile)</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-safe-user-facebooks-guide/"><u>Becoming a Safe User: Facebook's Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/integrating-smooth-crossfades-into-your-sound-design/"><u>Integrating Smooth Crossfades Into Your Sound Design</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-algorithm-boosting-instagram-engagement/"><u>Mastering the Algorithm Boosting Instagram Engagement</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/navigating-the-maze-mastering-inverted-visual-lookups-in-instagram-photos-for-2024/"><u>Navigating the Maze Mastering Inverted Visual Lookups in Instagram Photos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/professionalism-with-a-pixel-instagram-photo-watermarking-101/"><u>Professionalism with a Pixel Instagram Photo Watermarking 101</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-boosting-youtube-engagement-for-2024/"><u>The Ultimate Guide to Boosting YouTube Engagement for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unraveling-the-mystery-of-stalled-instagram-videos-for-2024/"><u>Unraveling the Mystery of Stalled Instagram Videos for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-the-mystery-why-windows-11-govt-ed-may-not-be-your-best-bet/"><u>Unveiling the Mystery: Why Windows 11 Govt. Ed. May Not Be Your Best Bet</u></a></li>
+</ul></div>
 

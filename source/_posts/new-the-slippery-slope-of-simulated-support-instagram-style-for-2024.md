@@ -1,7 +1,7 @@
 ---
 title: "[New] The Slippery Slope of Simulated Support, Instagram Style for 2024"
-date: 2024-09-28T01:22:28.010Z
-updated: 2024-10-05T06:05:55.446Z
+date: 2024-10-06T20:05:29.329Z
+updated: 2024-10-10T17:15:54.447Z
 tags:
   - ai video
   - ai instagram
@@ -49,13 +49,6 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 
  What do all these numbers mean? It means that if you were to buy likes, you would be arousing suspicion of brands who may want to hire you for sponsorship purposes. Say you are buying a lot of likes because they are cheaper to get than followers. If you have 15,000 followers and an engagement level of 6 or 7 percent, your account is suspicious.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Buying Fake Likes is a Black Hole
 
  It is so easy to think that you will be purchasing fake likes on Instagram for one or two uses. “I just want to promote a couple of my posts to gain exposure.” These are the words that every like buyer utters. A month later, they are furiously buying likes for every single post they put up on Instagram.
@@ -65,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 ![ins fake likes](https://images.wondershare.com/filmora/article-images/ins-rules.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Violation of Instagram Rules
@@ -79,6 +72,19 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 
  And many of the sites that offer like buying services get shut down, which instantly impacts the likes you get on your next posts. It can turn into a race of you buying more likes from other sellers, until they get shut down too.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Identify Accounts with Fake Likes
 
 ### 1\. Followers and Engagement Levels Are Off
@@ -88,13 +94,6 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
  But accounts that have multiple posts with engagement levels of 9 or 10 percent, or even higher, are immediately suspicious. It is not probable for an account to have such a high level of engagement without some like buying.
 
  Those who are insistent on buying likes will need to buy followers to match up the engagement levels with the numbers we mentioned above. But it is more hassle than it is worth!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Posts and Likes Do Not Match Up
 
@@ -111,10 +110,17 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 ![spam comment](https://images.wondershare.com/filmora/article-images/ins-spam-comment.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -140,24 +146,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-decode-insta-success-your-comprehensive-guide-to-understanding-user-insights/"><u>[New] 2024 Approved Decode Insta Success Your Comprehensive Guide to Understanding User Insights</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-shadowed-observers-playbook-engaging-with-instagram-stories-anonymously-free/"><u>[New] 2024 Approved The Shadowed Observer's Playbook Engaging with Instagram Stories Anonymously [Free]</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-create-awesome-instagram-videos-templates-and-tips/"><u>[New] How To Create Awesome Instagram Videos [Templates & Tips]</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unleash-creativity-premium-editors-for-mobile-and-desktop-oses/"><u>[New] In 2024, Unleash Creativity Premium Editors for Mobile & Desktop OSes</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-learn-how-to-utilize-telegrams-web-functionality-professionally/"><u>[New] Learn How To Utilize Telegram's Web Functionality Professionally</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-understanding-your-needs-for-a-precise-vimeo-subscription-level-for-2024/"><u>[New] Understanding Your Needs for a Precise Vimeo Subscription Level for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-youtube-video-archiving-made-simple-for-2024/"><u>[New] YouTube Video Archiving Made Simple for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-curate-engaging-content-with-top-igtv-editor-tools/"><u>[Updated] Curate Engaging Content with Top IGTV Editor Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-by-step-guide-to-stunning-instagram-videos/"><u>2024 Approved Step-by-Step Guide to Stunning Instagram Videos</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/action-footage-enhanced-top-mic-picks/"><u>Action Footage Enhanced Top Mic Picks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/enhancing-your-cv-with-ais-help-from-chatgpt/"><u>Enhancing Your CV with AI's Help From ChatGPT</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-making-the-most-of-your-multi-image-story-sessions-on-insta/"><u>In 2024, Making the Most of Your Multi-Image Story Sessions on Insta</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mastering-image-borders-in-instagram-photography/"><u>In 2024, Mastering Image Borders in Instagram Photography</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-windows-11-screenshots-discover-4-effective-approaches/"><u>Mastering Windows 11 Screenshots: Discover 4 Effective Approaches</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/optimize-your-gameplay-strategies-for-improving-frame-rates-and-minimizing-lag-in-watch-dogs-legion/"><u>Optimize Your Gameplay: Strategies for Improving Frame Rates and Minimizing Lag in Watch Dogs: Legion</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Lenovo ThinkPhone? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-reinstall-hardware-drivers-in-windows-11107-by-drivereasy-guide/"><u>Use Device Manager to reinstall hardware drivers in Windows 11/10/7</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/your-step-by-step-roadmap-for-instagrams-latest-feature-sharing-gifs/"><u>Your Step-by-Step Roadmap for Instagram's Latest Feature - Sharing GIFs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-covert-community-top-5-anonymous-viewers/"><u>[New] 2024 Approved The Covert Community Top 5 Anonymous Viewers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-what-lies-beneath-the-surface-of-instagrams-reels/"><u>[New] In 2024, What Lies Beneath the Surface of Instagram's Reels</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-professionals-playbook-mastering-live-video-sharing-on-fb-for-2024/"><u>[New] The Professional's Playbook Mastering Live Video Sharing on FB for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-complete-guide-to-inverted-footage-in-instagram/"><u>[Updated] In 2024, The Complete Guide to Inverted Footage in Instagram</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-nows-vr-tech-landscape/"><u>[Updated] Now’s VR Tech Landscape</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-subtitle-tips-for-instagram-tv-storytelling/"><u>[Updated] Subtitle Tips for Instagram TV Storytelling</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tips-and-tricks-erasing-unwanted-backdrops/"><u>[Updated] Tips and Tricks Erasing Unwanted Backdrops</u></a></li>
+<li><a href="https://win-answers.techidaily.com/cyberpunk-2077-update-a-guide-to-conquering-the-ongoing-black-screen-trouble/"><u>Cyberpunk 2077 Update: A Guide to Conquering the Ongoing Black Screen Trouble</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-hp-laserjet-p1006-printer-drivers-complete-guide/"><u>Download HP LaserJet P1006 Printer Drivers: Complete Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/from-text-to-talk-ai-breathing-life-into-prompts-and-commands/"><u>From Text to Talk: AI Breathing Life Into Prompts and Commands</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/how-to-record-youtube-videos-for-2024/"><u>How to Record YouTube Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-game-plan-to-trendsetting-video-content/"><u>In 2024, The Game Plan to Trendsetting Video Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-qanda-beyond-basic-usage-for-2024/"><u>Instagram Q&A Beyond Basic Usage for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/ninja-level-strategies-for-instagram-video-magic-for-2024/"><u>Ninja-Level Strategies for Instagram Video Magic for 2024</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-malfunctioning-drivers-with-windows-device-manager-on-windows-1110-by-drivereasy-guide/"><u>Use Device Manager to identify malfunctioning drivers with Windows Device Manager on Windows 11/10</u></a></li>
 </ul></div>
 

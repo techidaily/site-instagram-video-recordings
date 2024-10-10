@@ -1,7 +1,7 @@
 ---
 title: "\"[New] ShotSizeSavvy  Fine-Tuning Your Social Media Content for Instagram for 2024\""
-date: 2024-08-20T03:39:09.948Z
-updated: 2024-08-21T03:39:09.948Z
+date: 2024-10-06T21:17:02.593Z
+updated: 2024-10-10T22:09:51.376Z
 tags:
   - ai video
   - ai instagram
@@ -45,6 +45,13 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -52,6 +59,13 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 #### Instagram's Main Feed
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -77,13 +91,18 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -91,7 +110,18 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-igtvs-potential-secrets-to-attract-more-subscribers/"><u>[New] Unlocking IGTV's Potential Secrets to Attract More Subscribers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-slow-motion-magic-in-instagram-reels-for-2024/"><u>[New] Unlocking Slow Motion Magic in Instagram Reels for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-step-by-step-method-for-changing-your-instagram-tone/"><u>[Updated] In 2024, Step-By-Step Method for Changing Your Instagram Tone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-the-cost-efficient-guide-to-skype-calls-in-mp3/"><u>2024 Approved The Cost-Efficient Guide to Skype Calls in MP3</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/comprehensive-troubleshooting-for-error-0x8024002e-during-windows-updates/"><u>Comprehensive Troubleshooting for Error 0X8024002e During Windows Updates</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-honor-play-7t-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Honor Play 7T</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-system-issues-of-iphone-11-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System Issues of iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-streamlined-subtitling-processes-for-instagrams-dynamic-media/"><u>In 2024, Streamlined Subtitling Processes for Instagram's Dynamic Media</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/iphone-tricks-capturing-and-editing-high-speed-visual-storytelling-for-2024/"><u>IPhone Tricks Capturing & Editing High-Speed Visual Storytelling for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/seamless-atheros-drivers-rollout-to-windows-11/"><u>Seamless Atheros Drivers Rollout to Windows 11</u></a></li>
+</ul></div>
+

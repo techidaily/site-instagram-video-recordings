@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, ShotSizeSavvy  Fine-Tuning Your Social Media Content for Instagram\""
-date: 2024-08-20T03:39:23.290Z
-updated: 2024-08-21T03:39:23.290Z
+date: 2024-10-05T17:14:26.193Z
+updated: 2024-10-10T17:26:51.282Z
 tags:
   - ai video
   - ai instagram
@@ -45,6 +45,13 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -52,6 +59,13 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 #### Instagram's Main Feed
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -77,13 +91,18 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -91,6 +110,18 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-collageknights-syncing-videos-across-devices-for-2024/"><u>[New] CollageKnights Syncing Videos Across Devices for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-simple-to-sophisticated-weaving-multiple-images-into-your-insta-story/"><u>[New] In 2024, From Simple to Sophisticated Weaving Multiple Images Into Your Insta Story</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-leading-ipad-audio-recorder-software-list-3/"><u>[New] Leading iPad Audio Recorder Software List #3</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-troubleshoot-and-mend-your-instagram-video-issues/"><u>[Updated] In 2024, Troubleshoot & Mend Your Instagram Video Issues</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-monitoring-instagram-disconnects-immediately/"><u>[Updated] Monitoring Instagram Disconnects Immediately</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ultimate-6-tech-for-subtitle-creation-in-video/"><u>2024 Approved Ultimate 6 Tech for Subtitle Creation in Video</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-reattaching-a-detached-key-from-your-laptops-keyboard/"><u>Step-by-Step Guide: Reattaching a Detached Key From Your Laptop's Keyboard</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-honor-x9a-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Honor X9a Android SIM Unlock APK</u></a></li>
+<li><a href="https://windows11.techidaily.com/unveiling-4-secrets-how-to-delete-a-disks-division-in-windows/"><u>Unveiling 4 Secrets: How to Delete a Disk's Division in Windows</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/your-ultimate-resource-downloading-and-installing-apps-on-samsung-smart-tv-models/"><u>Your Ultimate Resource: Downloading and Installing Apps on Samsung Smart TV Models</u></a></li>
+</ul></div>
+

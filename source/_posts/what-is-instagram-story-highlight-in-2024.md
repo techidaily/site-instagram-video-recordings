@@ -1,7 +1,7 @@
 ---
 title: "What Is Instagram Story Highlight, In 2024"
-date: 2024-08-20T03:32:26.224Z
-updated: 2024-08-21T03:32:26.224Z
+date: 2024-10-08T22:53:47.327Z
+updated: 2024-10-10T16:09:15.101Z
 tags:
   - ai video
   - ai instagram
@@ -49,6 +49,19 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
 1. Go to your profile, click on the circle (the circular icon) with a **plus** **sign**, located directly below your **bio** and **Edit** **profile** icon.
@@ -69,8 +82,12 @@ Another way to create a highlight from archived stories is by;
 Above are the ways to create highlights on Instagram from Archive. They are pretty easy as long as you follow instructions correctly.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Add New Stories to a Highlight?
 
 Some like to categorize their highlights by certain qualities. It can be that you want one highlight folder to contain only Stories that are related to everything shoes. Your second highlight might be customized for only images/videos of food, and your third highlight may be for only trips and vacations. However, how you choose to customize the highlights on your profile is up to you. If for instance, you decide you want to add a new story to a highlight, this is how it is done:
@@ -90,15 +107,6 @@ You can choose to create a highlight from your current Story, all you need to do
 * Go to your Instagram Story and click on the **Highlight** icon located at the lower right-hand corner.
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ## Part 4: How to Delete Instagram Highlights?
 
 There are situations where you might decide you no longer want a highlight to feature on your page. Not to worry it’s there permanently only if you decide not to delete it. This is relatively easy to do. All you have to do is to;
@@ -114,8 +122,12 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Click **Remove highlight,** then you are done!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQs About Instagram Highlights
 
 **1\. Why are my Instagram highlights not showing?**
@@ -147,15 +159,23 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -163,3 +183,24 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-mastering-video-conferencing-at-no-cost-our-picks-from-the-best-10-tools/"><u>[New] In 2024, Mastering Video Conferencing at No Cost Our Picks From the Best 10 Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rinciples-of-filming-inspirational-daily-living-documentaries-for-2024/"><u>[New] Principles of Filming Inspirational Daily Living Documentaries for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-to-ae-title-effect-wizardry-for-2024/"><u>[New] The Ultimate Guide to AE Title Effect Wizardry for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-top-10-streaming-software-in-the-gaming-world/"><u>[Updated] In 2024, Top 10 Streaming Software in the Gaming World</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-maximizing-visibility-how-to-upload-videos-to-instagram-desktop/"><u>[Updated] Maximizing Visibility How to Upload Videos to Instagram Desktop</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-sonic-layers-in-reels-weaving-audio-into-visuals-for-2024/"><u>[Updated] Sonic Layers in Reels Weaving Audio Into Visuals for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unleash-laughter-and-tears-the-best-instagram-meme-picks-for-2024/"><u>[Updated] Unleash Laughter and Tears The Best Instagram Meme Picks for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-decoding-and-manipulating-gender-presentation-online-a-step-by-step-approach/"><u>2024 Approved Decoding and Manipulating Gender Presentation Online A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-navigating-facebooks-copyright-enforcement-on-live-feeds/"><u>2024 Approved Navigating Facebook's Copyright Enforcement on Live Feeds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-pivoting-pictures-a-how-to-on-flipping-videos-for-viral-engagement/"><u>2024 Approved Pivoting Pictures A How-To on Flipping Videos for Viral Engagement</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-transforming-everyday-moments-with-ioss-complete-life-story/"><u>2024 Approved Transforming Everyday Moments with iOS's Complete Life Story</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/30plus-ways-to-convert-instagram-videos-onto-your-computer-iphone-or-android/"><u>30+ Ways To Convert Instagram Videos Onto Your Computer, iPhone or Android</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-realme-c55-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Realme C55 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-poco-x6-by-drfone-android/"><u>Universal Unlock Pattern for Poco X6</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unmasking-falsified-follower-fabrications-on-feeds/"><u>Unmasking Falsified Follower Fabrications on Feeds</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-essential-digital-applications-for-sounding-transformation-for-2024/"><u>Updated Essential Digital Applications for Sounding Transformation for 2024</u></a></li>
+</ul></div>
+

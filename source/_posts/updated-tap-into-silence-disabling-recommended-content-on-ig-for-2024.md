@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Tap Into Silence  Disabling Recommended Content on IG for 2024\""
-date: 2024-10-04T16:04:43.403Z
-updated: 2024-10-05T16:02:03.095Z
+date: 2024-10-04T18:18:05.567Z
+updated: 2024-10-10T18:20:03.224Z
 tags:
   - ai video
   - ai instagram
@@ -62,10 +62,10 @@ Here's what you need to do:
 ![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
@@ -78,42 +78,22 @@ Here's what you need to do:
 
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### For Instagram app users
 
@@ -124,6 +104,13 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 **Step 3:** Now, on top of every suggestion for you, you will see the x mark. That's what you need to click on that. Ensure you are doing that for every suggestion that appears on your home feed. After clicking on the X, that account will not be suggested to you, and it will disappear.
 
 ![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
@@ -142,6 +129,13 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -176,20 +170,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-closing-your-vlog-right-top-6-free-youtube-outro-tools/"><u>[New] In 2024, Closing Your Vlog Right Top 6 Free YouTube Outro Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-top-10-apps-to-excitingly-edit-horizontal-and-vertical-igtv-for-2024/"><u>[New] Top 10 Apps to Excitingly Edit Horizontal and Vertical IGTV for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhancing-your-profile-with-high-quality-videos-for-2024/"><u>[Updated] Enhancing Your Profile With High-Quality Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-executing-the-last-goodbye-to-your-instagram-account-for-2024/"><u>[Updated] Executing the Last Goodbye to Your Instagram Account for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-highlighting-the-leading-10-shadowy-story-viewers-for-2024/"><u>[Updated] Highlighting the Leading 10 Shadowy Story Viewers for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-flip-to-impress-the-instagram-video-guide/"><u>[Updated] In 2024, Flip to Impress The Instagram Video Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-navigating-zoom-from-novice-to-expert-configurator/"><u>[Updated] Navigating Zoom From Novice to Expert Configurator</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/comedy-and-emotions-the-cutest-instagram-meme-groups-for-2024/"><u>Comedy & Emotions The Cutest Instagram Meme Groups for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-cleanse-your-computer-of-previous-security-audits/"><u>How to Cleanse Your Computer of Previous Security Audits</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-a-compreomed-approach-for-making-tiktok-songs-your-ringtone/"><u>In 2024, A Compreomed Approach for Making TikTok Songs Your Ringtone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Oppo F23 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-how-to-rank-your-facebook-page/"><u>In 2024, How to Rank Your Facebook Page</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-what-is-igtv-and-how-to-use-it-everything-you-need-to-know/"><u>In 2024, What Is IGTV and How to Use It Everything You Need to Know</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-8-stellar-alternatives-to-windows-10-photos-for-enhanced-photography-experience-for-2024/"><u>Updated 8 Stellar Alternatives to Windows 10 Photos for Enhanced Photography Experience for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-follow-the-leaders-on-igtv-for-inspiration-for-2024/"><u>[New] Follow the Leaders on IGTV for Inspiration for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-10-standout-applications-mastering-phone-and-computer-conferencing/"><u>[Updated] 10 Standout Applications Mastering Phone & Computer Conferencing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-crafting-unique-instagrams-with-flawless-image-borders/"><u>[Updated] In 2024, Crafting Unique Instagrams with Flawless Image Borders</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-swiveling-screens-mastering-video-rotation-on-instagram/"><u>[Updated] Swiveling Screens Mastering Video Rotation on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-visual-storytelling-top-10-ideas-for-instagram-ad-success-for-2024/"><u>[Updated] The Art of Visual Storytelling Top 10 Ideas for Instagram Ad Success for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-lead-the-way-in-igtv-videos-with-best-ever-edits/"><u>2024 Approved Lead the Way in IGTV Videos with Best-Ever Edits</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-navigating-the-pathway-ios-tips-for-instagram-content/"><u>2024 Approved Navigating the Pathway IOS Tips for Instagram Content</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop My Spouse from Spying on My Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/seamless-instagram-video-mp4-conversion-pro-strategies-unlocked-for-2024/"><u>Seamless Instagram Video-MP4 Conversion - Pro Strategies Unlocked for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/h-sync-add-youtube-soundtracks-to-imovie-easily/"><u>Smooth Sync Add YouTube Soundtracks to iMovie Easily</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-ultimate-guide-to-windows-key-filter-settings/"><u>The Ultimate Guide to Windows Key Filter Settings</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-8-tips-to-boost-your-iphones-wi-fi-connectivity-and-speed/"><u>Top 8 Tips to Boost Your iPhone's Wi-Fi Connectivity and Speed</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-the-top-5-free-mov-video-splicing-tools/"><u>Updated 2024 Approved The Top 5 Free MOV Video Splicing Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/what-sets-chatgpt-enterprise-apart-dive-into-its-innovative-offerings-and-unique-benefits/"><u>What Sets ChatGPT Enterprise Apart? Dive Into Its Innovative Offerings and Unique Benefits</u></a></li>
 </ul></div>
 

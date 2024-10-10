@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Upload & Upgrade Your Horizons in IGTV's Format\""
-date: 2024-08-20T03:38:34.032Z
-updated: 2024-08-21T03:38:34.032Z
+date: 2024-10-04T21:49:52.729Z
+updated: 2024-10-10T23:01:06.191Z
 tags:
   - ai video
   - ai instagram
@@ -43,15 +43,16 @@ Even though you can now share videos that last up to ten minutes or an entire ho
 ## How to Save Instagram photos/videos on iPhone
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Upload a Landscape Video to IGTV from a Mac or a PC computer?
 
 If you already have an Instagram account, you can upload your videos to IGTV directly from your computer. All you have to do is head over to **Instagram.com** and then click on the **IGTV icon** on your profile page. This means that you can use Mac and PC-based video editing software products to edit your videos before you share them on IGTV.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ### Using Filmora Video Editor to Edit IGTV Videos
 
 If you decide to edit the videos you want to upload to IGTV on a Mac or a PC computer, then we suggest using the Filmora video editor, because it offers all the tools you’re going to need to create a landscape video you can share on your IGTV channel.
@@ -61,8 +62,12 @@ Check out our video guide about how to edit videos for Instagram.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Here is the process in word format in case you don't have time to check the video.
 
 **Create a new project**, and then when the new project loads head over the **File menu** and choose the **Project Settings** option. Click on the **Resolution drop-down menu** and then select the **720x1280 (9:16)** option. Make sure to change **the Frame Rate to 30FPS** and click **OK** to confirm the changes you made.
@@ -78,8 +83,12 @@ Optionally, you can **take a snapshot of your video** by clicking on the **Photo
 Once your video is exported from Filmora, you should go to Instagram.com, click on the IGTV icon on your profile page and upload the horizontal video to your IGTV channel.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Using the Instagram App to Upload Horizontal Videos to IGTV from Smartphones
 
 In case you’d just like to post a video to your IGTV channel, you can use the Instagram app to quickly create a horizontally oriented video. **The stories editor** enables you to accomplish this, but you should keep in mind that this solution only works if the duration of a video doesn’t exceed the **15-second limit**.
@@ -91,9 +100,12 @@ After you’ve selected the video you’ll be able to see **two arrows on the sc
 Tap on the **Save icon** to confirm the changes and proceed to upload the video to your IGTV channel.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Creating a Horizontal Video from a Mobile Device with GoPro Splice
 
 iPhone users can easily create landscape videos for their IGTV channels with GoPro’s [Splice](https://itunes.apple.com/us/app/splice-video-editor-maker/id409838725?mt=8) app. You can **download the app for free from the App Store** and you won’t have to make any in-app purchases after you install Splice on your device.
@@ -108,16 +120,11 @@ None of the options for creating vertical videos for IGTV are perfect because ea
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -125,3 +132,20 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagrams-best-practices-for-influential-engagement-top-5-tips-with-examples/"><u>[New] 2024 Approved Instagram's Best Practices for Influential Engagement Top 5 Tips with Examples</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-art-of-capturing-with-iphones-micro-and-macro-lenses/"><u>[New] 2024 Approved The Art of Capturing with iPhone's Micro and Macro Lenses</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-science-behind-effective-instagram-puzzle-posts/"><u>[New] 2024 Approved The Science Behind Effective Instagram Puzzle Posts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-push-the-limits-a-review-of-lgs-27uhd68-freesync-display/"><u>[New] In 2024, Push the Limits A Review of LG’s 27UHD68 FreeSync Display</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-path-to-stunning-instagram-posts/"><u>[New] In 2024, The Ultimate Path to Stunning Instagram Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-growth-hacks-todays-essential-hashtags-guide-for-2024/"><u>[New] Insta Growth Hacks Today's Essential Hashtags Guide for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-most-trusted-free-open-source-video-meeting-solutions-for-companies-and-schools/"><u>[New] The Most Trusted Free, Open Source Video Meeting Solutions for Companies & Schools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-invisible-audiences-viewing-instagram-stories-privately-from-pcandroidios-screens/"><u>[Updated] In 2024, Invisible Audiences Viewing Instagram Stories Privately From PC/Android/iOS Screens</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-leading-8-spots-for-accessing-free-high-quality-3d-text-files/"><u>[Updated] Leading 8 Spots for Accessing FREE High-Quality 3D Text Files</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-asus-rog-phone-7-ultimate-lock-screen-password-by-drfone-android/"><u>How to Reset your Asus ROG Phone 7 Ultimate Lock Screen Password</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-functionality-for-your-logitech-g633-microphone-a-comprehensive-guide/"><u>How to Restore Functionality for Your Logitech G633 Microphone – A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagrams-hidden-treasure-securely-download-igtv-videos-on-pcmacos-for-2024/"><u>Instagram's Hidden Treasure Securely Download IGTV Videos on PC/MacOS for 2024</u></a></li>
+</ul></div>
+
