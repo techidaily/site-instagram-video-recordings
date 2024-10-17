@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Subtitle Strategies for Multilingual Instagram Videos\""
-date: 2024-08-20T03:30:34.965Z
-updated: 2024-08-21T03:30:34.965Z
+date: 2024-10-13T21:42:10.301Z
+updated: 2024-10-16T23:33:08.347Z
 tags:
   - ai video
   - ai instagram
@@ -63,13 +63,30 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips for Adding Subtitles to IGTV Videos
 
 While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
@@ -81,15 +98,17 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -97,3 +116,23 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ree-youtube-channel-art-templates-find-them-here-for-2024/"><u>[New] Free YouTube Channel Art Templates - Find Them Here for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mapping-out-instagram-deactivations-for-2024/"><u>[New] Mapping Out Instagram Deactivations for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-role-of-analytics-in-amplifying-your-youtube-presence-for-2024/"><u>[New] The Role of Analytics in Amplifying Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-trap-of-tricksy-traffic-instagrams-hidden-hazard-for-2024/"><u>[New] The Trap of Tricksy Traffic Instagram's Hidden Hazard for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unleashing-your-potential-saving-instagram-stories-like-a-pro-for-2024/"><u>[New] Unleashing Your Potential Saving Instagram Stories Like a Pro for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-evaluating-finances-setting-sights-on-cutting-music-videos/"><u>[Updated] 2024 Approved Evaluating Finances Setting Sights on Cutting Music Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-busting-myths-essential-facts-on-instagrams-reels-for-2024/"><u>[Updated] Busting Myths Essential Facts on Instagram's Reels for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-rhythmic-reels-how-to-pick-beats-for-ig-content/"><u>[Updated] In 2024, Rhythmic Reels How to Pick Beats for IG Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/a-comprehensive-look-at-merging-youtube-content-into-instagrams-story-feature-for-2024/"><u>A Comprehensive Look at Merging YouTube Content Into Instagram's Story Feature for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/capture-live-camera-video-using-vlc-media/"><u>Capture Live Camera Video Using VLC Media</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/enhancing-experience-best-audio-sources-for-unpack-videos-for-2024/"><u>Enhancing Experience Best Audio Sources for Unpack Videos for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/improve-performance-with-dells-recent-sm-bus-controller-driver-patches/"><u>Improve Performance with Dell's Recent SM Bus Controller Driver Patches</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-xiaomi-redmi-k70-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Xiaomi Redmi K70 FRP</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-infinix-note-30-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Infinix Note 30 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/windows-10mp3/"><u>Windows 10スタンダードエディションのメディアプレイヤーを使ったMP3ファイル編集手順</u></a></li>
+</ul></div>
+

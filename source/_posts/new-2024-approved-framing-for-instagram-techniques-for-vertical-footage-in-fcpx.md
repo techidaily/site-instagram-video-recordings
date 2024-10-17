@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Framing for Instagram  Techniques for Vertical Footage in FCPX\""
-date: 2024-07-26T04:17:55.526Z
-updated: 2024-07-27T04:17:55.526Z
+date: 2024-10-10T02:47:23.425Z
+updated: 2024-10-16T17:59:05.197Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/2009bc3e2844a72a35aeb8da54c7e944a8b3e4812
 
 # How to Edit Vertical Videos for Instagram in Final Cut Pro X ?
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -38,9 +35,6 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Introduction to Vertical Videos for Instagram
 
 Before entering the nitty-gritty on how to edit vertical videos with FCPX, you should first know certain specifications regarding vertical videos for Instagram. Yes, when it comes to Instagram IGTV videos or stories, vertical or portrait orientated videos are preferable. Thus, knowing the below technical specs can help you.
@@ -56,9 +50,6 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Video codecs supported**       | VP8                                                      |
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
 
 Thus, to edit vertical video for Instagram in Final Cut Pro X, all you need is to follow the steps given below. We have also covered how to export vertical videos for Instagram in FCPX without black bars.
@@ -95,23 +86,22 @@ Go to “File > Share > Apple Devices 1080p”, where you can check the resoluti
 
 Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Tips on Editing Vertical Videos for Instagram
 
 Are you now satisfied that now you know how to edit vertical video for Instagram in Final Cut Pro on Mac? Here is another bonus section regarding tips on vertical videos for Instagram in addition to the video specs. Read through them as we have covered how to make vertical videos stunning for Instagram.
@@ -129,13 +119,24 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -143,12 +144,28 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-from-setup-to-screening-wirecasts-role-in-facebook-streaming-for-2024/"><u>[New] From Setup to Screening Wirecast’s Role in Facebook Streaming for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-triumph-over-triviality-amass-a-million-ish-followers-on-ig/"><u>[Updated] 2024 Approved Triumph Over Triviality Amass a Million-Ish Followers on IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-final-act-steps-for-permanent-instagram-account-removal/"><u>[Updated] In 2024, The Final Act Steps for Permanent Instagram Account Removal</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-social-media-tags-leading-tools-reviewed-fbtwitterinsta/"><u>[Updated] Mastering Social Media Tags Leading Tools Reviewed (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-understanding-your-instagram-stories-visibility/"><u>[Updated] Understanding Your Instagram Stories Visibility</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-screenshot-sticker-guide-for-iphones-and-androids/"><u>2024 Approved The Ultimate Screenshot-Sticker Guide for iPhones and Androids</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-oneplus-12-unlock-without-password-by-drfone-android/"><u>5 Solutions For OnePlus 12 Unlock Without Password</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/1726028071605-5/"><u>最高のビデオフリップ・ウェブサイト上選ばれるトップ5</u></a></li>
+<li><a href="https://win-net.techidaily.com/comment-installer-et-sauvegarder-windows-11-en-simplifiant-les-trois-stades/"><u>Comment Installer Et Sauvegarder Windows 11 En Simplifiant Les Trois Stades</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-8-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 8 To Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-efficiently-storing-instagram-reels-two-simplified-techniques/"><u>In 2024, Efficiently Storing Instagram Reels Two Simplified Techniques</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamline-your-video-projects-using-movie-maker-on-windows-8/"><u>Streamline Your Video Projects Using Movie Maker on Windows 8</u></a></li>
+<li><a href="https://driver-error.techidaily.com/the-ultimate-solution-for-default-radeon-wattman-restoration-errors/"><u>The Ultimate Solution for Default Radeon Wattman Restoration Errors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-showbox-replacements-for-mobile-and-desktop-users-find-your-perfect-fit/"><u>Top ShowBox Replacements for Mobile and Desktop Users - Find Your Perfect Fit!</u></a></li>
+</ul></div>
 

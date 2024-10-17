@@ -1,7 +1,7 @@
 ---
 title: Fixing Audio Input Device Recognition Issues in Windows 7/8/10
-date: 2024-08-20T03:31:24.504Z
-updated: 2024-08-21T03:31:24.504Z
+date: 2024-10-12T03:22:27.858Z
+updated: 2024-10-16T22:21:17.071Z
 tags:
   - win11
   - win10
@@ -47,14 +47,24 @@ Many people reported that**after Windows 10 update no soun** d available in comp
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc72220f11f9.jpg)
 4. Restart your computer to take effect.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Check if there’s any sound in your computer.
 
  If the problem still persists, don’t worry. We have other solutions.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Fix 2: Check audio settings
 
  The improper audio settings can also result in the no sound issue in your computer, so you should configure the audio settings properly.
@@ -66,21 +76,12 @@ To do so:
 2. In the**Sound** pane, click the**Playback** tab.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc7201dbcc98.jpg)
 3. Select your speaker audio device, and click**Set Default** to set it as your default device.  
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If your device has been the default device, you’ll see a green check mark next to your device.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc72066a032c.jpg)
 4. Restart your computer, and plug a headphone to see if there’s any sound.
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Still no luck? Okay, there’s one more thing to try.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Fix 3: Roll back your audio driver
 
  Another effective method to resolve the no sound issue is to roll back your audio driver. To do so:
@@ -89,16 +90,38 @@ Still no luck? Okay, there’s one more thing to try.
 2. Type**devmgmt.msc** and click**OK** to open Device Manager.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc721431cb33.jpg)
 3. Double click**Sound, video and game controllers** to expand it.  
+
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc72165a0e6f.jpg)
 4. Double click on your**audio device** to open the properties pane.  
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc7218e14fa5.jpg)
 5. Click the**Driver** tab, and click**Roll Back Driver** .  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc721ba8a50e.jpg)
 6. Follow the on-screen instructions to finish the process.
 7. Restart your computer.
@@ -118,8 +141,6 @@ Feel free to leave a comment below if you have any questions.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -127,4 +148,24 @@ Feel free to leave a comment below if you have any questions.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-best-aggregate-video-chat-and-multi-user-platforms/"><u>[New] 2024 Approved Best Aggregate Video Chat & Multi-User Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-infusing-instagram-reels-with-tunes-and-narration/"><u>[New] 2024 Approved Infusing Instagram Reels with Tunes & Narration</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-loop-video-magic-keep-your-followers-hooked-with-instagram-boomers/"><u>[New] 2024 Approved Loop Video Magic Keep Your Followers Hooked with Instagram Boomers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-tall-screen-editing-made-easy-using-fcpx-on-instagram/"><u>[New] 2024 Approved Tall Screen Editing Made Easy Using FCPX on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-connectivity-adding-url-content-for-2024/"><u>[New] Instagram Connectivity Adding URL Content for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-ranked-linuxs-foremost-screenshot-programs-for-2024/"><u>[New] Ranked Linux's Foremost Screenshot Programs for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-investigative-image-searching-reverse-techniques-on-instagram-photos/"><u>[Updated] 2024 Approved Investigative Image Searching Reverse Techniques on Instagram Photos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-a-comprehensive-guide-to-hp-laptops-screen-recording-features-for-2024/"><u>[Updated] A Comprehensive Guide to HP Laptop's Screen Recording Features for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-making-friends-across-networks-instagram-plus-facebook/"><u>[Updated] In 2024, Making Friends Across Networks Instagram + Facebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovating-audio-visuals-podcast-covers-explained/"><u>[Updated] Innovating Audio Visuals Podcast Covers Explained</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-critical-analysis-the-true-value-of-instas-selfie-confirmation/"><u>2024 Approved Critical Analysis The True Value of Insta's Selfie Confirmation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-elevating-entertainment-find-youtubes-best-narrators-of-23/"><u>2024 Approved Elevating Entertainment Find YouTube's Best Narrators of '23</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/august-14-new-york-times-puzzle-solutions-and-insights-429/"><u>August 14 New York Times Puzzle Solutions & Insights #429</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-of-the-best-superior-wireless-routers-offering-maximum-coverage/"><u>Best of the Best: Superior Wireless Routers Offering Maximum Coverage</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-insights-into-google-maps-performance-on-apple-devices/"><u>Comprehensive Insights Into Google Maps Performance on Apple Devices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-demystifying-the-instagram-selfie-process/"><u>In 2024, Demystifying the Instagram Selfie Process</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-real-time-visualizer/"><u>In 2024, Real-Time Visualizer</u></a></li>
+</ul></div>
 

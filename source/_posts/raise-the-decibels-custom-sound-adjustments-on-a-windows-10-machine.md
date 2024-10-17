@@ -1,7 +1,7 @@
 ---
 title: "Raise the Decibels: Custom Sound Adjustments on a Windows 10 Machine"
-date: 2024-10-02T05:20:18.907Z
-updated: 2024-10-05T06:57:22.785Z
+date: 2024-10-13T03:56:37.937Z
+updated: 2024-10-17T00:12:08.093Z
 tags:
   - win11
   - win10
@@ -33,6 +33,13 @@ But first, ensure that your device has been connected and set correctly.
 5. [**Update your audio driver**](https://tools.techidaily.com/drivereasy/download/)
 6. [**Restart the game**](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Set your device as Default
 
  If you have multiple output devices (more than two), you’d better set the headset as default. It probably the reason for “Anthem no sound” error.
@@ -41,13 +48,6 @@ But first, ensure that your device has been connected and set correctly.
 2. Click**Sound** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/1-5.jpg)
 3. In the Playback tab, select your device and click**Set Default** .![](https://images.drivereasy.com/wp-content/uploads/2019/07/mi.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4. Go back to the Anthem and check it has sound or not.
 
@@ -59,17 +59,10 @@ But first, ensure that your device has been connected and set correctly.
 2. Click **Playing Audio** . Then click **Run the troubleshooter** . Wait for the investigation complete. ![](https://images.drivereasy.com/wp-content/uploads/2019/07/10-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Follow the on-screen instructions to finish the process.
@@ -98,16 +91,24 @@ But first, ensure that your device has been connected and set correctly.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/1-5.jpg)
 3. In the **Playback** tab, choose the device you’re using and click **Properties** . ![](https://images.drivereasy.com/wp-content/uploads/2019/07/audio1-1.jpg)
 4. In the **Enhancements** tab, uncheck “**Disable all sound effects** “. ![](https://images.drivereasy.com/wp-content/uploads/2019/07/audio-1.jpg)
-5. Click **Apply > OK** .
-
-6. Reboot your computer and go back to the game, you should have audio now.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+5. Click **Apply > OK** .
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+6. Reboot your computer and go back to the game, you should have audio now.
 
 ### Fix 5: Update your audio driver
 
@@ -124,22 +125,28 @@ But first, ensure that your device has been connected and set correctly.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/driver.jpg)
 3. Click the **Update button** next to the selected driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Or click **Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/driver1.jpg)
 4. Restart your computer and check the Anthem has sound or not.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 6: Restart the game
@@ -169,22 +176,17 @@ But first, ensure that your device has been connected and set correctly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-auditory-ambiance-music-in-instagrams-visual-narratives/"><u>[New] 2024 Approved Auditory Ambiance Music in Instagram's Visual Narratives</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-art-of-sprucing-up-instagram-stories-with-branded-graphics/"><u>[New] 2024 Approved The Art of Sprucing Up Instagram Stories with Branded Graphics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-essential-steps-for-skype-capture-via-obs-for-2024/"><u>[New] Essential Steps for Skype Capture via OBS for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-trends-that-triumph-making-your-instagram-content-viral/"><u>[Updated] 2024 Approved Trends That Triumph Making Your Instagram Content Viral</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-capturing-and-saving-instagrams-transient-media-for-2024/"><u>[Updated] How-To Capturing and Saving Instagram's Transient Media for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-art-of-assembly-crafting-your-personalized-4k-video-editor-pc/"><u>[Updated] In 2024, The Art of Assembly Crafting Your Personalized 4K Video Editor PC</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-leading-the-video-conversion-game-with-ipv-strategies-for-2024/"><u>[Updated] Leading the Video Conversion Game with IPV Strategies for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-stories-your-complete-tune-up-guide-for-2024/"><u>[Updated] Mastering Instagram Stories Your Complete Tune-Up Guide for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/achieve-excellence-in-fb-video-marketing-essential-free-kit-included-for-2024/"><u>Achieve Excellence in FB Video Marketing - Essential FREE Kit Included for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nizing-tracks-in-youtube-music/"><u>Harmonizing Tracks in YouTube Music</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-nokia-c110-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Nokia C110 Phones with/without a PC</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-y100-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo Y100</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-joyfuljourney-sign-up-share-and-create-fun-videos/"><u>In 2024, JoyfulJourney Sign Up, Share and Create Fun Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/monitoring-your-instagram-fan-loss-rate-for-2024/"><u>Monitoring Your Instagram Fan-Loss Rate for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/simplified-path-getting-snapchat-on-macos-for-2024/"><u>Simplified Path Getting Snapchat on macOS for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/tips-to-personalize-your-vocal-presence-on-instagram-story-and-reels/"><u>Tips to Personalize Your Vocal Presence on Instagram Story and Reels</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-oneplus-12-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On OnePlus 12? Fixed | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevate-your-instagram-game-with-unique-highlight-images/"><u>[New] 2024 Approved Elevate Your Instagram Game with Unique Highlight Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-artistry-the-top-image-enhancers/"><u>[New] Instagram Artistry The Top Image Enhancers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-behind-the-scenes-of-effective-instagram-caption-use-for-2024/"><u>[Updated] Behind the Scenes of Effective Instagram Caption Use for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-from-front-to-back-mastering-instagram-video-spins-for-maximum-impact/"><u>2024 Approved From Front to Back Mastering Instagram Video Spins for Maximum Impact</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-gopro-hero5-captured-life-review/"><u>2024 Approved GoPro Hero5 Captured Life Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/evaluating-the-value-of-auto-gpt-in-the-absence-of-gpt-4-capabilities/"><u>Evaluating the Value of Auto-GPT in the Absence of GPT-4 Capabilities</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-vivo-y27s-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Vivo Y27s For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-9-apple-iphone-se-2020-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 9 Apple iPhone SE (2020) Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-sony-xperia-10-v-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Sony Xperia 10 V? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-guide-to-starting-your-first-successful-youtubes-for-business/"><u>The Essential Guide to Starting Your First Successful YouTubes for Business</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-contrasts-ipad-pro-vs-macbook-pro-analysis/"><u>Unveiling the Contrasts: IPad Pro Vs. MacBook Pro Analysis</u></a></li>
 </ul></div>
 

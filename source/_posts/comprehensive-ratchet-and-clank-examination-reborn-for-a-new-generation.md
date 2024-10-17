@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Ratchet & Clank Examination: Reborn for a New Generation"
-date: 2024-10-01T05:15:07.352Z
-updated: 2024-10-05T14:29:03.394Z
+date: 2024-10-15T16:24:48.697Z
+updated: 2024-10-17T05:10:17.676Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Ratchet & Clank Examination: Reborn for a New Generation"
@@ -41,6 +41,13 @@ Lifewire / Jonno Hill
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/dp/B00RFLXE0A/?tag=lifewire-onsite-prod-20&ascsubtag=4843342%7Cnd6b0a376738146aca4eb3eb22dadbe7c12%7CB00RFLXE0A)
@@ -69,10 +76,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Vanilla**
@@ -87,6 +94,13 @@ Lifewire / Jonno Hill
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
@@ -99,38 +113,18 @@ Lifewire / Jonno Hill
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
 
@@ -172,24 +166,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-become-an-insta-celebrity-overnight-top-15-strategies-from-social-media-experts/"><u>[New] 2024 Approved Become an Insta Celebrity Overnight Top 15 Strategies From Social Media Experts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-photographers-edge-innovating-with-instagrams-bokeh-features/"><u>[New] The Photographer's Edge Innovating with Instagram’s Bokeh Features</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-halt-predicted-posts-no-more-suggests-on-insta/"><u>[Updated] 2024 Approved Halt Predicted Posts No More Suggests on Insta</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-secret-life-of-instagrams-interrogation-icon/"><u>[Updated] 2024 Approved The Secret Life of Instagram’s Interrogation Icon</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-clockwise-conversions-transform-your-instagram-posts-through-rotation-for-2024/"><u>[Updated] Clockwise Conversions Transform Your Instagram Posts Through Rotation for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-step-by-step-the-ultimate-4-methods-for-gameplay-screens/"><u>[Updated] In 2024, Step-By-Step The Ultimate 4 Methods for Gameplay Screens</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-avoid-feed-overload-how-to-stop-followers/"><u>2024 Approved Avoid Feed Overload How to Stop Followers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-photo-pinnacle-insta-coverage-excellence-on-ios-and-android/"><u>2024 Approved Photo Pinnacle Insta Coverage Excellence on iOS & Android</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-propel-your-instagram-content-techniques-for-higher-interaction/"><u>2024 Approved Propel Your Instagram Content Techniques for Higher Interaction</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/boost-your-content-game-with-chatgpt-discover-these-9-essential-advantages/"><u>Boost Your Content Game with ChatGPT: Discover These 9 Essential Advantages</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-which-ipads-come-preloaded-with-a-gps-feature/"><u>Comprehensive Guide: Which iPads Come Preloaded With a GPS Feature?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-clear-iphone-network-configuration-a-guide-to-solving-various-issues/"><u>How to Clear iPhone Network Configuration: A Guide to Solving Various Issues</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo Y77t | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-lava-yuva-3-pro-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Lava Yuva 3 Pro</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-vivo-s17-pro-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo S17 Pro Fingerprint Lock</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-command-your-tech-not-money-needed/"><u>In 2024, Command Your Tech, Not Money Needed</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Life360 on Windows PC For Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-sony-xperia-10-vfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Sony Xperia 10 VFRP Lock</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-guide-to-professional-instagram-live-conversations-for-2024/"><u>Step-by-Step Guide to Professional Instagram Live Conversations for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-promote-instagram-post-successfully/"><u>[New] 2024 Approved How to Promote Instagram Post Successfully</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-camera-kings-battle-ultimate-sj6-vs-xiaomis-yi-kickstart-dream-for-2024/"><u>[New] Camera Kings Battle Ultimate SJ6 Vs. Xiaomi’s Yi Kickstart Dream for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-join-the-jocular-joy-the-greatest-instagram-meme-gatherings/"><u>[Updated] 2024 Approved Join the Jocular Joy The Greatest Instagram Meme Gatherings</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-navigating-twitters-promotional-features/"><u>[Updated] In 2024, Navigating Twitter's Promotional Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-maximize-style-with-premium-border-options-for-ig-posts-for-2024/"><u>[Updated] Maximize Style with Premium Border Options for IG Posts for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-the-art-of-preserving-instagram-live-moments/"><u>2024 Approved Mastering the Art of Preserving Instagram Live Moments</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-ultimate-guide-to-instagram-desktop-video-upload/"><u>2024 Approved The Ultimate Guide to Instagram Desktop Video Upload</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-blurry-beginnings-transforming-your-videography-with-instagram-techniques-for-2024/"><u>From Blurry Beginnings Transforming Your Videography with Instagram Techniques for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-motorola-moto-e13-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Motorola Moto E13 Phones with/without a PC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-best-tools-to-create-stunning-igtv-video-edits/"><u>In 2024, Best Tools to Create Stunning IGTV Video Edits</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-zero-to-hero-mastering-memes-in-kinemaster/"><u>In 2024, From Zero to Hero Mastering Memes in KineMaster</u></a></li>
+<li><a href="https://driver-download.techidaily.com/researchers-are-exploring-biodegradable-and-biobased-thermoplastics-as-alternatives-to-traditional-plastics-in-wpcs-aiming-for-composites-that-can-break-dow276/"><u>Researchers Are Exploring Biodegradable and Biobased Thermoplastics as Alternatives to Traditional Plastics in WPCs, Aiming for Composites that Can Break Down More Easily at the End of Their Lifecycle or Be Recycled Efficiently.</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/tackling-mapi-library-issues-how-to-repair-mapi32dll-not-found-errors-easily/"><u>Tackling MAPI Library Issues - How to Repair Mapi32.dll Not Found Errors Easily</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/tech-triumphs-cutting-edge-vr-devices-reviewed/"><u>Tech Triumphs Cutting-Edge VR Devices Reviewed</u></a></li>
+<li><a href="https://games-able.techidaily.com/why-reward-program-redesign-is-essential-for-xbox-game-engagement/"><u>Why Reward Program Redesign Is Essential for Xbox Game Engagement</u></a></li>
 </ul></div>
 

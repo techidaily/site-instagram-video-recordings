@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Post a Link on Instagram Stories and Posts for 2024"
-date: 2024-10-04T19:01:49.300Z
-updated: 2024-10-10T18:16:45.552Z
+date: 2024-10-11T21:47:21.894Z
+updated: 2024-10-16T18:37:30.242Z
 tags:
   - ai video
   - ai instagram
@@ -47,6 +47,13 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You need to be very popular in order to get your account verified by Instagram to avail this opportunity. It's a big thing to get that, unless you are a public figure. Alternatively, you can just have a text overlay that displays your URL, though, it is not clickable. Future updates might support sharing links on Instagram Stories for all.
 
 **Step 1** – Take a shot or record a video using the Instagram Stories camera or select a recently (within 24 hours) clicked photo by swiping the screen up.
@@ -54,13 +61,6 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 **Step 2** – Now, tap the chain icon from the top right corner of the screen and enter the desired URL. Select the tick mark on the top right corner of the Instagram Story window.
 
 **Step 3** – Once the URL is incorporated, enjoy editing your Story with filters, stickers, text and then tap 'Next'. It is important to add a call to action here. So, you can mention 'Swipe up to know more', 'See more', 'Explore' etc. to guide the users.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Section 2: Add a link to main post
 
@@ -72,16 +72,22 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-0.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3** – You need to click 'Continue' to move forward, in order to make the profile a business one.
 
 **Step 4** \- Browse any picture in your profile and click the blue color 'Promotion' button to get diverted to 'Facebook'. Add a link there and checkout with payment.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Section 3: Add a link in bio
 
@@ -91,16 +97,16 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 1** – Post a picture on Instagram and under the description section mention 'Link in bio' and upload it.
 
 **Step 2** – Under the profile description part, update the 'URL' and then save it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Benefits of using links for your Instagram
 
@@ -116,16 +122,16 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,21 +149,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-undercover-approach-to-instagram-stories-on-modern-tech/"><u>[New] In 2024, Undercover Approach to Instagram Stories on Modern Tech</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-link-it-up-sharing-youtube-on-ig-snapshots/"><u>[New] Link It Up! Sharing YouTube on IG Snapshots</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-authoritative-handbook-on-selecting-impactful-podcast-monikers-plus-examples/"><u>[New] The Authoritative Handbook on Selecting Impactful Podcast Monikers, Plus Examples</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-bringing-rhythm-to-instagrams-visual-narratives-for-2024/"><u>[Updated] Bringing Rhythm to Instagram's Visual Narratives for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-driving-engagement-on-instagram-strategy-for-successful-video-content/"><u>[Updated] Driving Engagement on Instagram Strategy for Successful Video Content</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-best-practices-for-amassing-itunes-video-archives/"><u>[Updated] In 2024, Best Practices for Amassing iTunes Video Archives</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-story-keepers-at-the-click-no-limits-allowed/"><u>[Updated] In 2024, Story Keepers at the Click, No Limits Allowed</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-fix-successful-non-operational-obs-camera/"><u>2024 Approved Fix Successful Non-Operational OBS Camera</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-melodymentor-detailed-sound-review/"><u>2024 Approved MelodyMentor Detailed Sound Review</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-by-step-adding-a-flurry-of-images-and-videos-to-your-ig-story/"><u>2024 Approved Step-by-Step Adding a Flurry of Images & Videos to Your IG Story</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-of-the-best-essential-themes-for-animes-for-2024/"><u>Best of the Best Essential Themes for Animes for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-xiaomi-redmi-k70-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Xiaomi Redmi K70 Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723208449351-how-to-fix-surface-device-unplugged-but-wont-charge-problem-solved/"><u>How to Fix Surface Device Unplugged but Won't Charge Problem: Solved!</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-stop-life360-from-tracking-you-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Vivo Y78t? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/navigating-instagrams-updated-feed-dynamics-for-2024/"><u>Navigating Instagram’s Updated Feed Dynamics for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-in-the-metaverse-is-it-superior-to-facebooks-rift-2/"><u>Privacy in the Metaverse: Is It Superior to Facebook's Rift 2</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-boosting-your-posts-secrets-for-viral-instagram-videos/"><u>[New] Boosting Your Posts Secrets for Viral Instagram Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-mp3-recording-made-simple-with-skype-for-free/"><u>[New] MP3 Recording Made Simple with Skype for FREE</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-verifying-online-self-portraits-on-insta/"><u>[New] Verifying Online Self-Portraits on Insta</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-superior-web-recording-gear/"><u>[Updated] 2024 Approved Superior Web Recording Gear</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-expert-guide-to-overcoming-instagrams-video-obstacles-for-2024/"><u>[Updated] Expert Guide to Overcoming Instagram's Video Obstacles for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-list-of-10-invisible-stories-watchers/"><u>[Updated] List of 10 Invisible Stories Watchers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-video-load-times-desktop-advice/"><u>[Updated] Mastering Instagram Video Load Times Desktop Advice</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-art-of-initiating-an-e-giving-event-on-facebook/"><u>2024 Approved The Art of Initiating an E-Giving Event on Facebook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/historical-context-of-instagram-stories-not-widely-known-for-2024/"><u>Historical Context of Instagram Stories Not Widely Known for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-realme-gt-neo-5-se-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Realme GT Neo 5 SE Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-nokia-c210-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Nokia C210 to PC? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721464522471-iphone-home-button-troubles-here-are-5-fast-solutions/"><u>IPhone Home Button Troubles? Here Are 5 Fast Solutions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/winxdvd-dvdiphone/"><u>WinXDVD官方應用程式 | 高效率DVD拆瓶機能，電影轉制器，iPhone連接支持</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Capture to Share  Precision Cropping & Export Tips for Instagram\""
-date: 2024-08-05T06:56:53.889Z
-updated: 2024-08-06T06:56:53.889Z
+date: 2024-10-10T23:46:34.948Z
+updated: 2024-10-16T18:13:16.481Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/573a01f636332d7e5c995b169e7da5e56cb9c949c
 
 # How to Crop and Export Videos to Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -32,10 +29,6 @@ With more than 500 million active daily users Instagram has become one of the la
 
 **You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## How to crop and export videos to instagram
 
 #### **Best cropping tool – Wondershare Filmora**
@@ -52,15 +45,8 @@ Unless you shoot your video directly from the Instagram app, the aspect ratio of
 
 In order to start cropping your videos, you first must install the Filmora video editing software on your computer. Open the video editor in the **Full Feature Mode**, and then click on the Import drop-down menu and select the Import Media Files option.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Step 2: Drag and Drop the video file onto the Timeline**
@@ -81,9 +67,6 @@ Once the new window appears, you should click on the Format icon positioned in t
 
 Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
 **2\. Portrait (4:3)**
@@ -100,9 +83,6 @@ The process of creating a square video is the same as the process of creating a 
 
 The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -111,11 +91,35 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-secure-storage-safeguarding-your-mov-videos-in-win-11-for-2024/"><u>[New] Secure Storage Safeguarding Your MOV Videos in Win 11 for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-boosting-engagement-techniques-for-snap-camera-on-teams-for-2024/"><u>[Updated] Boosting Engagement Techniques for Snap Camera on Teams for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-captivating-storytelling-with-a-soundtrack-on-instagram/"><u>[Updated] Crafting Captivating Storytelling with a Soundtrack on Instagram</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-demystifying-video-recordingediting-a-comprehensive-guide-on-adobe-connect/"><u>2024 Approved Demystifying Video Recording/Editing A Comprehensive Guide on Adobe Connect</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-effortless-elite-status-in-the-instagram-sphere/"><u>2024 Approved Effortless Elite Status in the Instagram Sphere</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-photographic-precision-the-ultimate-list-of-photo-framing-software/"><u>2024 Approved Photographic Precision The Ultimate List of Photo Framing Software</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/boosting-engagement-uploading-and-sharing-on-instagram-desktop-for-2024/"><u>Boosting Engagement Uploading and Sharing on Instagram Desktop for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/directives-for-managing-setup-service-state-in-windows/"><u>Directives for Managing Setup Service State in Windows</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expertly-curated-list-of-superior-team-collaboration-applications-with-video-capabilities/"><u>Expertly Curated List of Superior Team Collaboration Applications with Video Capabilities</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-acceleration-trendsetting-with-likes-and-videos-for-2024/"><u>Instagram Acceleration Trendsetting with Likes & Videos for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/obs-vs-shadowplay-which-to-choose-for-2024/"><u>OBS vs ShadowPlay - Which to Choose for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unveiling-the-secrets-maximizing-video-reach-on-igtv-with-horizinas/"><u>Unveiling the Secrets Maximizing Video Reach on IGTV with Horizinas</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/your-guide-to-the-best-igtv-virtuosos-for-2024/"><u>Your Guide to the Best IGTV Virtuosos for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Procedure for Severing Digital Bonds for 2024"
-date: 2024-08-12T07:44:04.660Z
-updated: 2024-08-13T07:44:04.660Z
+date: 2024-10-12T23:10:19.246Z
+updated: 2024-10-17T00:35:33.196Z
 tags:
   - ai video
   - ai instagram
@@ -53,13 +53,24 @@ Please be informed that when you block someone on Instagram, that person will no
 
 ![Instagram Block options](https://images.wondershare.com/filmora/article-images/click-on-instagram-block-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Instagram will ask you if you want to block the person; click on the block option again.
 
 ![Instagram Block  ](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 2: Using a Web Browser to Block Followers
 
 If you don't want to use your mobile app, you can easily block a person using the web browser. The process is as simple as using the mobile app.
@@ -70,23 +81,28 @@ If you don't want to use your mobile app, you can easily block a person using th
 
 **Step 3:** A small-up window will appear on the list with the option "block this user." Please click on that.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram Block  ](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
 
 **Step 4:** Once you do, you will see the block and cancel options. You need to select the block option,and that's about it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Instagram Block  Confirm](https://images.wondershare.com/filmora/article-images/confirm-the-block-option-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How to Block Someone Who's Not Following You on Instagram?
 
 If you notice people sending you messages who are not following you, or you are following someone only to realize after a while that they are not following you, you can block them as well.
@@ -94,17 +110,18 @@ If you notice people sending you messages who are not following you, or you are 
 The steps are the same as explained in part 1.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Here are the steps to follow to block someone through your app
 
 **Step 1:** Go to your Instagram app and find the person who is not following you.
 
 **Step 2:** Visit the person's profile and now click on the three dots, and then from the available options, you need to click on the block option.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Here are the steps to follow to block someone through the web browser
 
 **Step 1:** Open a web browser and visit the Instagram platform, and log in to your account and find the account not following you to block it.
@@ -115,9 +132,6 @@ The steps are the same as explained in part 1.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Where to Find your Instagram Blocklist?
 
 The best part about Instagram is that it not only allows you to block people who are creating a nuisance, but it also lets you check all the accounts that you have blocked. Instagram has a dedicated tab where you can see the blocked account. To be able to see that, follow these steps. These steps will remain the same for Android and iPhone devices.
@@ -132,9 +146,6 @@ The best part about Instagram is that it not only allows you to block people who
 
 **Step 6:** This is the page where you will see the list of accounts that you have blocked.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram Block  account](https://images.wondershare.com/filmora/article-images/instagram-find-blocked-accounts.jpg)
 
 ---
@@ -143,9 +154,6 @@ The best part about Instagram is that it not only allows you to block people who
 
 Just like blocking an account is possible, unblocking the same account is possible as well. Yet again, you can unblock someone using your Instagram app on your mobile phone; else, you can use any web browser and do the needful. Readers must note that when you unblock someone, the unlocked user won't know about it, but if they search you, they will be able to locate it. And if you don't keep your account private, they will be able to see all the posts and stories you share. To learn **how to unblock people on Instagram,** follow these simple steps.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### For Instagram app
 
 **Step 1:** Launch Instagram on your Android device or iPhone, and log in to your account if you are not. Your profile will appear first. On your profile, you will see three dots or lines; that's the hamburger icon. Please click on that.
@@ -157,6 +165,13 @@ Just like blocking an account is possible, unblocking the same account is possib
 **Step 4:** You will see all the accounts that you have blocked. Click on the account that you want to unblock, and click on the unblock option that you see towards the right.
 
 ![Instagram Unblock  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5:** Instagram will ask you to confirm your choice. You need to click on the Unblock option again. That's it; the user has been unblocked successfully.
 
@@ -172,10 +187,6 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 4:** Click on the unblock option, and Instagram will ask you to confirm your choice. Click on the unblock option again, and it's done.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 5: Why Can't I Unblock a Person on Instagram?
 
 If the two-way block has been implemented, then unblocking the same person will become problematic. Let's make it simpler. You have blocked someone recently, but you didn't know that the same person has also done the same thing. Now that you have been blocked when you try to unblock their account, you won't see it because that's how blocked accounts work. You will not see the person's account; their messages will be deleted, every like and comment shared on your profile will be removed too.
@@ -183,8 +194,12 @@ If the two-way block has been implemented, then unblocking the same person will 
 So, when the other person blocks a user, their account vanishes and doesn't appear in the blocked list. Even if you try to find their profile by entering their handle on the search bar, you will see the notification "user not found." And this is why you can't unblock that person. Both of you have blocked each other.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQs About Instagram Block
 
 1. **How to see who blocked you on Instagram?**
@@ -219,11 +234,26 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-boost-your-storytelling-on-instagram-with-loops-for-2024/"><u>[New] Boost Your Storytelling on Instagram With Loops for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-perfect-your-profile-easy-guide-for-instagram-videos-from-desktop-for-2024/"><u>[Updated] Perfect Your Profile Easy Guide for Instagram Videos From Desktop for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-virtual-captures-unlocked/"><u>[Updated] Virtual Captures Unlocked</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-decorating-your-wardrobe-a-guide-to-haul-edits/"><u>2024 Approved Decorating Your Wardrobe A Guide to Haul Edits</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/amd-radeon-hd-6950-graphics-drivers-update-on-windows-10/"><u>AMD Radeon HD 6950 Graphics Drivers Update on Windows 10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/cutting-edge-chips-excellent-editing-made-easy-and-fast/"><u>Cutting Edge Chips Excellent Editing Made Easy and Fast</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-melodic-instagram-reels-blending-music-voiceovers/"><u>In 2024, Melodic Instagram Reels Blending Music, Voiceovers</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-the-ultimate-fcpx-plugin-repair-guide-diagnose-and-fix-issues-fast/"><u>New In 2024, The Ultimate FCPX Plugin Repair Guide Diagnose and Fix Issues Fast</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-social-media-savants-guide-to-stellar-instagram-posts-for-2024/"><u>The Social Media Savant's Guide to Stellar Instagram Posts for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-lava-yuva-2-pro-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Lava Yuva 2 Pro Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-essential-factors-to-assess-when-shopping-for-your-ideal-fitness-band/"><u>Top 5 Essential Factors to Assess When Shopping for Your Ideal Fitness Band</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/transformational-techniques-bold-borders-on-instagram-photos/"><u>Transformational Techniques Bold Borders on Instagram Photos</u></a></li>
+</ul></div>
+

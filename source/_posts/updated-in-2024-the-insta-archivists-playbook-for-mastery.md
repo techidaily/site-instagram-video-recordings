@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Insta Archivist's Playbook for Mastery"
-date: 2024-08-12T07:44:02.175Z
-updated: 2024-08-13T07:44:02.175Z
+date: 2024-10-12T01:45:41.926Z
+updated: 2024-10-16T23:24:30.473Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://www.lifewire.com/thmb/Ox6vAuLUV4dyE0jdhv92jjP32j8=/210x138/fi
 
 # How to Download Instagram Highlights in 2 Ways? \[2024\]
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -51,14 +48,6 @@ Here are two easy ways to do just that.
 * [**Bonus Tip 1: How to Create an Instagram Highlight**](#part3)
 * [**Bonus Tip 2: Best Instagram Video Editor—Wondershare Filmora**](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Method 1: Download Instagram Highlights Online
 
 StorySaver is a free online website to grant your wish to save as many IG Highlights from any account. It is the bread to your butter. Lets you download Instagram highlights and save them on your PC or phone. Making it possible to re-live the memories you cherish. And yeah, you can now secretly save Gym Highlights of your crush and drool. Don't be shy; it's not a crime.
@@ -69,9 +58,6 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 
 1\. Open [**StorySaver**](https://www.storysaver.net/) and the Instagram account from which you want to save the Highlights. Copy the username.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![open instagram highlight downloader](https://images.wondershare.com/filmora/article-images/open-online-instagram-highlight-downloader1.jpg)
 
 2\. Paste the username into the dialogue box on StorySaver.
@@ -84,15 +70,8 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 
 4\. Click '**Save As**', and the video/photo will be downloaded to your phone/PC. As easy as that.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![how to download instagram highlights - click to download instagram highlights](https://images.wondershare.com/filmora/article-images/click-download-instagram-highlight4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 2: Download Instagram Highlights Using Stories Archive
 
 Stories Archive is a library of all the stories ever uploaded. However, the stories disappear after 24-hours, but not without a trace. They can still be accessed from the 'Stories Archive.' However, don't forget to activate this option to save all published stories automatically. Download Instagram Highlights from 'Stories Archive' and take a free trip down memory lane.
@@ -105,21 +84,22 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 
 2\. The Archive library will pop open. Finding a specific story can be like looking for a needle in the haystack. But luckily, the stories are arranged date-wise.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![using stories archive to download Instagram Highlights - find story highlight](https://images.wondershare.com/filmora/article-images/find-story-highlight6.jpg)
 
 3\. Click the story you wish to save and tap the three dots in the bottom left corner.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Download Instagram Highlights using stories archive - tap to download highlights](https://images.wondershare.com/filmora/article-images/tap-more-highlight-download7.jpg)
 
 4\. Then click on '**Save photo/video**' to download it on your phone instantly.
 
 ![download instagram highlights as](https://images.wondershare.com/filmora/article-images/download-instagram-highlight-as8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tip 1: How to Create an Instagram Highlight
 
@@ -135,16 +115,17 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 
 * Go to your profile, and under 'Story Highlights' tap the plus icon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap story highlights button](https://images.wondershare.com/filmora/article-images/tap-story-highlights-button9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Choose a story/stories to create a highlight and click 'Next.'
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![create new instagram highlight](https://images.wondershare.com/filmora/article-images/create-new-instagram-highlight-10.jpg)
 
 * Enter Highlight name and 'Edit Cover' by choosing a story.
@@ -153,24 +134,26 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 
 * Tap 'Done', and add your own Instagram highlight.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![finish creating instagram highlight](https://images.wondershare.com/filmora/article-images/finish-create-instagram-highlight12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tip 2: Best Instagram Video Editor — [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 What is the best way to attract an audience on Instagram? Make unique videos! Let me introduce you to Wondershare Filmora. Now you can create stunning Instagram videos in a snap. The user-friendly interface and professional editing tools will help you [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) with advanced tools. Your creativity plus the limitless editing options in Filmora are bound to stop Instagrammers in their tracks to watch your video. You can even add animated titles that grip viewers' attention without the audio.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
@@ -216,14 +199,24 @@ Go on, craft, or download Instagram highlights and enjoy. Good luck, Instagramme
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -232,11 +225,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-decoding-the-audience-who-viewed-your-insta-post/"><u>[New] Decoding the Audience Who Viewed Your Insta Post?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-background-replacement-on-instagrams-platform/"><u>[New] In 2024, Mastering Background Replacement on Instagram's Platform</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhancing-engagement-10-must-have-tools-for-ig-gurus/"><u>[Updated] Enhancing Engagement 10 Must-Have Tools for IG Gurus</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-view-instagram-stories-anonymously-on-pc-android-and-iphone-free/"><u>[Updated] In 2024, How to View Instagram Stories Anonymously on PC, Android and iPhone [Free]</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-snap-inspiration-selecting-stunning-ig-visuals/"><u>[Updated] Snap Inspiration! Selecting Stunning IG Visuals</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-new-era-facebook-video-autoplay-explained/"><u>[Updated] The New Era Facebook Video Autoplay Explained</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-transform-insta-videos-into-mp4-format-expert-methods-revealed/"><u>[Updated] Transform Insta Videos Into MP4 Format Expert Methods Revealed</u></a></li>
+<li><a href="https://fox-where.techidaily.com/1-resolving-the-erase-all-content-and-settings-disabled-issue-on-iphoneipad/"><u>1. Resolving the 'Erase All Content & Settings' Disabled Issue on iPhone/iPad</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-how-to-fix-no-video-on-sony-a6400-camera/"><u>2024 Approved How to Fix No Video On Sony A6400 Camera</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-pro-drone-guide-unveiling-the-top-5-picks-for-you/"><u>2024 Approved Pro Drone Guide Unveiling the Top 5 Picks for You</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/how-to-engage-listeners-through-instagram-and-podcasts/"><u>How To Engage Listeners Through Instagram & Podcasts</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unlocking-the-hidden-power-of-instagrams-ask-emoji/"><u>In 2024, Unlocking the Hidden Power of Instagram’s Ask Emoji</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/leveraging-chatgpt-for-building-effective-daily-meditation-practices/"><u>Leveraging ChatGPT for Building Effective Daily Meditation Practices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/propel-engagement-on-stories-via-curated-creative-qs/"><u>Propel Engagement on Stories via Curated Creative Qs</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-9-solutions-for-dealing-with-yellow-discoloration-on-iphone-screens/"><u>Top 9 Solutions for Dealing with Yellow Discoloration on iPhone Screens</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/be-video-animation-tools-and-techniques-for-efficient-gif-making-for-2024/"><u>YouTube Video Animation Tools and Techniques for Efficient Gif Making for 2024</u></a></li>
+</ul></div>
+
