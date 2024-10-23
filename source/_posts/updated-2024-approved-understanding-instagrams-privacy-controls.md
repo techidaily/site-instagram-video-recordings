@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Understanding Instagram's Privacy Controls\""
-date: 2024-10-15T18:37:59.371Z
-updated: 2024-10-17T00:36:12.769Z
+date: 2024-10-15T16:58:09.674Z
+updated: 2024-10-22T18:01:26.870Z
 tags:
   - ai video
   - ai instagram
@@ -42,10 +42,10 @@ Please be informed that when you block someone on Instagram, that person will no
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Using Your Instagram Mobile App to Block Followers
@@ -57,25 +57,46 @@ Please be informed that when you block someone on Instagram, that person will no
 ![Visit  Instagram Profile](https://images.wondershare.com/filmora/article-images/visit-the-profile-and-click-on-the-three-dots.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step** **3** **:** Click on that, and you will see a small pop-up with multiple choices; you need to click on the block option.
 
 ![Instagram Block options](https://images.wondershare.com/filmora/article-images/click-on-instagram-block-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Instagram will ask you if you want to block the person; click on the block option again.
 
 ![Instagram Block  ](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Using a Web Browser to Block Followers
 
@@ -89,25 +110,18 @@ If you don't want to use your mobile app, you can easily block a person using th
 
 ![Instagram Block  ](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Once you do, you will see the block and cancel options. You need to select the block option,and that's about it.
 
 ![Instagram Block  Confirm](https://images.wondershare.com/filmora/article-images/confirm-the-block-option-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Block Someone Who's Not Following You on Instagram?
 
@@ -149,13 +163,6 @@ The best part about Instagram is that it not only allows you to block people who
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Unblock Someone on Instagram?
 
 Just like blocking an account is possible, unblocking the same account is possible as well. Yet again, you can unblock someone using your Instagram app on your mobile phone; else, you can use any web browser and do the needful. Readers must note that when you unblock someone, the unlocked user won't know about it, but if they search you, they will be able to locate it. And if you don't keep your account private, they will be able to see all the posts and stories you share. To learn **how to unblock people on Instagram,** follow these simple steps.
@@ -184,13 +191,6 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 ![Instagram Unblock from web  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** Click on the unblock option, and Instagram will ask you to confirm your choice. Click on the unblock option again, and it's done.
 
 ## Part 5: Why Can't I Unblock a Person on Instagram?
@@ -200,10 +200,10 @@ If the two-way block has been implemented, then unblocking the same person will 
 So, when the other person blocks a user, their account vanishes and doesn't appear in the blocked list. Even if you try to find their profile by entering their handle on the search bar, you will see the notification "user not found." And this is why you can't unblock that person. Both of you have blocked each other.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About Instagram Block
@@ -249,20 +249,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-the-art-of-igtv-on-instagram-stories/"><u>[New] In 2024, Mastering the Art of IGTV on Instagram Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-fast-play-instagram-videos-at-home-desktop/"><u>[New] Mastering Fast-Play Instagram Videos at Home (Desktop)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-decoding-youtubes-user-comment-selection-criteria/"><u>[Updated] 2024 Approved Decoding YouTube's User-Comment Selection Criteria</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-reign-in-your-posts-the-ultimate-guide-to-choosing-8-best-timers/"><u>[Updated] 2024 Approved Reign in Your Posts The Ultimate Guide to Choosing 8 Best Timers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-bridging-platforms-posting-igtv-on-facebook-efficiently/"><u>[Updated] In 2024, Bridging Platforms Posting IGTV on Facebook Efficiently</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-edit-titles-and-descriptions-of-igtv-videos/"><u>[Updated] In 2024, How to Edit Titles and Descriptions of IGTV Videos?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-rapid-rise-to-instagram-riches-15-innovative-techniques-for-quick-popularity-boost/"><u>[Updated] In 2024, Rapid Rise to Instagram Riches 15 Innovative Techniques for Quick Popularity Boost</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-seamless-speech-recognition-the-pinnacle-of-googles-translation-for-2024/"><u>[Updated] Seamless Speech Recognition The Pinnacle of Google's Translation for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-streamlined-techniques-for-capturing-stories-on-instagram-for-2024/"><u>[Updated] Streamlined Techniques for Capturing Stories on Instagram for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-file-forwarding-made-easy-top-5-methods-to-upload-directly-on-pc/"><u>2024 Approved File Forwarding Made Easy Top 5 Methods to Upload Directly on PC</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 with IMEI Code?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-streamlined-strategy-for-igtv-and-instagram-story-integration/"><u>In 2024, Streamlined Strategy for IGTV & Instagram Story Integration</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-samsung-galaxy-m14-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Samsung Galaxy M14 5G FRP</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/transcribe-speech-absolutely-gratis/"><u>Transcribe Speech, Absolutely Gratis</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-your-oppo-a38s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Oppo A38s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-nine-crucial-methods-to-log-computer-speakers-and-microphones/"><u>[New] 2024 Approved Nine Crucial Methods to Log Computer Speakers and Microphones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-transforming-your-archive-adding-instagram-filters-to-old-media/"><u>[New] 2024 Approved Transforming Your Archive Adding Instagram Filters to Old Media</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-essential-steps-for-resizing-videos-in-igtv/"><u>[Updated] 2024 Approved Essential Steps for Resizing Videos in IGTV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-adding-visual-variety-to-instagram-stories-step-by-step/"><u>[Updated] Adding Visual Variety to Instagram Stories Step-by-Step</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-two-sides-to-every-story-how-to-create-balanced-reaction-videos-on-youtube-2-pov-approach/"><u>[Updated] In 2024, Two Sides to Every Story – How to Create Balanced Reaction Videos on YouTube (2 POV Approach)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-ultimate-guide-mastering-quick-screen-recording-on-mac-via-keys-for-2024/"><u>[Updated] Ultimate Guide Mastering Quick Screen Recording on Mac via Keys for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-crafting-the-perfect-day-for-podcast-release/"><u>2024 Approved Crafting the Perfect Day for Podcast Release</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-frame-your-story-a-guide-to-insta-video-bordering/"><u>2024 Approved Frame Your Story A Guide to Insta Video Bordering</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/comprehensive-guide-safe-ways-to-copy-and-convert-your-dvds-and-cds/"><u>Comprehensive Guide: Safe Ways to Copy & Convert Your DVDs and CDs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/expert-advice-on-achieving-high-quality-gopro-videos/"><u>Expert Advice on Achieving High-Quality GoPro Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagrams-best-but-unseen-your-guide/"><u>In 2024, Instagram's Best, But Unseen - Your Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-podcasters-playbook-writing-and-editing-for-engaging-audio/"><u>In 2024, The Podcaster's Playbook Writing & Editing for Engaging Audio</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unleash-creativity-premium-editors-for-mobile-and-desktop-oses/"><u>In 2024, Unleash Creativity Premium Editors for Mobile & Desktop OSes</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-social-platforms-explored-facebook-twitter-instagram-and-youtube-unveiled/"><u>Top Social Platforms Explored: Facebook, Twitter, Instagram & YouTube Unveiled</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/transform-your-archive-with-instagrams-filters-an-easy-guide/"><u>Transform Your Archive with Instagram’s Filters – An Easy Guide</u></a></li>
 </ul></div>
 

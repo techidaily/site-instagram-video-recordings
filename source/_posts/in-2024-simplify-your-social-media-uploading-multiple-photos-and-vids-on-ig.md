@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Simplify Your Social Media  Uploading Multiple Photos and Vids on IG\""
-date: 2024-07-26T04:14:19.523Z
-updated: 2024-07-27T04:14:19.523Z
+date: 2024-10-21T21:44:10.105Z
+updated: 2024-10-22T19:16:56.749Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/7aca198401046d15f1204860b0acf905dd286e143
 
 # How to Upload Multiple Photos and Videos to Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -30,14 +27,18 @@ thumbnail: https://thmb.techidaily.com/7aca198401046d15f1204860b0acf905dd286e143
 
  We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Introducing Carousel
 
  Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
 
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Upload Multiple Videos and Photos to Instagram
 
@@ -45,17 +46,25 @@ thumbnail: https://thmb.techidaily.com/7aca198401046d15f1204860b0acf905dd286e143
 
 * Launch your Instagram app and hit the '+' sign at the bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
@@ -65,9 +74,6 @@ thumbnail: https://thmb.techidaily.com/7aca198401046d15f1204860b0acf905dd286e143
 
  If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
@@ -82,14 +88,17 @@ thumbnail: https://thmb.techidaily.com/7aca198401046d15f1204860b0acf905dd286e143
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -98,12 +107,25 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-leading-the-pack-in-multi-media-posting-on-instagram/"><u>[New] Leading the Pack in Multi-Media Posting on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-probing-into-verified-selfies-significance-in-modern-social-media-for-2024/"><u>[New] Probing Into Verified Selfies' Significance in Modern Social Media for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-shine-bright-on-social-top-instagram-highlight-ideas-triple-theme-for-2024/"><u>[New] Shine Bright on Social Top Instagram Highlight Ideas (Triple Theme) for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-maximizing-macs-potential-capturing-the-spirit-of-roblox-games/"><u>[Updated] In 2024, Maximizing Mac's Potential Capturing the Spirit of Roblox Games</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-paving-the-pathway-to-popularity-thriving-on-instagram-for-2024/"><u>[Updated] Paving the Pathway to Popularity Thriving on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-video-time-warp-techniques/"><u>2024 Approved Instagram Video Time Warp Techniques</u></a></li>
+<li><a href="https://win11.techidaily.com/elevating-your-music-experience-through-irq-tuning/"><u>Elevating Your Music Experience Through IRQ Tuning</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-tecno-spark-20-pro-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Tecno Spark 20 Pro</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exclusive-insights-the-highest-rated-vr-games/"><u>In 2024, Exclusive Insights The Highest-Rated VR Games</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-photographicperfection-how-to-fine-tune-insta-images-and-videos/"><u>In 2024, PhotographicPerfection How to Fine-Tune Insta Images & Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-palette-of-airborne-mechanics/"><u>The Palette of Airborne Mechanics</u></a></li>
+</ul></div>
 

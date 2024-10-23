@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Ratchet & Clank Examination: Reborn for a New Generation"
-date: 2024-10-15T16:24:48.697Z
-updated: 2024-10-17T05:10:17.676Z
+date: 2024-10-17T23:24:54.941Z
+updated: 2024-10-22T21:50:38.361Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Ratchet & Clank Examination: Reborn for a New Generation"
@@ -41,13 +41,6 @@ Lifewire / Jonno Hill
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/dp/B00RFLXE0A/?tag=lifewire-onsite-prod-20&ascsubtag=4843342%7Cnd6b0a376738146aca4eb3eb22dadbe7c12%7CB00RFLXE0A)
@@ -75,13 +68,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
@@ -94,18 +80,18 @@ Lifewire / Jonno Hill
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Middle of the road**
 
@@ -116,15 +102,22 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
 
@@ -137,6 +130,19 @@ Lifewire / Jonno Hill
 **The overall best value.**
 
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -166,20 +172,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-promote-instagram-post-successfully/"><u>[New] 2024 Approved How to Promote Instagram Post Successfully</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-camera-kings-battle-ultimate-sj6-vs-xiaomis-yi-kickstart-dream-for-2024/"><u>[New] Camera Kings Battle Ultimate SJ6 Vs. Xiaomi’s Yi Kickstart Dream for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-join-the-jocular-joy-the-greatest-instagram-meme-gatherings/"><u>[Updated] 2024 Approved Join the Jocular Joy The Greatest Instagram Meme Gatherings</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-navigating-twitters-promotional-features/"><u>[Updated] In 2024, Navigating Twitter's Promotional Features</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-maximize-style-with-premium-border-options-for-ig-posts-for-2024/"><u>[Updated] Maximize Style with Premium Border Options for IG Posts for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-the-art-of-preserving-instagram-live-moments/"><u>2024 Approved Mastering the Art of Preserving Instagram Live Moments</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-ultimate-guide-to-instagram-desktop-video-upload/"><u>2024 Approved The Ultimate Guide to Instagram Desktop Video Upload</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/from-blurry-beginnings-transforming-your-videography-with-instagram-techniques-for-2024/"><u>From Blurry Beginnings Transforming Your Videography with Instagram Techniques for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-motorola-moto-e13-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Motorola Moto E13 Phones with/without a PC</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-best-tools-to-create-stunning-igtv-video-edits/"><u>In 2024, Best Tools to Create Stunning IGTV Video Edits</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-zero-to-hero-mastering-memes-in-kinemaster/"><u>In 2024, From Zero to Hero Mastering Memes in KineMaster</u></a></li>
-<li><a href="https://driver-download.techidaily.com/researchers-are-exploring-biodegradable-and-biobased-thermoplastics-as-alternatives-to-traditional-plastics-in-wpcs-aiming-for-composites-that-can-break-dow276/"><u>Researchers Are Exploring Biodegradable and Biobased Thermoplastics as Alternatives to Traditional Plastics in WPCs, Aiming for Composites that Can Break Down More Easily at the End of Their Lifecycle or Be Recycled Efficiently.</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/tackling-mapi-library-issues-how-to-repair-mapi32dll-not-found-errors-easily/"><u>Tackling MAPI Library Issues - How to Repair Mapi32.dll Not Found Errors Easily</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/tech-triumphs-cutting-edge-vr-devices-reviewed/"><u>Tech Triumphs Cutting-Edge VR Devices Reviewed</u></a></li>
-<li><a href="https://games-able.techidaily.com/why-reward-program-redesign-is-essential-for-xbox-game-engagement/"><u>Why Reward Program Redesign Is Essential for Xbox Game Engagement</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-essential-guide-to-15-top-instagram-downloader-apps/"><u>[New] 2024 Approved The Essential Guide to 15 Top Instagram Downloader Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-brightening-filmmaking-ranking-the-17-best-lights/"><u>[New] Brightening Filmmaking Ranking the 17 Best Lights</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-kinemaster-to-fame-the-meme-way/"><u>[New] KineMaster to Fame The Meme Way</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-making-a-mark-on-instagram-strategies-for-securing-brand-funding-and-partnerships/"><u>[New] Making a Mark on Instagram Strategies for Securing Brand Funding and Partnerships</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-strategic-instagram-video-marketing-secrets-to-captivating-audiences/"><u>[Updated] 2024 Approved Strategic Instagram Video Marketing Secrets to Captivating Audiences</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-acoustic-architects-leading-sites-to-buy-skype-tones/"><u>[Updated] Acoustic Architects Leading Sites to Buy Skype Tones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-social-media-elite-writes-back-six-essential-tips-to-elevate-your-instagram-presence/"><u>2024 Approved The Social Media Elite' Writes Back Six Essential Tips to Elevate Your Instagram Presence</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-corporate-cloud-storage-platforms/"><u>2024 Approved Top Corporate Cloud Storage Platforms</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/1726219689115-movavi/"><u>美しいキャプション付き画像作成手順 - Movaviの独案</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boost-system-insights-with-resource-tracking-tiles/"><u>Boost System Insights with Resource Tracking Tiles</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-honor-x50iplus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Honor X50i+ Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-samsung-galaxy-a54-5g-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Samsung Galaxy A54 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/supercharging-instagram-videos-on-the-go-mobile/"><u>Supercharging Instagram Videos on the Go (Mobile)</u></a></li>
 </ul></div>
 

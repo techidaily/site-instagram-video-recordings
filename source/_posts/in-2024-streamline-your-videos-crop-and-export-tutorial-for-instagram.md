@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Streamline Your Videos  Crop & Export Tutorial for Instagram\""
-date: 2024-07-26T04:14:21.637Z
-updated: 2024-07-27T04:14:21.637Z
+date: 2024-10-17T20:26:39.809Z
+updated: 2024-10-22T17:23:49.812Z
 tags:
   - ai video
   - ai instagram
@@ -29,19 +29,12 @@ With more than 500 million active daily users Instagram has become one of the la
 
 **You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## How to crop and export videos to instagram
 
 #### **Best cropping tool – Wondershare Filmora**
 
 In order to create videos that will get thousands of likes on Instagram, you need a video editing software that will enable you to adjust the aspect ratio of the videos you want to upload to this platform.[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that provides support for a large number of different video file formats and it will enable you to crop your videos and get them ready for online use.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### **How to crop videos for instagram in Filmora**
@@ -52,18 +45,12 @@ Unless you shoot your video directly from the Instagram app, the aspect ratio of
 
 In order to start cropping your videos, you first must install the Filmora video editing software on your computer. Open the video editor in the **Full Feature Mode**, and then click on the Import drop-down menu and select the Import Media Files option.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
@@ -74,9 +61,6 @@ Now that the video clip you want to edit is in the editor's media library, drag 
 
 Chances are that the camera you used to record your video clip recorded the footage in the landscape aspect ratio. Before you can export your video clip, you must first check the resolution and frame rate of the clip you want to export. Right-click on the clip in the media panel and select Properties. After you found out this information, click on the Export button located just below the media panel.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
 
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
@@ -89,10 +73,6 @@ Click on the Settings button and then set the Quality of the video to Best and s
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
@@ -111,12 +91,37 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-dynamic-duo-of-images-on-ig/"><u>[New] 2024 Approved Dynamic Duo of Images on IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-expert-advice-incorfluttering-web-pages-into-ig-stories-and-posts/"><u>[New] Expert Advice Incorfluttering Web Pages Into IG Stories & Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-your-android-and-iphone-companion-to-igtv-downloads/"><u>[New] In 2024, Your Android & iPhone Companion to IGTV Downloads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mcb-channel-theme-images-and-templates/"><u>[New] MCB Channel Theme Images and Templates</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-transforming-your-reel-game-on-instagram-in-days/"><u>[New] Transforming Your Reel Game on Instagram in Days</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-top-5-free-video-effects-sites/"><u>[Updated] Top 5 Free Video Effects Sites</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-yuneec-typhoon-h-review-for-2024/"><u>[Updated] Yuneec Typhoon H Review for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-relaunching-windows-photo-viewer-two-tactics-for-w10-users/"><u>2024 Approved Relaunching Windows Photo Viewer Two Tactics for W10 Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-by-step-instagram-videos-that-wow-viewers/"><u>2024 Approved Step-by-Step Instagram Videos that Wow Viewers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-essential-guide-for-newcomers-on-av1/"><u>2024 Approved The Essential Guide for Newcomers on AV1</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/audio-ambiance-weaving-music-into-instagram-moments/"><u>Audio Ambiance Weaving Music Into Instagram Moments</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/convertissez-des-chansons-mp3-sans-frais-grace-a-loutil-de-conversion-enligne-de-movavi-facile-efficace-gratuit/"><u>Convertissez Des Chansons MP3 Sans Frais Grâce À L'outil De Conversion Enligne De Movavi – Facile, Efficace, Gratuit</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/effective-techniques-to-enhance-your-flipbook-layouts-without-obfuscating-content-discover-tips-at-flipbuildercom/"><u>Effective Techniques to Enhance Your Flipbook Layouts Without Obfuscating Content - Discover Tips at FlipBuilder.com</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-achieving-instagram-recognition-swiftly/"><u>In 2024, Achieving Instagram Recognition Swiftly</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-smartphone-speech-to-text-solutions-compiling-the-best-android-and-iphone-apps-for-2024/"><u>New Smartphone Speech-to-Text Solutions Compiling the Best Android and iPhone Apps for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-six-techniques-for-solving-terraria-disconnection-issues/"><u>Top Six Techniques for Solving Terraria Disconnection Issues</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

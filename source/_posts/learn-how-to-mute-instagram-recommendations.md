@@ -1,7 +1,7 @@
 ---
 title: "Learn How to Mute Instagram Recommendations"
-date: 2024-07-26T04:15:50.960Z
-updated: 2024-07-27T04:15:50.960Z
+date: 2024-10-15T17:18:35.860Z
+updated: 2024-10-22T20:23:04.404Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/b918b2416ccc3c3bc24e5dbb4922efd59cd6316c8
 
 # How to Turn off Suggested Posts on Instagram?
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -42,10 +39,6 @@ The reason? These people aren't interested in seeing random people's posts on th
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 1: What is Instagram Suggested?
 
 Instagram is working on its features and has recently rolled out the new feature called suggested posts. When Instagram suggests something on its own, it will be basically posts of random people who Instagram thinks you might be interested in checking out. These posts will appear when you reach the end of your feed.
@@ -66,9 +59,6 @@ Here's what you need to do:
 
 **Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
@@ -83,12 +73,16 @@ Here's what you need to do:
 
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
@@ -102,16 +96,27 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 
 **Step 3:** Now, on top of every suggestion for you, you will see the x mark. That's what you need to click on that. Ensure you are doing that for every suggestion that appears on your home feed. After clicking on the X, that account will not be suggested to you, and it will disappear.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For web browsers
 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
 
@@ -126,8 +131,12 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 ![uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How Does Instagram Suggestions Work?
 
 Instagram takes note of everything that you do online. From analysing the posts, you follow, like, and comment on, Instagram tries to show you the best recommendations so that you can have a better user experience. The new feature that it has rolled out is the suggestions. The way suggestions work is quite simple.
@@ -144,9 +153,6 @@ So, even if you clear your search history, you will still end up seeing these po
 
 So, now you know **how to remove suggested posts on Instagram feed** and how to go about it. Remember that Instagram suggested posts is a new feature, and there's no way to delete this feature completely. You can certainly remove the suggested posts or suggested users, but you can't completely remove suggested posts and users completely. However, this feature is quite handy because it lets you explore more content easily without going through the search tab.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -155,12 +161,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-your-creativity-convert-youtube-clips-into-dynamic-gifs/"><u>[Updated] 2024 Approved Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-demystifying-instagram-story-sections/"><u>[Updated] 2024 Approved Demystifying Instagram Story Sections</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-much-footage-does-instagram-allow/"><u>[Updated] 2024 Approved How Much Footage Does Instagram Allow?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-smile-sob-and-snicker-with-these-ig-meme-masters-of-humor-for-2024/"><u>[Updated] Smile, Sob and Snicker with These IG Meme Masters of Humor for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-shortcut-to-shorter-vids-on-youtube/"><u>[Updated] The Shortcut to Shorter Vids on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-enhance-youtube-creations-with-soundtrack-perfection-guide/"><u>2024 Approved Enhance YouTube Creations with Soundtrack Perfection Guide</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/google2024/"><u>雲端救回：Google雲端完全消失後如何復原2024最新解決方案</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-google-phone-service-an-in-depth-reception-analysis/"><u>Exploring Google Phone Service - An In-Depth Reception Analysis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-likes-to-leads-a-comprehensive-guide-to-influencer-driven-marketing/"><u>From Likes to Leads A Comprehensive Guide to Influencer-Driven Marketing</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Samsung Galaxy S24? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-discovery-the-leading-five-in-fb-vids-worldwide/"><u>In 2024, Discovery The Leading Five in FB Vids Worldwide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-step-by-step-borders-enhancing-images-with-style-on-social-platforms/"><u>In 2024, Step By Step Borders Enhancing Images with Style on Social Platforms</u></a></li>
+<li><a href="https://games-able.techidaily.com/key-characteristics-of-premium-gaming-mice/"><u>Key Characteristics of Premium Gaming Mice</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/save-big-on-a-high-quality-156-1080p-ips-monitor-now-only-6599/"><u>Save Big on a High-Quality 15.6 1080P IPS Monitor - Now Only $65.99</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/tailoring-igtv-titles-and-summaries-for-impact/"><u>Tailoring IGTV Titles & Summaries for Impact</u></a></li>
+</ul></div>
 

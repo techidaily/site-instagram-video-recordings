@@ -1,7 +1,7 @@
 ---
 title: Troubleshoot & Master Genshin Impact Launch Problems in Minutes!
-date: 2024-10-13T20:57:19.936Z
-updated: 2024-10-16T22:46:46.430Z
+date: 2024-10-15T20:08:27.311Z
+updated: 2024-10-22T18:49:03.448Z
 tags:
   - win11
   - win10
@@ -35,15 +35,15 @@ thumbnail: https://thmb.techidaily.com/f4f9accb76c2f0e56a5b696898639186341161f48
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/settings.jpg)
 2. The **Settings**  page will appear with the **Engine** tab highlighted, as shown below.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/settings-engine.jpg)
 3. Please match the following settings to see if this works for you.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
    * **CPU** : 4 Cores  
    * **RAM** : 4 GB (this will require a restart, so you can leave it to the last step)  
@@ -54,14 +54,14 @@ thumbnail: https://thmb.techidaily.com/f4f9accb76c2f0e56a5b696898639186341161f48
 4. Click the**Save** button to preserve all changes made.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/save-changes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Your Bluestacks will be restarted, and your game won’t be crashing again now. But if it does, please try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 2: Update your graphics driver
 
@@ -88,21 +88,20 @@ There are mainly two ways for you to update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/scan.png)
 3. Click **Update** next to your graphics card to download the latest driver, and then install it manually (you can do this in the Free version).  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Or click **Update All**  to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you get 30-day money back guarantee and full technical support.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/3080.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
@@ -118,6 +117,13 @@ There are mainly two ways for you to update the graphics driver:
 2. Select the program you want to close and click**End Task** . Also, force close BlueStacks 5 and relaunch the program. Check to see if it’s working now.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/end-task.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Now other programs stop consuming a high amount of RAM, you can launch BlueStacks again to check if the crashing problem is fixed.
 
 ### Fix 4: Turn off antivirus
@@ -129,14 +135,20 @@ There are mainly two ways for you to update the graphics driver:
 ![uninstall app](https://images.drivereasy.com/wp-content/uploads/2021/01/appwiz.cpl_.jpg)
 3. Right-click your antivirus and choose**Uninstall** , and follow the on-screen instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 4. Reboot your computer and launch BlueStacks to check if the issue persists.
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5: Enable Virtualization for BlueStacks
 
@@ -168,21 +180,20 @@ There are mainly two ways for you to update the graphics driver:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-discover-instagrams-free-filter-options-with-smart-searching-techniques/"><u>[New] 2024 Approved Discover Instagram's FREE Filter Options with Smart Searching Techniques</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevate-your-content-perfecting-videos-on-instagram/"><u>[New] 2024 Approved Elevate Your Content Perfecting Videos on Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagrams-backstage-pass-top-covert-strategies-revealed/"><u>[New] 2024 Approved Instagram’s Backstage Pass Top Covert Strategies Revealed</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-from-novice-to-expert-navigating-windows-11s-movie-maker-easily/"><u>[New] In 2024, From Novice to Expert Navigating Windows 11'S Movie Maker Easily</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-privacy-prowess-how-to-disconnect-on-insta/"><u>[New] In 2024, Privacy Prowess How to Disconnect on Insta</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-simplifying-igtv-access-on-computers-top-download-methods-unveiled-for-2024/"><u>[New] Simplifying IGTV Access on Computers Top Download Methods Unveiled for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-copyright-clarity-for-instagram-tracks/"><u>[Updated] 2024 Approved Copyright Clarity for Instagram Tracks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-fanbase-titans-the-10-most-subscribed-youtube-creators/"><u>[Updated] 2024 Approved Fanbase Titans The 10 Most Subscribed YouTube Creators</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-add-captions-to-youtube-videos/"><u>[Updated] 2024 Approved How To Add Captions to YouTube Videos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-reviewing-videoshow-in-its-fullest-for-24-edition/"><u>[Updated] 2024 Approved Reviewing VideoShow in Its Fullest for '24 Edition</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-fists-vs-followers-choosing-the-champion/"><u>[Updated] Fists vs Followers Choosing the Champion</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-zero-to-hero-a-step-by-step-approach-to-youtube-backlinks-for-2024/"><u>[Updated] From Zero to Hero A Step-by-Step Approach to YouTube Backlinks for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-hide-and-discover-instagram-stories-leaders/"><u>2024 Approved Hide & Discover Instagram Stories Leaders</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-the-new-world-of-facebook-updates/"><u>2024 Approved Navigating the New World of Facebook Updates</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/harnessing-cookiebot-technology-for-tailored-web-interactions/"><u>Harnessing Cookiebot Technology for Tailored Web Interactions</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-a-step-by-step-approach-to-assembling-picture-panoramas/"><u>In 2024, A Step-by-Step Approach to Assembling Picture Panoramas</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-superficial-shares-spell-social-deterioration/"><u>[New] In 2024, How Superficial Shares Spell Social Deterioration</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-slippery-slope-of-simulated-support-instagram-style-for-2024/"><u>[New] The Slippery Slope of Simulated Support, Instagram Style for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-ultimate-actions-replay-analysis/"><u>[New] Ultimate Actions Replay Analysis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-from-novice-to-experienced-6-strategies-for-quick-verification-on-instagram/"><u>[Updated] 2024 Approved From Novice to Experienced 6 Strategies for Quick Verification on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-sonic-social-media-merging-melodies-and-memes-on-instagram/"><u>[Updated] 2024 Approved Sonic Social Media Merging Melodies and Memes on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-stylish-shots-top-trending-instagram-filters/"><u>[Updated] 2024 Approved Stylish Shots Top Trending Instagram Filters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-sound-symphony-for-social-media-stardom-on-insta-reels/"><u>[Updated] Sound Symphony for Social Media Stardom on Insta Reels</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-beats-in-the-balance-adding-music-to-whatsapp/"><u>2024 Approved Beats in the Balance Adding Music to WhatsApp</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-inconspicuous-footprint-of-social-media-engagements/"><u>In 2024, The Inconspicuous Footprint of Social Media Engagements</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-optimal-frame-rates-10-effective-fixes-for-battlefield-5-lag-problems/"><u>Mastering Optimal Frame Rates: 10 Effective Fixes for Battlefield 5 Lag Problems</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-11-perfection-effortless-acer-driver-update/"><u>Windows 11 Perfection: Effortless Acer Driver Update</u></a></li>
 </ul></div>
 

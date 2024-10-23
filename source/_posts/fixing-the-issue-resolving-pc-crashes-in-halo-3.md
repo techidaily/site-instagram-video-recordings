@@ -1,7 +1,7 @@
 ---
 title: "Fixing the Issue: Resolving PC Crashes in Halo 3"
-date: 2024-10-10T21:52:59.219Z
-updated: 2024-10-17T04:29:53.718Z
+date: 2024-10-20T22:00:19.617Z
+updated: 2024-10-22T20:26:41.904Z
 tags:
   - win11
   - win10
@@ -100,15 +100,15 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 ![Driver Easy Scan Now](https://images.drivereasy.com/wp-content/uploads/2021/03/Driver-Easy-Scan-Now.jpg)
 3. Click**Update** next to your graphics card to automatically download the correct version of its driver, then you can install it manually. Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.  
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee).
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
@@ -126,13 +126,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-130.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Steam
 
  1) In Steam, navigate to**the LIBRARY tab** and**right-click** on The Division 2\. Then select**Properties** .
@@ -142,13 +135,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
  2) Click**the LOCAL FILES tab** , then click **VERIFY INTEGRITY OF GAME CACHE…** . After that, click **CLOSE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-120.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Epic Game Launcher
 
@@ -161,13 +147,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
  3) Click**Verify** to start verifying the game files.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-123.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Launch the game after verifying the game file to see if this fix works. If not, try the next fix, below.
 
@@ -189,22 +168,15 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-126.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3)**Check the box** next to**Override high DPI scaling behavior** and select**Scaling performed by: Application** . Then click**OK** to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-127.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  4)**Tick the box** next to**Disable fullscreen optimizations** and click**OK** .
@@ -214,6 +186,13 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
  Run The Division 2 to see if the this fix works. If not, try the next fix to modify your page file.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 6: Modify the paging file size
 
@@ -226,6 +205,19 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
  1) On your keyboard, press**the Windows logo key** and**R** at the same time to open the Run dialog, then type**control** and press**Enter** to open Control Panel.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-146.png)
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2) In the search box, type**advanced** and then click**View advanced system settings** in the list of search results.
 
@@ -240,10 +232,10 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-152.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  5)**Check the box** next to**Automatically manage paging file size for all drives** . Then click OK to save the changes.
@@ -266,6 +258,13 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-155-1024x744.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3)**Turn off Contact Shadows** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-156-1024x776.png)
@@ -281,6 +280,13 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
  6) Set**Vegetation Quality** to**Medium** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-159-1024x759.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  7)**Turn off Local Reflection Quality** .
 
@@ -299,10 +305,10 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-163-1024x772.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Launch the game to see if the crash issue reappears. If not, congratulations! You’ve resolved this issue.
@@ -328,22 +334,24 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-5-iphone-x-compatible-backdrop-change-tools/"><u>[New] In 2024, Top 5 iPhone X-Compatible Backdrop Change Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-journey-beyond-the-frantic-crafting-epic-slow-motion-content-for-instragram/"><u>[Updated] 2024 Approved Journey Beyond the Frantic Crafting Epic Slow Motion Content for Instragram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-instagram-concealing-tags-efficiently/"><u>[Updated] In 2024, Mastering Instagram Concealing Tags Efficiently</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-understanding-ip-sounds-and-songs-on-instagram/"><u>[Updated] In 2024, Understanding IP Sounds and Songs on Instagram</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/100-killer-facebook-bios-to-make-profile-attractive2-for-2024/"><u>100 Killer Facebook Bios to Make Profile Attractive2 for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-30plus-ways-to-convert-instagram-videos-onto-your-computer-iphone-or-android/"><u>2024 Approved 30+ Ways To Convert Instagram Videos Onto Your Computer, iPhone or Android</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-fusing-images-online-and-desktop-harmoniously/"><u>2024 Approved Fusing Images Online & Desktop Harmoniously</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-how-to-effortlessly-access-and-apply-instagrams-best-filters/"><u>2024 Approved How to Effortlessly Access and Apply Instagram's Best Filters</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unlock-the-full-potential-of-your-h-videos-on-instagram-tv/"><u>2024 Approved Unlock the Full Potential of Your H-Videos on Instagram TV</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/convert-ogg-files-to-m4a-format-no-cost-with-movavis-web-service/"><u>Convert OGG Files to M4A Format - No Cost with Movavi's Web Service</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/crafting-perfect-squares-imovie-guide-for-instagram-videos/"><u>Crafting Perfect Squares IMovie Guide for Instagram Videos</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-realme-narzo-60-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/how-to-streamline-your-vimeo-video-subtitles/"><u>How to Streamline Your Vimeo Video Subtitles</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-poco-f5-pro-5g-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Poco F5 Pro 5G</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-nubia-red-magic-8s-proplus-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Nubia Red Magic 8S Pro+ Phone? Unlock It Now</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/navigating-the-world-of-instagram-posts-large-imagevideo-uploads-for-2024/"><u>Navigating the World of Instagram Posts Large Image/Video Uploads for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-effortless-integration-igtv-and-instagram-stories/"><u>[New] Effortless Integration IGTV & Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-10-key-strategies-to-enhance-insta-highlights/"><u>[New] In 2024, 10 Key Strategies to Enhance Insta Highlights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-comprehensive-guide-to-attractive-and-engaging-instagram-puzzle-feeds/"><u>[New] In 2024, The Comprehensive Guide to Attractive and Engaging Instagram Puzzle Feeds</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-perfect-match-found-the-top-6-hdmi-21-monitors-reviewed/"><u>[New] Perfect Match Found The Top 6 HDMI 2.1 Monitors Reviewed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-staying-pure-hearted-amidst-the-ruse-of-ratings-and-likes/"><u>[New] Staying Pure-Hearted Amidst the Ruse of Ratings and Likes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-setting-up-for-success-an-instagram-business-account-blueprint/"><u>[Updated] 2024 Approved Setting Up for Success An Instagram Business Account Blueprint</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-speed-up-sound-on-smartphones-with-these/"><u>[Updated] 2024 Approved Speed Up Sound on Smartphones with These</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-top-rated-free-tools-for-high-res-youtube-cover-extraction/"><u>[Updated] 2024 Approved Top-Rated Free Tools for High-Res YouTube Cover Extraction</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-digging-for-discounted-beauty-in-tiktok-backgrounds/"><u>[Updated] Digging for Discounted Beauty in TikTok Backgrounds</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-framefraction-analysis-for-2024/"><u>[Updated] FrameFraction Analysis for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-tracking-essentials-choosing-the-best-data-visualization-apps-for-2024/"><u>[Updated] Instagram Tracking Essentials Choosing the Best Data Visualization Apps for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-compare-metaverse-vs-omniverse-an-ultimate-guide/"><u>2024 Approved Compare Metaverse Vs. Omniverse An Ultimate Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bard-transforms-ai-at-google-io-showcasing-seven-new-features/"><u>Bard Transforms AI at Google I/O, Showcasing Seven New Features</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-of-the-best-photo-overlays-and-text-editors-review/"><u>In 2024, Best of the Best Photo Overlays & Text Editors Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-samsung-galaxy-f04-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Samsung Galaxy F04</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-samsung-galaxy-f04-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Samsung Galaxy F04 to Another | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/pathway-to-preserving-instagram-videos-with-ease-pcmac-methodology-for-2024/"><u>Pathway to Preserving Instagram Videos with Ease (PC/Mac Methodology) for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/streamline-your-footage-insta-length-management-on-macos/"><u>Streamline Your Footage Insta-Length Management on macOS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-rotation-rush-guide-mastering-instagrams-art-of-turned-around-content-for-2024/"><u>The Rotation Rush Guide Mastering Instagram's Art of Turned-Around Content for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Silence the Algorithmic Intrusions on IG"
-date: 2024-10-03T05:45:59.963Z
-updated: 2024-10-05T14:06:19.854Z
+date: 2024-10-17T22:38:40.341Z
+updated: 2024-10-22T20:39:50.447Z
 tags:
   - ai video
   - ai instagram
@@ -61,13 +61,6 @@ Here's what you need to do:
 
 ![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
 
 **Step 3:** Right below that, you will see Suggested Posts, and the whole section will be filled with posts of people you don't know.
@@ -78,9 +71,23 @@ Here's what you need to do:
 
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
 
@@ -89,16 +96,10 @@ Now, you can apply the same steps for the rest of the posts as well. But do keep
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For Instagram app users
@@ -118,10 +119,10 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
@@ -154,13 +155,6 @@ So, now you know **how to remove suggested posts on Instagram feed** and how to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -176,22 +170,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-brighten-up-techniques-for-improving-video-lighting-on-youtube/"><u>[New] 2024 Approved Brighten Up Techniques for Improving Video Lighting on YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-perfect-selfies-tips-for-instagram-story-magnification/"><u>[New] 2024 Approved Perfect Selfies Tips for Instagram Story Magnification</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-embedding-youtube-videos-seamlessly-into-stories/"><u>[New] In 2024, Embedding YouTube Videos Seamlessly Into Stories</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-interactive-presenters-synopsis-update-8/"><u>[New] In 2024, Interactive Presenter's Synopsis, Update 8</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-flix-fortune-hashtags-for-high-impact-low-length-video-content/"><u>[Updated] 2024 Approved Flix Fortune Hashtags for High Impact, Low-Length Video Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-essential-guide-to-creating-amazing-ig-films/"><u>[Updated] 2024 Approved The Essential Guide to Creating Amazing IG Films</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevating-your-engagement-game-the-instagram-edge-guide/"><u>[Updated] Elevating Your Engagement Game The Instagram Edge Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-innovative-approaches-to-saving-your-instagram-highlights/"><u>[Updated] In 2024, Innovative Approaches to Saving Your Instagram Highlights</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-start-chatting-in-real-time-learn-live-on-instagram/"><u>[Updated] In 2024, Start Chatting in Real-Time Learn Live on Instagram</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-peak-performance-best-post-times-unveiled/"><u>[Updated] Peak Performance Best Post Times Unveiled</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/facilidade-e-velocidade-na-aceleracao-de-videos-descubra-as-melhores-ferramentas/"><u>Facilidade E Velocidade Na Aceleração De Vídeos - Descubra as Melhores Ferramentas!</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-how-to-hide-hashtags-on-instagram/"><u>In 2024, How to Hide Hashtags on Instagram</u></a></li>
-<li><a href="https://win-able.techidaily.com/league-of-legends-stability-tips-no-more-crashing/"><u>League of Legends Stability Tips - No More Crashing!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On OnePlus Ace 2 | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-guide-efficiently-organizing-and-sharing-your-dvd-collection-with-plex-nas-roku-and-dlna-servers/"><u>Ultimate Guide: Efficiently Organizing and Sharing Your DVD Collection with Plex, NAS, Roku & DLNA Servers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/understanding-the-process-of-altering-photo-genders-on-social-networks/"><u>Understanding the Process of Altering Photo Genders on Social Networks</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-download-adobe-premiere-pro-cs6-for-mac-free-latest-2023-version/"><u>Updated In 2024, Download Adobe Premiere Pro CS6 for Mac Free (Latest 2023 Version)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-crafting-your-signature-voice-for-instagram-success/"><u>[New] 2024 Approved Crafting Your Signature Voice for Instagram Success</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-affordable-full-rotational-camera-systems-enhancing-media/"><u>[New] Affordable, Full Rotational Camera Systems Enhancing Media</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-expert-tips-on-capturing-and-sharing-your-instagram-stories/"><u>[New] In 2024, Expert Tips on Capturing and Sharing Your Instagram Stories</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-virtual-universe-showdown-meta-and-omni-explored/"><u>[New] Virtual Universe Showdown Meta & Omni Explored</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-obs-armada-cameras-at-full-power-again/"><u>[Updated] 2024 Approved OBS Armada Cameras at Full Power Again</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-audio-alchemy-instagram-video-to-mp3-a-compreayers-guide/"><u>[Updated] Audio Alchemy Instagram Video to Mp3 - A Compreayer's Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-optimal-insta-video-sizes-2023-guide/"><u>[Updated] In 2024, Optimal Insta Video Sizes - 2023 Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-social-media-savvy-creating-share-worthy-ig-content/"><u>[Updated] In 2024, Social Media Savvy Creating Share-Worthy IG Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instantaneous-methods-for-video-to-mp3-on-instagram/"><u>[Updated] Instantaneous Methods for Video-to-MP3 on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-tv-essentials-step-by-step-upload-guide/"><u>2024 Approved Instagram TV Essentials Step-by-Step Upload Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/boundless-memories-archive-instagrams-free-saves/"><u>Boundless Memories Archive Instagram’s Free Saves</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-kobo-clara-colour-ebook-reader-assessment-and-insights/"><u>Comprehensive Kobo Clara Colour Ebook Reader Assessment and Insights</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-nokia-c110-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Nokia C110 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-luxury-how-the-skagen-falster-2-outshines-apples-prestige-at-sea/"><u>Navigating Luxury: How the Skagen Falster 2 Outshines Apple's Prestige at Sea</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/speeding-up-the-talk-comparing-chatgpt-4-and-35-speed/"><u>Speeding Up the Talk: Comparing ChatGPT-4 and 3.5 Speed</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-gionee-f3-pro-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Gionee F3 Pro? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-beginners-tutorial-configuring-and-using-multiple-monitors-with-macos/"><u>The Beginner's Tutorial: Configuring and Using Multiple Monitors with macOS</u></a></li>
 </ul></div>
 

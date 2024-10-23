@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Increase Engagement on IGTV with Top-Notch Titles and Summaries\""
-date: 2024-07-26T04:17:00.063Z
-updated: 2024-07-27T04:17:00.063Z
+date: 2024-10-20T16:41:08.942Z
+updated: 2024-10-22T21:46:23.585Z
 tags:
   - ai video
   - ai instagram
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/91d880ab7920ac263b2bbc42f64c84854115542d1
 
 # How to Edit Titles and Descriptions of IGTV Videos?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -33,35 +29,33 @@ A **title of a video and its description** can often be the reason why someone w
 
 You may also like: [8 Best Popular Instagram After Effects Templates](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Add Titles and Descriptions to Videos You’re Uploading to IGTV?
 
 Regardless of the device, you’re using to upload a video to your IGTV account, you will be asked to give a title to the video and to add a description. The video’s title **can’t have more than 75 characters**, while the **description can’t exceed the 2200-character limit** and these constrain are the same if you are **[uploading a video to IGTV from web, Instagram or IGTV app](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/edit-igtv-title-description.jpg)
 
 **After granting the IGTV access to the videos stored on your phone’s camera roll** you will be able to **add a cover photo, choose a title or write a description of the video**. You don’t have to be a social media expert in order to know that **the title should tell your audience what the video is about**. The **description of an IGTV video can be a mini blog post** that tells the story of a video or conveys important messages related to the topic of a video. Furthermore, you can add **clickable mentions of other IGTV users** or up to **30 searchable hashtags** to improve the visibility of your video. You can also **include links to your podcast, Facebook page, YouTube channel or your website** so that the viewers can find out more about the video’s topic. When you’re done, just click or tap on the **Post button** and the video you shared will contain all the information you added to it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Edit IGTV Video Descriptions and Titles After You Upload Them?
 
 Upon posting the video you can see the title by simply viewing the video in the full-screen mode. Just **tap on the center of the video** to start viewing it in full screen and **the title will be displayed in the left corner of the video**. Tap on the **drop-down arrow** next to the video’s title if you want to view the video’s description.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/change-igtv-video-title-description.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Editing titles, however, is only possible from a **web browser**, because the IGTV and Instagram apps still don’t offer this option. Go to your IGTV channel and **click on a video** you’d like to edit and then click on **the three-dot icon**. Select **the Edit Video option** from the menu and proceed to edit the video’s title by either clicking on the **Change Title or the Change Description** option. Don’t forget to click on the **Save button** to confirm the adjustments you’ve just made, and the text displayed in the **Title and Description boxes** will be automatically updated.
 
@@ -74,9 +68,20 @@ Besides add the Titles and Description for the IGTV videos when uploading, you c
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -84,12 +89,27 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-full-assessment-macs-screenflow-studio-experience-for-2024/"><u>[New] Full Assessment Mac's ScreenFlow Studio Experience for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-mastering-close-up-views-on-web-conferencing/"><u>[New] In 2024, Mastering Close-Up Views on Web Conferencing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-turning-back-the-clock-mastering-instagram-video-reverse-for-2024/"><u>[New] Turning Back the Clock Mastering Instagram Video Reverse for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-free-photo-enhancer-online-and-app-for-mobile-phone/"><u>[Updated] Best Free Photo Enhancer Online and App for Mobile Phone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-decoding-and-manipulating-gender-presentation-online-a-step-by-step-approach/"><u>[Updated] Decoding and Manipulating Gender Presentation Online A Step-by-Step Approach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-ultimate-list-of-6-instagram-reel-enhancers/"><u>[Updated] In 2024, The Ultimate List of 6 Instagram Reel Enhancers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-master-the-art-of-cutting-a-video-editors-handbook-for-instagram/"><u>[Updated] Master the Art of Cutting A Video Editor's Handbook for Instagram</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-immersive-storytelling-harnessing-top-10-text-innovations-in-videos/"><u>2024 Approved Immersive Storytelling Harnessing Top 10 Text Innovations in Videos</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/2024s-elite-selection-of-wireless-pointing-devices/"><u>2024'S Elite Selection of Wireless Pointing Devices</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-illuminating-path-to-stellar-android-video-quality/"><u>In 2024, Illuminating Path to Stellar Android Video Quality</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pioneering-scripts-reflecting-diverse-genre-themes/"><u>In 2024, Pioneering Scripts Reflecting Diverse Genre Themes</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-insiders-guide-to-youtube-editing-mastery-using-sony-vegas-software/"><u>In 2024, The Insider's Guide to YouTube Editing Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-non-responsive-touchpad-gestures-on-windows/"><u>Troubleshooting Non-Responsive Touchpad Gestures on Windows</u></a></li>
+</ul></div>
 

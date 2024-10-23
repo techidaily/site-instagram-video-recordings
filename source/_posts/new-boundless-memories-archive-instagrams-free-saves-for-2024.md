@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Boundless Memories Archive  Instagram’s Free Saves for 2024\""
-date: 2024-10-12T23:37:30.487Z
-updated: 2024-10-17T01:06:27.364Z
+date: 2024-10-17T19:01:35.380Z
+updated: 2024-10-22T17:58:22.866Z
 tags:
   - ai video
   - ai instagram
@@ -50,18 +50,25 @@ It is an online **Instagram Story Saver** tool and it is compatible with Windows
 
 ![instagram story saver tool](https://images.wondershare.com/filmora/article-images/instagram-story-saver-tool.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. [Storiesig (Online/Windows/Mac)](https://storiesig.com/)
 
 Storiesig is an online web application to save Instagram stories precisely. Here, you must copy the URL of your Insta account and paste it on the web page of the Storiesig. Finally, hit the ‘Download; button to trigger the storage procedure. You can navigate through the folders in your device and select the best locations to save the Instagram stories effectively. This program supports Windows, Mac, Android, and iPhone gadgets.
 
 ![stories ig instagram](https://images.wondershare.com/filmora/article-images/stories-ig-instagram2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. [Aloinstagram(Online/Windows/Mac)](https://aloinstagram.com/download-instagram-Stories/)
 
@@ -70,10 +77,10 @@ It is an exclusive program to save your favorite Instagram stories for reuse. Yo
 ![aloinstagram story saver](https://images.wondershare.com/filmora/article-images/aloinstagram-story-saver3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. [Ingramer(Online/Windows/Mac)](https://ingramer.com/tools/instagram-stories-downloader/)
@@ -89,17 +96,10 @@ This Instagram story saver app is compatible with Android, iPhone, Mac, and Wind
 ![instaview story saver](https://images.wondershare.com/filmora/article-images/instaview-me-save-story5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6. [Igstorie(Online/Windows/Mac)](https://igstories.app/)
@@ -107,6 +107,13 @@ This Instagram story saver app is compatible with Android, iPhone, Mac, and Wind
 It is a web application to save the Insta stories at your desired storage location without any issues. Visit the official webpage of this program and enter the Insta account username. Then, hit the ‘Download’ button to store the necessary Instagram stories on your devices. This application is compatible with Windows, Mac systems and it also supports Android and iPhone gadgets.
 
 ![igstorie instagram story saver](https://images.wondershare.com/filmora/article-images/igstorie-save-story6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7. [Storyinsta(Online/Android)](https://insta-stories.online/storyinsta)
 
@@ -119,19 +126,6 @@ It is the best **Instagram Story Saver** app where you can download the stories 
 After a successful download of your favorite Insta stories into your device, the next step would be making it more attractive through editing procedures. Wondershare Filmora is one of the best Instagram video editors to create persuasive videos and attract your followers in no time. There is a wide range of options to customize the Insta videos for better results. The user-friendly space of Wondershare Filmora assists you to build an extraordinary Instagram video and post it on the Insta platform without any issues.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Key Features of Wondershare Filmora:
 
@@ -148,37 +142,24 @@ Go to the official [Wondershare Filmora website](https://tools.techidaily.com/wo
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Import your Instagram videos**
 
 Press the **Import**\-**Import Media Files** option, and then navigate through your system drives and import your desired Instagram videos to Filmora.
 
 ![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Adjust the project aspect ratio to the Instagram mode**
 
 Drag and drop the video to the timeline, then go to ‘**File -> Project Settings**’, and adjust the Aspect Ratio to 1:1(Instagram).
 
 ![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Add a background color**
 
@@ -187,16 +168,10 @@ You will see black bars at the top and bottom of the video after you switch to t
 ![add background color to instagram video](https://images.wondershare.com/filmora/article-images/add-background-to-instagram-video3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 5: Add titles to the Instagram video**
@@ -210,6 +185,13 @@ Go to the   **‘Titles’** tab, select your desired title, add it to the timel
 Double click the title on the timeline, select **ADVANCED**, and you will be able to edit and animate the texts. Just click on **Customize** to change the text color, size, or opacity, etc. Or you can also go to the **Animation** tab to apply an animation to the text.
 
 ![edit and animate texts](https://images.wondershare.com/filmora/article-images/edit-and-customize-text5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 7: Export and upload your Instagram video**
 
@@ -238,24 +220,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-effortless-link-up-merging-instagram-posts-with-facebook/"><u>[New] 2024 Approved Effortless Link Up Merging Instagram Posts with Facebook</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-easy-ways-to-screen-record-instagram-story-for-2024/"><u>[New] Easy Ways to Screen Record Instagram Story for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-audiovisual-synergy-infusing-music-into-vimeo-creations/"><u>[New] In 2024, Audiovisual Synergy Infusing Music Into Vimeo Creations</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-ultimate-camera-clash-hero5-black-versus-session/"><u>[New] In 2024, Ultimate Camera Clash Hero5 Black Versus Session</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-influencing-instagram-step-by-step-tutorial/"><u>[New] Influencing Instagram Step-by-Step Tutorial</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-sound-seekers-sanctuary-download-and-listen-to-songs/"><u>[New] Sound Seeker's Sanctuary Download & Listen To Songs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-tutorial-on-permanently-removing-your-instagram-profile-for-2024/"><u>[New] The Ultimate Tutorial on Permanently Removing Your Instagram Profile for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-edit-titles-and-descriptions-of-igtv-videos/"><u>[Updated] 2024 Approved How to Edit Titles and Descriptions of IGTV Videos?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unlocking-the-potential-of-screenshotting-your-android-device/"><u>[Updated] 2024 Approved Unlocking the Potential of Screenshotting Your Android Device</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/1716069460973-updated-a-user-friendly-guide-to-seamless-collaboration-across-different-operating-systems-via-skype-group-chats-for-2024/"><u>[Updated] A User-Friendly Guide to Seamless Collaboration Across Different Operating Systems via Skype Group Chats. For 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-revolutionary-methods-for-breaking-barriers-in-gif-making/"><u>[Updated] Revolutionary Methods for Breaking Barriers in GIF Making</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-staying-above-copyright-infringement-insta-watermarks-explained/"><u>2024 Approved Staying Above Copyright Infringement Insta Watermarks Explained</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-the-elite-video-cameras-for-2-point-zero-four-two/"><u>2024 Approved Unveiling the Elite Video Cameras for 2 Point Zero Four Two</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/elevate-your-tiktok-videos-speedy-filming-secrets/"><u>Elevate Your TikTok Videos Speedy Filming Secrets</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/essential-vr-game-development-tools-for-modern-creators-for-2024/"><u>Essential VR Game Development Tools for Modern Creators for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-pop-sync-streamlining-song-placement-on-instagram-stories/"><u>In 2024, Pop Sync Streamlining Song Placement on Instagram Stories</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/masterclass-in-design-upgrading-igtv-backgrounds-for-2024/"><u>Masterclass in Design Upgrading IGTV Backgrounds for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/practical-tips-to-store-your-favorite-instagram-reels/"><u>Practical Tips to Store Your Favorite Instagram Reels</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-tale-of-two-sides-in-the-vr-revolution-for-2024/"><u>The Tale of Two Sides in the VR Revolution for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-cutting-edge-tools-for-igtv-content-creation-and-editing-for-2024/"><u>[New] Cutting-Edge Tools for IGTV Content Creation and Editing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cut-costs-enhance-visuals-free-banners-for-video-makers/"><u>[New] In 2024, Cut Costs, Enhance Visuals – Free Banners for Video Makers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-enrich-social-media-content-with-auto-generated-speech/"><u>[New] In 2024, How to Enrich Social Media Content with Auto-Generated Speech</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-injecting-external-urls-into-instagram-content/"><u>[New] In 2024, Injecting External URLs Into Instagram Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-leading-tag-tracker-software-on-major-platforms-like-fb-tweet-and-insta/"><u>[New] In 2024, Leading Tag Tracker Software on Major Platforms Like FB, Tweet & Insta</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-unleash-creativity-on-screen-discover-the-best-reactions/"><u>[New] In 2024, Unleash Creativity on Screen Discover the Best Reactions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instamixer-uniting-android-and-ios-photo-sessions/"><u>[Updated] 2024 Approved InstaMixer Uniting Android & iOS Photo Sessions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-viral-visibility-vault-our-compreeher-guide-of-15-proven-methods-to-amass-attention-on-instagram/"><u>[Updated] 2024 Approved Viral Visibility Vault Our Compreeher Guide of 15 Proven Methods to Amass Attention on Instagram</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-live-feed-obs-on-instagram-app/"><u>[Updated] In 2024, Live Feed OBS on Instagram App</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-easter-eggs-unlocking-the-secretive-tricks-and-tips/"><u>[Updated] Instagram Easter Eggs Unlocking the Secretive Tricks and Tips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-quick-tips-for-trending-topic-inquiry-on-instagram-stories/"><u>[Updated] Quick Tips for Trending Topic Inquiry on Instagram Stories</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unlocking-zooms-potential-learn-how-to-use-video-filters/"><u>[Updated] Unlocking Zoom's Potential Learn How to Use Video Filters</u></a></li>
+<li><a href="https://win-web3.techidaily.com/44cm44op44o844oj44oh44kj44k544kv44gu5lin5yw35zci44gm6kal44gk44gl44kk44gplus44gx44gf44cn44go44ge44gg44oh44od44k744o844k444ks5ywl5pyn44gz44kl5pa55rov/"><u>「ハードディスクの不具合が見つかりました」というメッセージを克服する方法</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-download-youtube-playlist-step-by-step/"><u>2024 Approved How to Download YouTube Playlist-Step by Step!</u></a></li>
+<li><a href="https://common-error.techidaily.com/code-blocking-mechanism-engaged/"><u>Code Blocking Mechanism Engaged</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/incorporating-music-seamlessly-in-projects-with-premiere-pro-for-2024/"><u>Incorporating Music Seamlessly in Projects with Premiere Pro for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/steal-the-deal-acers-34-wqhd-curved-monitor-for-a-steal-at-just-200-newegg-exclusive/"><u>Steal the Deal: Acer's 34 WQHD Curved Monitor for a Steal at Just $200 - Newegg Exclusive</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/understanding-instagrams-video-restriction/"><u>Understanding Instagram's Video Restriction</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-erase-identity-concerns-best-video-editors-for-face-anonymization-for-2024/"><u>Updated Erase Identity Concerns Best Video Editors for Face Anonymization for 2024</u></a></li>
 </ul></div>
 

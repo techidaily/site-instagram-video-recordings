@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Post a Link on Instagram Stories and Posts for 2024"
-date: 2024-10-11T21:47:21.894Z
-updated: 2024-10-16T18:37:30.242Z
+date: 2024-10-21T20:55:11.144Z
+updated: 2024-10-22T21:15:36.416Z
 tags:
   - ai video
   - ai instagram
@@ -41,6 +41,13 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 * [Add a link to main post](#part2)
 * [Add a link in bio](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Section 1: Add a link to Instagram Stories – for verified accounts or business profiles
 
  The first method in this segment is adding a link to Instagram through Instagram Stories. The main point here is, one needs to have a verified account by Instagram or a [business profil](https://tools.techidaily.com/wondershare/filmora/download/) with at least 10000 followers. Without either of them, it is not possible to share a link with call to action.
@@ -48,10 +55,16 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You need to be very popular in order to get your account verified by Instagram to avail this opportunity. It's a big thing to get that, unless you are a public figure. Alternatively, you can just have a text overlay that displays your URL, though, it is not clickable. Future updates might support sharing links on Instagram Stories for all.
@@ -72,19 +85,6 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-0.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3** – You need to click 'Continue' to move forward, in order to make the profile a business one.
 
 **Step 4** \- Browse any picture in your profile and click the blue color 'Promotion' button to get diverted to 'Facebook'. Add a link there and checkout with payment.
@@ -97,16 +97,16 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 
 ![](https://images.wondershare.com/filmora/article-images/add-link-to-ins-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 1** – Post a picture on Instagram and under the description section mention 'Link in bio' and upload it.
 
 **Step 2** – Under the profile description part, update the 'URL' and then save it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Benefits of using links for your Instagram
 
@@ -122,16 +122,10 @@ _I have recently launched my fitness website and its YouTube channel as well. Ca
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -149,20 +143,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-boosting-your-posts-secrets-for-viral-instagram-videos/"><u>[New] Boosting Your Posts Secrets for Viral Instagram Videos</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-mp3-recording-made-simple-with-skype-for-free/"><u>[New] MP3 Recording Made Simple with Skype for FREE</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-verifying-online-self-portraits-on-insta/"><u>[New] Verifying Online Self-Portraits on Insta</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-superior-web-recording-gear/"><u>[Updated] 2024 Approved Superior Web Recording Gear</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-expert-guide-to-overcoming-instagrams-video-obstacles-for-2024/"><u>[Updated] Expert Guide to Overcoming Instagram's Video Obstacles for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-list-of-10-invisible-stories-watchers/"><u>[Updated] List of 10 Invisible Stories Watchers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-video-load-times-desktop-advice/"><u>[Updated] Mastering Instagram Video Load Times Desktop Advice</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-art-of-initiating-an-e-giving-event-on-facebook/"><u>2024 Approved The Art of Initiating an E-Giving Event on Facebook</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/historical-context-of-instagram-stories-not-widely-known-for-2024/"><u>Historical Context of Instagram Stories Not Widely Known for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-realme-gt-neo-5-se-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Realme GT Neo 5 SE Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-nokia-c210-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Nokia C210 to PC? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721464522471-iphone-home-button-troubles-here-are-5-fast-solutions/"><u>IPhone Home Button Troubles? Here Are 5 Fast Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/winxdvd-dvdiphone/"><u>WinXDVD官方應用程式 | 高效率DVD拆瓶機能，電影轉制器，iPhone連接支持</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-tips-for-recording-high-quality-mov-video-on-windows-11/"><u>[New] 2024 Approved Tips for Recording High-Quality MOV Video on Windows 11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-expanding-your-instagram-video-footprint-practical-tips-for-2024/"><u>[New] Expanding Your Instagram Video Footprint Practical Tips for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-essential-11-guides-to-expert-color-grading-and-correction/"><u>[New] In 2024, Essential 11 Guides to Expert Color Grading and Correction</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-your-step-by-step-roadmap-for-instagrams-latest-feature-sharing-gifs/"><u>[New] In 2024, Your Step-by-Step Roadmap for Instagram's Latest Feature - Sharing GIFs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-best-instagram-highlights-covers-apps/"><u>[Updated] Best Instagram Highlights Covers Apps</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-exploring-the-efficiency-of-modern-tunefab-recorders/"><u>[Updated] Exploring the Efficiency of Modern Tunefab Recorders</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-freedom-in-memories-your-instagrams-savior-for-2024/"><u>[Updated] Freedom in Memories Your Instagram's Savior for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-aspect-ratio-woes-to-winning-instagram-square-video-for-2024/"><u>[Updated] From Aspect Ratio Woes to Winning Instagram Square Video for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-instagram-narratives-through-captioning/"><u>[Updated] In 2024, Mastering Instagram Narratives Through Captioning</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-insta-cover-chronicles-top-tier-tech-edition-for-2024/"><u>[Updated] Insta Cover Chronicles Top-Tier Tech Edition for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mirthful-melodies-comical-cover-tunes-for-2024/"><u>[Updated] Mirthful Melodies Comical Cover Tunes for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-rotating-realities-your-guide-to-instagram-vision-for-2024/"><u>[Updated] Rotating Realities Your Guide to Instagram Vision for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-transitioning-instagram-video-to-mp3-format/"><u>[Updated] Transitioning Instagram Video to Mp3 Format</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/easily-change-user-folder-names-in-the-latest-w11/"><u>Easily Change User Folder Names in the Latest W11</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-hourly-video-footage-gb-needed-per-day/"><u>In 2024, Hourly Video Footage GB Needed Per Day</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Infinix Smart 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-your-conversation-with-chatgpt-secure-opting-out-instructions-inside/"><u>Is Your Conversation with ChatGPT Secure? Opting Out Instructions Inside!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-how-to-safely-eliminate-drm-protection-from-epub-pdf-and-azw-digital-books/"><u>Step-by-Step Guide: How to Safely Eliminate DRM Protection From EPUB, PDF, and AZW Digital Books</u></a></li>
 </ul></div>
 

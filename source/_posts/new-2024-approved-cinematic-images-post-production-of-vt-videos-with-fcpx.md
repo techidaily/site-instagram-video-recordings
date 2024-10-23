@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cinematic Images  Post-Production of VT Videos with FCPX\""
-date: 2024-07-26T04:15:57.230Z
-updated: 2024-07-27T04:15:57.230Z
+date: 2024-10-20T20:30:03.446Z
+updated: 2024-10-22T17:15:29.888Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/1cfdb45880b22613393e076dccb2e4b9121be109b
 
 # How to Edit Vertical Videos for Instagram in Final Cut Pro X ?
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -36,9 +33,6 @@ Luckily, you can edit vertical video in **Final Cut Pro** or make an Instagram v
 
 You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
 ## Part 1: Introduction to Vertical Videos for Instagram
@@ -57,8 +51,12 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
 
 Thus, to edit vertical video for Instagram in Final Cut Pro X, all you need is to follow the steps given below. We have also covered how to export vertical videos for Instagram in FCPX without black bars.
@@ -95,14 +93,21 @@ Go to “File > Share > Apple Devices 1080p”, where you can check the resoluti
 
 Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Tips on Editing Vertical Videos for Instagram
 
 Are you now satisfied that now you know how to edit vertical video for Instagram in Final Cut Pro on Mac? Here is another bonus section regarding tips on vertical videos for Instagram in addition to the video specs. Read through them as we have covered how to make vertical videos stunning for Instagram.
@@ -120,13 +125,24 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -134,12 +150,31 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-elevating-videogame-recording-the-steam-methodology-for-2024/"><u>[New] Elevating Videogame Recording The Steam Methodology for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-step-by-step-uploading-videos-to-instagram-on-desktop/"><u>[Updated] 2024 Approved Step-by-Step Uploading Videos to Instagram on Desktop</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-square-it-up-your-complete-guide-to-instagram-ready-videos-in-imovie-for-2024/"><u>[Updated] Square It Up! Your Complete Guide to Instagram-Ready Videos in iMovie for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-influence-unleashed-5-crucial-steps-to-thriving-on-instagram-marketing/"><u>2024 Approved Influence Unleashed 5 Crucial Steps to Thriving on Instagram Marketing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagrams-abandoned-followers-map/"><u>2024 Approved Instagram's Abandoned Followers Map</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-leveraging-likes-and-shares-for-viral-content/"><u>2024 Approved Leveraging Likes and Shares for Viral Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-instagram-gurus-playbook-5-game-changing-strategies-and-outcomes/"><u>2024 Approved The Instagram Guru’s Playbook 5 Game Changing Strategies and Outcomes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unlocking-the-hidden-power-of-instagrams-ask-emoji/"><u>2024 Approved Unlocking the Hidden Power of Instagram’s Ask Emoji</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtubes-prime-stream-essential-tech-equipment-guide-for-creators/"><u>2024 Approved YouTube's Prime Stream Essential Tech, Equipment Guide for Creators</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-vivo-y100a-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Vivo Y100A.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-lenovos-budget-android-tablet-pros-and-cons/"><u>Comprehensive Review of Lenovo's Budget Android Tablet: Pros & Cons</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/downloadable-instagram-footage-tech-tips-for-computers-and-macs/"><u>Downloadable Instagram Footage Tech Tips for Computers & Macs</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/expertenrat-fur-die-umwandlung-von-mp4-auf-dvd-lass-dich-durch-unseren-umfassenden-leitfaden-fuhren/"><u>Expertenrat Für Die Umwandlung Von MP4 Auf DVD: Lass Dich Durch Unseren Umfassenden Leitfaden Führen!</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-11-pro-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 11 Pro Max without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/oceans-bounty-best-cameras-for-anglers-for-2024/"><u>Ocean's Bounty - Best Cameras for Anglers for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/overcoming-no-initialization-directx-9-issue-quickly/"><u>Overcoming 'No Initialization DirectX 9' Issue Quickly</u></a></li>
+<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-oneplus-nord-n30-se-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On OnePlus Nord N30 SE | Dr.fone</u></a></li>
+</ul></div>
 

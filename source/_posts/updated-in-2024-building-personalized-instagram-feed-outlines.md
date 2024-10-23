@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Building Personalized Instagram Feed Outlines"
-date: 2024-10-11T04:15:16.910Z
-updated: 2024-10-16T16:08:55.777Z
+date: 2024-10-15T18:42:16.249Z
+updated: 2024-10-22T16:27:16.617Z
 tags:
   - ai video
   - ai instagram
@@ -55,6 +55,13 @@ Once you are on the website, create your free account if you do not have one, an
 
 ![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
 
 **Step 3: Select a background color or photo**
@@ -64,10 +71,10 @@ Canva provides fully customizable templates for highlight cover, you can drag on
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
@@ -81,10 +88,10 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 ![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
@@ -99,13 +106,6 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
 Before you upload the highlight covers on Instagram, ensure you turn on the Archive feature. Go to your Instagram settings and select the story settings and then turn on the Save to Archive. This enables you to see your old stories without downloading them.
@@ -119,13 +119,6 @@ As we said before, you should transfer the created highlight cover photos from d
 If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
 
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Tips for making better Instagram Highlight cover
 
@@ -151,6 +144,13 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -166,24 +166,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-decoding-youtubes-algorithm-the-role-of-keyword-optimization/"><u>[New] Decoding YouTube's Algorithm The Role of Keyword Optimization</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-explore-the-best-instagram-video-editors-for-android-devices/"><u>[New] Explore the Best Instagram Video Editors for Android Devices</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-maximize-engagement-insider-secrets-to-youtube-seo/"><u>[New] In 2024, Maximize Engagement Insider Secrets to YouTube SEO</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-secrets-of-instagram-igniting-content-passion/"><u>[New] In 2024, Secrets of Instagram Igniting Content Passion</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-instagram-rising-video-view-counts-for-2024/"><u>[New] Mastering Instagram Rising Video View Counts for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-revolutionize-your-ig-feed-with-these-elite-grid-creation-apps/"><u>[New] Revolutionize Your IG Feed with These Elite Grid Creation Apps</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-critiquing-the-validation-status-of-online-instagramselfies/"><u>[Updated] 2024 Approved Critiquing the Validation Status of Online Instagramselfies</u></a></li>
-<li><a href="https://win11.techidaily.com/boosting-wsl-2-streamline-docker-usage/"><u>Boosting WSL 2: Streamline Docker Usage</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tial-youtube-thumbnails-capture-your-top-views-for-2024/"><u>Essential YouTube Thumbnails Capture Your Top Views for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/exploring-igtv-a-beginners-primer-for-social-media-success-for-2024/"><u>Exploring IGTV A Beginner's Primer for Social Media Success for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-a-deep-dive-into-samsungs-picture-perfection-app/"><u>In 2024, A Deep Dive Into Samsung's Picture Perfection App</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-cross-platform-guide-to-transforming-photographic-genders-online/"><u>In 2024, Cross-Platform Guide to Transforming Photographic Genders Online</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-access-to-exclusive-snapshots/"><u>In 2024, Mastering Access to Exclusive Snapshots</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-speedy-social-stardom-likes-plus-videos-on-instagram-guide/"><u>In 2024, Speedy Social Stardom Likes + Videos on Instagram Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-digital-drawing-embrace-4-essential-updates-to-paint/"><u>Mastering Digital Drawing - Embrace 4 Essential Updates to Paint</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/quick-download-installing-xbox-wireless-adapter-drivers-made-simple/"><u>Quick Download: Installing Xbox Wireless Adapter Drivers Made Simple</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-fix-guide-for-corrupted-zip-files-on-windows-11/"><u>Quick-Fix Guide for Corrupted ZIP Files on Windows 11</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-toolbox-for-unraveling-instagrams-hidden-data/"><u>The Ultimate Toolbox for Unraveling Instagram's Hidden Data</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlock-your-creative-potential-an-overview-of-final-cut-pro-for-2024/"><u>Unlock Your Creative Potential An Overview of Final Cut Pro for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevate-your-content-perfecting-videos-on-instagram/"><u>[New] Elevate Your Content Perfecting Videos on Instagram</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-full-mastery-guide-adobe-cloud-and-its-rival-services/"><u>[New] Full Mastery Guide Adobe Cloud and Its Rival Services</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-metrics-top-10-instagram-tags-right-now/"><u>[New] Mastering Metrics Top 10 Instagram Tags Right Now</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-optimizing-engagement-on-instagram-with-youtube-story-features/"><u>[New] Optimizing Engagement on Instagram with YouTube Story Features</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-efficient-mac-video-resizing-to-fixed-ratio/"><u>[Updated] Efficient Mac Video Resizing to Fixed Ratio</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-fine-tune-video-quality-for-instagram-excellence-for-2024/"><u>[Updated] Fine-Tune Video Quality for Instagram Excellence for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-how-to-navigate-virtual-realities-without-nausea/"><u>[Updated] In 2024, How to Navigate Virtual Realities without Nausea</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-expressive-leadership-examination-refined-no-8/"><u>2024 Approved Expressive Leadership Examination - Refined No. 8</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-photographic-sparkle-essential-ideas-for-inspired-posts/"><u>2024 Approved Photographic Sparkle Essential Ideas for Inspired Posts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/cutting-edge-platform-for-12-video-live-feeds-for-2024/"><u>Cutting-Edge Platform for 12 Video Live Feeds for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/dragon-age-origins-stability-fix-for-windows-10-users/"><u>Dragon Age: Origins Stability Fix for Windows 10 Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-content-creator-to-cash-magnet-instagrams-guide/"><u>From Content Creator to Cash Magnet Instagram's Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/goofy-bliss-classic-film-revisited-for-2024/"><u>Goofy Bliss Classic Film Revisited for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-digital-portraits-proven-the-science-of-social-snap-validation/"><u>In 2024, Digital Portraits Proven The Science of Social Snap Validation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-expert-tips-top-free-tools-to-extract-and-save-instagram-videos-windowsos-x/"><u>In 2024, Expert Tips Top Free Tools to Extract and Save Instagram Videos (Windows/OS X)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-photo-perfection-applying-stylish-borders/"><u>In 2024, Instagram Photo Perfection Applying Stylish Borders</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tender-tracks-ideal-music-to-accompany-a-lifelayer-change/"><u>In 2024, Tender Tracks Ideal Music to Accompany a Lifelayer Change</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-27000mah-chargetech-battery-pack-top-capacity-choice/"><u>In-Depth Analysis of the 27000mAh ChargeTech Battery Pack: Top Capacity Choice</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/maximizing-reach-sharing-igtv-to-fb-4-methods-for-2024/"><u>Maximizing Reach Sharing IGTV to FB (4 Methods) for 2024</u></a></li>
 </ul></div>
 

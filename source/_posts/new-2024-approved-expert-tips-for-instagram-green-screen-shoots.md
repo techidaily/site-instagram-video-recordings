@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Expert Tips for Instagram Green Screen Shoots\""
-date: 2024-07-26T04:17:03.199Z
-updated: 2024-07-27T04:17:03.199Z
+date: 2024-10-20T19:54:22.592Z
+updated: 2024-10-22T22:16:01.029Z
 tags:
   - ai video
   - ai instagram
@@ -35,9 +35,6 @@ Green screen IG is a unique effect that can be used to add special effects to yo
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: How to Use Green Screen Effects in IG
 
 **Instagram green screen** is one of the most talked-about things about Instagram since last year. It enables a Hollywood-style effect for backgrounds while you're sitting at your home. You can now virtually travel to different destinations by using the green screen effect. You can also import other stickers and classic posters in your background with the help of the green-screen product.
@@ -46,27 +43,32 @@ The green background can be replaced with various sceneries or any kind of backg
 
 If you have not heard of the green screen effect of Instagram yet, then don't worry. This is the perfect time to know how to use this effect on Instagram, and for this, we have got you covered. In this part, we will discuss a stepwise method to use the green screen Instagram effect. So, let's get started:
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step1: Launch Instagram
 
 First things first, launch the Instagram app on your phone to get started. Now click on the little **\+** icon on your profile picture to start an Instagram story.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Step 2: Browse Effect Option
 
 You'll see an effect prompt, and then you need to swipe to the right until you get the **Browse Effects** option.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 3: Search Green Screen
 
 Now tap on the search option and type **Green Screen.** Several effects will come after the search, but we need the Instagram green-screen effect, i.e., the one offered by Instagram. Bookmark that effect to save it for use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Ins Green Screen Filters](https://images.wondershare.com/filmora/article-images/instagram-green-screen-filters.jpg)
 
 ### Step 4: Tap on Add Media
@@ -75,14 +77,25 @@ Tap on the **Add Media** option to add the background. Upload a video or an imag
 
 ![add Ins Green Screen Filters](https://images.wondershare.com/filmora/article-images/add-media-instagram-green-screen-filter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 6: Add to the Story or Download it
 
 Now either add it to your Instagram story by tapping on the bottom left option or download it to your phone's library by clicking on the **Download** option.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![download Ins Green Screen video](https://images.wondershare.com/filmora/article-images/download-green-screen-video-from-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Use the Green Screen on Instagram Reel
 
@@ -92,20 +105,21 @@ The green screen feature on Instagram Reels allows you to add virtual background
 
 Several creators have uploaded their green screen filters for Instagram Reels. Moreover, Instagram has also officially made a green screen effect for its users. But you need to know how to use the green screen on Instagram Reel before you get started with it. The following steps can assist you in that:
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Launch the app
 
 You have to **launch the Instagram app** on your phone to use the green screen Instagram effect.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Step 2: Tap on the Story
 
 Click on **Profile Picture** on the top left, named as your story, to start it. Now, swipe right until you see the **Reels** option.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 3: Select Reels
 
 Now select the **Reels** option. A panel will appear on the right side, and then you need to choose **Effects** from it. Remember that the green screen effect is not already provided, so you have to search for it. Swipe all the way to the right until you get to the **Browse Effects** option.
@@ -114,18 +128,12 @@ Now select the **Reels** option. A panel will appear on the right side, and then
 
 Now, search **Green Screen** in the search menu and click the first option to see the official green screen ig effect. Now **download** the effect using the download the option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Step 5: Add Media
 
 Now upload your media using **Add Media** option. Now drag yourself where you want to see yourself. You can also add stickers or GIFs as a background. After that, you're all set for your Reels video.
 
 The video below shares some of the interesting green screen tricks, don't miss it.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 3: How to Remove Background from Instagram Video without Green Effect Effects
@@ -142,24 +150,39 @@ However, Instagram also supports landscape videos, portrait videos, and square v
 
 **Al Portrait in Filmora** is the best way to remove the background of an Instagram video without Green Screen Instagram effects. It can remove the background of IGTV video without affecting its movement and lighting. The following steps can assist you in knowing how to use it for removing the background.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Import Media
 
 Import the media you want to upload on Instagram to Filmora. Then select **AI Portrait** from **Effects** in the menu.
 
 ![add media to Filmora](https://images.wondershare.com/filmora/article-images/add-media-remove-video-bg.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Add the AI Portrait Effect to Remove Video Background
 
 Al Portrait is not a free module, so either you have to **Purchase** it or **Try it for free**. There are various assets under AI Portrait, to remove the video background and isolate the human, you need to add Human Segmentation to the timeline. **Play the video** once to check the segmentation of the effects that you have applied to your video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![add human segmentation effects in  Filmora](https://images.wondershare.com/filmora/article-images/add-human-segmentation-to-remove-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Step 3: Adjust Effects
 
 Different effects have different settings so that you can adjust the effects according to your convenience. You have to **double click** the video in the timeline and then go to the Video Effects to adjust the **Percentage, Edge thickness, Edge Feature, and Alpha** setting of the effect. You can also restore the changes you've made by selecting the **Restore** button.
@@ -168,9 +191,6 @@ Different effects have different settings so that you can adjust the effects acc
 
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![compose green screen video](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
 
 ### Step 4: Export the video
@@ -185,9 +205,6 @@ Instagram has opened up a gateway by launching the **green screen Instagram** ef
 
 To solve this problem, we have covered a step-by-step guide for using the green screen effect on Instagram. We highly recommend Al portrait of Filmora to remove the background seamlessly and quickly to achieve a high-quality final video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -196,12 +213,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-capture-and-replay-screen-recording-for-instagram-stories/"><u>[New] 2024 Approved Capture and Replay Screen Recording for Instagram Stories</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-comedy-the-art-of-parody-videos/"><u>[New] 2024 Approved Crafting Comedy The Art of Parody Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-make-every-instagram-story-count-your-complete-guide/"><u>[New] How to Make Every Instagram Story Count – Your Complete Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-latest-leap-in-tech-samsungs-ultrablade-k850-update/"><u>[New] In 2024, Latest Leap in Tech - Samsung's UltraBlade K850 Update</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-your-influence-amidst-changing-social-media-ecosystem/"><u>[New] In 2024, Mastering Your Influence Amidst Changing Social Media Ecosystem</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-quantifying-igtv-engagement-and-outreach/"><u>[New] In 2024, Quantifying IGTV Engagement and Outreach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhancing-engagement-on-igtv-with-well-oriented-videos/"><u>[Updated] Enhancing Engagement on IGTV with Well-Oriented Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-smooth-integration-of-vimeo-videos-into-instagram/"><u>[Updated] In 2024, Smooth Integration of Vimeo Videos Into Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-insiders-look-at-youtube-content-regulations/"><u>[Updated] In 2024, The Insider's Look at YouTube Content Regulations</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-rise-in-popularity-top-10-instagram-hashtags-for-now-for-2024/"><u>[Updated] Rise in Popularity Top 10 Instagram Hashtags for Now for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722978439447-download-key-gigabyte-z370p-performance-drivers-here/"><u>Download Key Gigabyte Z370P Performance Drivers Here</u></a></li>
+<li><a href="https://techtrends.techidaily.com/enhancing-account-safety-on-facebook-by-altering-your-access-code/"><u>Enhancing Account Safety on Facebook by Altering Your Access Code</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/fresh-selection-of-engagement-prompts-for-audio-audiences-for-2024/"><u>Fresh Selection of Engagement Prompts for Audio Audiences for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-speedy-instagram-video-views-desktop-methods/"><u>In 2024, Speedy Instagram Video Views Desktop Methods</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722154454257-level-up-gaming-skills-with-these-top-chatgpt-games/"><u>Level Up Gaming Skills with These Top ChatGPT Games!</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/mac-restoration-mending-the-system-halt-crisis/"><u>Mac Restoration: Mending the System Halt Crisis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-the-ultimate-list-of-2024s-finest-17-inch-laptop-models/"><u>Top Picks: The Ultimate List of 2024'S Finest 17-Inch Laptop Models</u></a></li>
+</ul></div>
 
