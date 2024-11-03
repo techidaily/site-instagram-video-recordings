@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Guide to Using Instagram Filters and Icons for 2024\""
-date: 2024-10-19T20:16:13.877Z
-updated: 2024-10-22T20:46:15.653Z
+date: 2024-10-31T19:06:02.888Z
+updated: 2024-11-03T03:07:53.361Z
 tags:
   - ai video
   - ai instagram
@@ -61,10 +61,16 @@ First things first, **Launch** the Instagram app. Click on **Your Story** at the
 ![Add instagram sticker ](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Click on Stickers and Add Sticker to Story
@@ -88,6 +94,60 @@ You don’t need to depend on the built-in Instagram Stickers; you can create yo
 Moreover, the majority of the people are not aware of how to add stickers in Instagram of their own, but no need to worry about that anymore. Just follow the steps below to create your stickers:
 
 <!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Step 1: Create a Story
+
+Launch the Instagram app, and start a story by clicking on the **Your Story** option. Then either take a photo or upload one from your Phone’s Gallery.
+
+### Step 2: Tap on Sticker Option and Add Picture
+
+After you are done with the picture uploading, tap on the **Stickers** option at the top right of the screen. Several stickers will appear. You need to tap on the **‘’add picture’’** option, as shown in the picture below.
+
+![  Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Step 3: Choose the picture as sticker
+
+You’ll be redirected to your phone’s gallery. Choose the picture you want to add as a sticker on the story, and the sticker will be added.
+
+![  Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
+
+**Note:** You can also move it on the screen by **holding and dragging it**.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 4: Most Popular Types of Instagram Stickers
+
+Instagram Stickers comes in a wide variety, and since it’s a social media network, it keeps getting updated very frequently. Hence, it is hard to determine the exact number and type of stickers available. But, we have listed the main types of stickers that are currently featured on the app. Pick the one you like and start engaging with your audience.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 1\.  Quiz Sticker
+
+Quiz Sticker allows you to ask multiple-choice questions from your followers. It allows you to customize answers as well. You can also find a random question by clicking on dice at the bottom.
+
+<!-- affiliate ads begin -->
 <span id="1793213">
 					<video width="864" height="1296" style="cursor:pointer"
            poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
@@ -100,63 +160,9 @@ Moreover, the majority of the people are not aware of how to add stickers in Ins
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-### Step 1: Create a Story
-
-Launch the Instagram app, and start a story by clicking on the **Your Story** option. Then either take a photo or upload one from your Phone’s Gallery.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Step 2: Tap on Sticker Option and Add Picture
-
-After you are done with the picture uploading, tap on the **Stickers** option at the top right of the screen. Several stickers will appear. You need to tap on the **‘’add picture’’** option, as shown in the picture below.
-
-![  Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Step 3: Choose the picture as sticker
-
-You’ll be redirected to your phone’s gallery. Choose the picture you want to add as a sticker on the story, and the sticker will be added.
-
-![  Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
-
-**Note:** You can also move it on the screen by **holding and dragging it**.
-
-## Part 4: Most Popular Types of Instagram Stickers
-
-Instagram Stickers comes in a wide variety, and since it’s a social media network, it keeps getting updated very frequently. Hence, it is hard to determine the exact number and type of stickers available. But, we have listed the main types of stickers that are currently featured on the app. Pick the one you like and start engaging with your audience.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 1\.  Quiz Sticker
-
-Quiz Sticker allows you to ask multiple-choice questions from your followers. It allows you to customize answers as well. You can also find a random question by clicking on dice at the bottom.
-
 ### 2\.  Question Sticker
 
 Your followers can ask questions from you with the help of this sticker. You can ask your followers to recommend you some songs and movies by using this sticker. This sticker is a great way to interact with your followers and let them ask whatever they want from you.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\.  Donation Sticker
 
@@ -165,6 +171,13 @@ A donation sticker allows a person to donate to non-profits. You can choose a no
 ### 4\.  Countdown Sticker
 
 This sticker enables you to start a countdown for an important event or moment. You can customize the time, date, name, and color to make it look better. For example, you can start a countdown for your friend’s birthday.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\.  Poll Sticker
 
@@ -180,16 +193,16 @@ Music sticker allows you to add songs and lyrics to your Instagram Story. You ca
 
 Want to add music to Instagram?Check this article to learn more about [how to add music on Instagram with or without music sticker](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\.  Selfie Sticker
 
 You can share your selfies in a rounded form on your Instagram Story. This rounded shape sticker was launched in late 2020, and since then, it has changed the concept of sharing selfies in Instagram Stories. The Instagram stories are now more engaging and fun due to this selfie sticker.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\.  Location Sticker
 
@@ -207,13 +220,6 @@ But many people do not know **how to add stickers to Instagram** or create one o
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -229,16 +235,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-insiders-guide-to-mastering-igtv/"><u>[New] In 2024, The Insider's Guide to Mastering IGTV</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-integrating-your-vimeo-videos-into-instagram-for-2024/"><u>[Updated] Integrating Your Vimeo Videos Into Instagram for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-popular-pictures-the-backstage-story/"><u>[Updated] Popular Pictures The Backstage Story</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-best-9-screen-free-adventures-in-mobile-gaming-android-edition/"><u>2024 Approved Best 9 Screen-Free Adventures in Mobile Gaming (Android Edition)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-secret-behind-crafting-mesmerizing-slow-motion-media-for-instagram/"><u>2024 Approved The Secret Behind Crafting Mesmerizing Slow Motion Media for Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-streamlining-social-media-posting-vimeo-on-instagram/"><u>In 2024, Streamlining Social Media Posting Vimeo on Instagram</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Oppo A79 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-linguistic-landscapes-discovering-squid-game/"><u>Journey Through Linguistic Landscapes: Discovering Squid Game</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/openai-explained-everything-you-need-to-know/"><u>OpenAI Explained: Everything You Need to Know</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ditors-top-list-best-portable-devices-for-visual-storytelling-for-2024/"><u>Pro-Editors' Top List Best Portable Devices for Visual Storytelling for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-technique-accessing-the-macos-recovery-on-a-mac-computer/"><u>Ultimate Technique: Accessing the macOS Recovery on a Mac Computer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-exclusive-list-of-top-hd-video-player-apps-android/"><u>[New] In 2024, Exclusive List of Top HD Video Player Apps, Android</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-enhancing-productivity-how-to-master-screen-capture-on-an-hp-device/"><u>[Updated] Enhancing Productivity How to Master Screen Capture on an HP Device</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-exploring-the-merits-of-obs-studio-and-fraps-for-recording-screens-for-2024/"><u>[Updated] Exploring the Merits of OBS Studio & Fraps for Recording Screens for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-step-by-step-guide-to-mastering-streamlabs-obs-usage/"><u>[Updated] In 2024, Step-by-Step Guide to Mastering Streamlabs OBS Usage</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-reel-mastery-made-simple-with-these-free-apps-to-manage-instagram-videos-for-2024/"><u>[Updated] Reel Mastery Made Simple with These Free Apps to Manage Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-efficient-strategies-for-instagram-to-mp3-transformation/"><u>In 2024, Efficient Strategies for Instagram to Mp3 Transformation</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-plus-without-swiping-up-6-ways-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 7 Plus Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/insta-growth-hacks-todays-essential-hashtags-guide-for-2024/"><u>Insta Growth Hacks Today's Essential Hashtags Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-initiating-instagram-live-shows/"><u>Step-by-Step Initiating Instagram Live Shows</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Lenovo Tab 4: Great Value but with Some Downsides in an Android Tablet"
-date: 2024-10-21T17:52:22.155Z
-updated: 2024-10-28T16:28:45.801Z
+date: 2024-10-27T22:08:08.533Z
+updated: 2024-11-03T08:51:23.357Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Lenovo Tab 4: Great Value but with Some Downsides in an Android Tablet"
@@ -37,13 +37,6 @@ Lifewire / Jeremy Laukkonen
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6438584.p) [View On Lenovo](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.lenovo.com%2Fus%2Fen%2Ftablets%2Fandroid-tablets%2Flenovo-tab-series%2FTab-M10-HD-2nd-Gen%2Fp%2FWMD00000427)
 
 4.2
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lenovo Tab M10 HD (2nd Gen)
 
@@ -134,13 +127,6 @@ Lifewire / Jeremy Laukkonen
 
  These results aren’t very surprising, but they do indicate that you’re unlikely to have that great experience playing complex games on this tablet. If you’re looking for a tablet to run in Google Kids Space, it will run most of those games pretty well. If you’re looking to play anything that’s demanding on a graphics level, keep looking. Even Lenovo’s similarly-equipped Tab M10 FHD Plus performs significantly better in this department.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Productivity: Best suited to basic tasks
 
  There are two versions of this tablet: the Tab M10 HD, and the Smart Tab M10 HD. They are identical in terms of both internal hardware and external design. The difference is that the Smart Tab M10 HD comes with a dock, and the Tab M10 HD doesn’t. With its dock and integrated[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) voice controls, the Smart Tab M10 HD gets higher marks in terms of productivity than the Tab M10 HD.
@@ -149,14 +135,20 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/jC-nIsNjG_LVHXw3eP-5D_jO_fY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_03-dad5bfce705b4e0c891a4088b2b77b10.jpg)
 
-Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Jeremy Laukkonen
 
 ## Audio: Decent stereo sound with support for Dolby Atmos
 
@@ -192,6 +184,13 @@ Lifewire / Jeremy Laukkonen
 
  The front camera is even worse, and you probably won’t be uploading any selfies taken with this tablet to your Instagram. I found it to work fine for video calls, but my face was always washed out or blown out depending on the lighting conditions.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Battery: Could be bigger
 
  The Tab M10 HD features a 5,000 mAh battery that provides decent battery life, but it could definitely be bigger. I’ve tested a lot of mid-range phones that manage to pack a 5,000 mAh battery into significantly smaller packages, and a battery that’s great for a small-screened phone just doesn’t stretch as far when it’s powering a 10-inch display. I found myself throwing the tablet on its charger every day, although you could probably squeeze two days of lighter use out of it.
@@ -201,10 +200,10 @@ Lifewire / Jeremy Laukkonen
  While this isn’t an all-day battery, and you’ll probably have to stick it on the charger every day, six hours is long enough to catch up on your favorite show in bed at night, or keep the kids entertained in the car during a long drive.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: Stock Android 10 and Google Kids Space
@@ -213,6 +212,13 @@ Lifewire / Jeremy Laukkonen
 
  The biggest news here is that the second gen Tab M10 HD comes with Google Kids Space, which is a great app if you have kids, as it allows you to transform the tablet into a kid-friendly spigot of entertainment. It includes tons of pre-approved apps, books, and videos so you don’t have to worry about curating age-appropriate content. It also integrates with the Google Family Link app, providing you with remote control over screen time limits, bed times, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Hits the right price point for what you get
 
  With an MSRP of $129.99 for the 2GB version and $169.99 for the 4GB version, the Lenovo Tab HD (2020) hits the sweet spot for a mid-range Android tablet like this. While I strongly recommend the 4GB version, the 2GB version is a great deal at just $129.99, especially as a childrens’ tablet. If you’re looking for a family tablet that your kids can use, this version is a great option that’s definitely priced right. The 4GB version is a bit pricey, but the extra RAM helps enough that I have trouble saying it’s actually overpriced.
@@ -220,13 +226,20 @@ Lifewire / Jeremy Laukkonen
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/tEVLeulE6MYWbsBkYCv9cDXD3CM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_05-ffe07c01135a491abdafbdc41ef6eca6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lenovo Tab M10 HD (2020) vs. Lenovo Tab M10 FHD Plus (2020)
 
@@ -242,13 +255,6 @@ Lifewire / Jeremy Laukkonen
 
  The Lenovo Tab M10 HD (2020) looks great and feels solid, and the price is right. If you’re looking for a tablet that you’ll primarily use for email and web browsing, with some video streaming thrown in, it’s a very solid option. Thanks to the inclusion of Google Kids Space, it’s also a great choice if you’re looking for a tablet for your kids.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Lenovo P11 Pro](https://www.lifewire.com/lenovo-p11-pro-review-5116910)
@@ -256,10 +262,10 @@ Lifewire / Jeremy Laukkonen
 * [Google Pixel Slate](https://www.lifewire.com/pixel-slate-review-a-chromeos-mess-5072398)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -299,24 +305,14 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-15-high-performing-instagram-content-extractors/"><u>[New] 15 High-Performing Instagram Content Extractors</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mastering-file-transfer-the-ultimate-windows-and-mac-downloading-path/"><u>[New] 2024 Approved Mastering File Transfer The Ultimate Windows & Mac Downloading Path</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-expanding-your-instagram-video-footprint-practical-tips/"><u>[New] Expanding Your Instagram Video Footprint Practical Tips</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-how-will-instagrams-algorithm-update-transform-feeds-for-2024/"><u>[New] How Will Instagram’s Algorithm Update Transform Feeds for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-step-by-step-guide-to-create-flawless-animation-movies/"><u>[New] Step-by-Step Guide to Create Flawless Animation Movies</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-soundtrack-for-ig-story-posts-unveiled/"><u>[New] The Ultimate Soundtrack for IG Story Posts Unveiled</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-global-audiences-local-stories-crafting-engaging-instagramcaptions/"><u>[Updated] 2024 Approved Global Audiences, Local Stories - Crafting Engaging #InstagramCaptions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-6plus-software-choices-download-youtube-music-as-mp3-for-iphone-users-for-2024/"><u>[Updated] 6+ Software Choices Download YouTube Music as MP3 for iPhone Users for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-unveiling-the-premier-android-emulators-for-ps2-games/"><u>[Updated] Unveiling the Premier Android Emulators for PS2 Games</u></a></li>
-<li><a href="https://windows11.techidaily.com/decoding-crash-reports-for-flawless-hardware-repairs/"><u>Decoding Crash Reports for Flawless Hardware Repairs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-performance-bluetooth-headphones-for-tvs/"><u>High-Performance Bluetooth Headphones for TVs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/how-to-create-awesome-instagram-videos/"><u>How to Create Awesome Instagram Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-rapidly-finding-friends-on-facebooks-network/"><u>In 2024, Rapidly Finding Friends on Facebook's Network</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-transforming-perceptions-with-virtual-tour-experiences/"><u>In 2024, Transforming Perceptions with Virtual Tour Experiences</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/insta-snap-authenticity-guide-unveiling-selfies-truths-for-2024/"><u>Insta Snap Authenticity Guide Unveiling Selfies' Truths for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/master-the-art-of-tiktok-tidying-up-smart-strategies-for-oversized-drafts-for-2024/"><u>Master the Art of TikTok Tidying Up Smart Strategies for Oversized Drafts for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-video-cropping-and-export-for-instagram-posts/"><u>Mastering Video Cropping & Export for Instagram Posts</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/peak-resolution-unbroken-immersion/"><u>Peak Resolution Unbroken Immersion</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/resolving-skewed-online-video-quality-for-2024/"><u>Resolving Skewed Online Video Quality for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-sonic-social-media-merging-melodies-and-memes-on-instagram/"><u>[New] Sonic Social Media Merging Melodies and Memes on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-post-a-link-on-instagram-stories-and-posts/"><u>[Updated] In 2024, How to Post a Link on Instagram Stories and Posts</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-skincare-and-sensational-looks/"><u>[Updated] In 2024, Skincare and Sensational Looks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-customize-your-video-to-fit-seamlessly-in-instagram/"><u>2024 Approved Customize Your Video to Fit Seamlessly in Instagram</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/easy-tutorial-how-to-make-a-talking-cartoon-video-step-by-step-for-2024/"><u>Easy Tutorial How To Make a Talking Cartoon Video Step-by-Step for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unrivaled-video-tech-for-apple-phones/"><u>In 2024, Unrivaled Video Tech for Apple Phones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-reel-rhythms-choreographing-audio-with-visuals/"><u>Instagram Reel Rhythms Choreographing Audio with Visuals</u></a></li>
+<li><a href="https://win-answers.techidaily.com/minecraft-installation-issues-on-windows-11-solutions-at-hand/"><u>Minecraft Installation Issues on Windows 11 - Solutions at Hand</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-straightforward-approach-to-editing-age-on-tiktok-for-2024/"><u>The Straightforward Approach to Editing Age on TikTok for 2024</u></a></li>
 </ul></div>
 

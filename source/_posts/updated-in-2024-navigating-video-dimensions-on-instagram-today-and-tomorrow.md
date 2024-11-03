@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Navigating Video Dimensions on Instagram Today & Tomorrow"
-date: 2024-10-25T17:53:14.106Z
-updated: 2024-10-28T18:20:10.218Z
+date: 2024-11-01T11:09:34.092Z
+updated: 2024-11-03T12:25:30.319Z
 tags:
   - ai video
   - ai instagram
@@ -46,6 +46,13 @@ Knowing Instagram’ supported file formats, sizes, resolutions and frame rates 
 
 Before getting into the nitty-gritty of this article, it is prudent to understand the meaning of the key words concerning Instagram. These include video frame rate, aspect ratio, resolution and Image Size.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained
 
 **Aspect ratio**  refers to the ratio of the width of an image to height. To indicate the aspect ratio of an image we use ratios in the form of 1:1, 2:3 or 5:4 depending on the variants. Instagram aspect ratio of a vertical video is 9:16 while the horizontal ratio is 16:9.
@@ -58,31 +65,24 @@ Before getting into the nitty-gritty of this article, it is prudent to understan
 
 Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Instagram Video Dimensions Specifications for a Post
 
 Even though MP4 is the only supported Instagram video format, you can set the videos different orientations and forms. The main orientations are square, landscape (horizontal) and Portrait (vertical).
 
 ![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
 
 Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
 
 To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### #1 - Instagram Video Dimensions And Sizes
 
@@ -103,13 +103,6 @@ Since the launch of Instagram video sharing feature, square videos are the most 
 
 ![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
 
 To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
@@ -119,10 +112,10 @@ To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 
 ![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
@@ -221,6 +214,13 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
 Using the wrong aspect ratio is the main cause of this effect. It is a bit challenging to set the recommended aspect ratio of 1.91:1.
@@ -230,10 +230,10 @@ You are permitted to upload photos with a high aspect ratio as 16:9\. However, t
 If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
@@ -279,15 +279,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-essential-tips-for-adding-text-to-instagram-videos-for-2024/"><u>[New] Essential Tips for Adding Text to Instagram Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instagrams-close-up-secrets-mastering-the-magnify-technique/"><u>[New] In 2024, Instagram's Close-Up Secrets Mastering the Magnify Technique</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-securing-your-social-snapshot-instagram-edition-for-2024/"><u>[Updated] Securing Your Social Snapshot Instagram Edition for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlocking-the-full-potential-of-morphvox-alchemy/"><u>[Updated] Unlocking the Full Potential of MorphVOX Alchemy</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-impact-of-photoshops-stabilization-on-quality-control/"><u>2024 Approved The Impact of Photoshop's Stabilization on Quality Control</u></a></li>
-<li><a href="https://techtrends.techidaily.com/convertissez-vos-fichiers-flash-vers-des-videos-webm-gratuites-et-rapides-via-le-site-web-de-movavi/"><u>Convertissez Vos Fichiers FLASH Vers Des Vidéos WebM Gratuites Et Rapides via Le Site Web De Movavi</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-dvdcd-drive-not-working-in-windows/"><u>How to Fix DVD/CD Drive Not Working In Windows</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-digitalscreen-app-assessment-review/"><u>In 2024, DigitalScreen App Assessment Review</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-understanding-and-leveraging-instagrams-reels/"><u>In 2024, The Ultimate Guide to Understanding and Leveraging Instagram's Reels</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/the-guide-to-learning-all-the-details-about-voice-cloning/"><u>The Guide to Learning All the Details About Voice Cloning</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-building-an-instagram-empire-in-just-nine-simple-steps/"><u>[New] 2024 Approved Building an Instagram Empire in Just Nine Simple Steps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>[Updated] 2024 Approved Elevate Your Content A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-fixes-for-stuck-instagram-videos/"><u>[Updated] 2024 Approved Mastering Fixes for Stuck Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-cultivating-commerce-on-instagram-partnering-with-profitable-brands/"><u>[Updated] Cultivating Commerce on Instagram Partnering with Profitable Brands</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-deconstructing-the-limits-to-longer-instagram-videos/"><u>[Updated] In 2024, Deconstructing the Limits to Longer Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-learn-the-best-practices-for-capturing-instagram-live-feeds-for-2024/"><u>[Updated] Learn the Best Practices for Capturing Instagram Live Feeds for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-manual-how-to-turn-off-igtv/"><u>[Updated] Manual How to Turn Off IGTV</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-photoslideshow-pro-on-insta-for-2024/"><u>[Updated] PhotoSlideshow Pro on Insta for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveil-the-untouched-best-of-insta-stories-for-2024/"><u>[Updated] Unveil the Untouched Best of Insta Stories for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-realme-gt-3-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Realme GT 3</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/enhance-your-printing-experience-with-the-latest-epson-wf-3620-driver-upgrades-for-windows-1087/"><u>Enhance Your Printing Experience with the Latest Epson WF-3620 Driver Upgrades for Windows 10/8/7</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211231303-9781784887803-everyday-magic/"><u>Everyday Magic | Free Book</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-effortlessly-share-vimeo-video-on-instagram-for-2024/"><u>How to Effortlessly Share Vimeo Video on Instagram for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-xs-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix iPhone XS Passcode not Working?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-picarts-quick-shield-for-facial-features/"><u>In 2024, PicArt's Quick Shield for Facial Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unlock-the-secret-to-insta-cash-with-our-guidebook/"><u>In 2024, Unlock the Secret to Insta Cash with Our Guidebook</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722958992061-intel-bluetooth-driver-for-windows-7-download-easily/"><u>Intel Bluetooth Driver for Windows 7. Download Easily!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-troubleshooting-manual-for-restarting-malfunctioning-devices-with-error-code-10/"><u>The Ultimate Troubleshooting Manual for Restarting Malfunctioning Devices with Error Code 10</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-your-secrets-a-step-by-step-guide-to-finding-passwords-in-macos-keychain/"><u>Unlocking Your Secrets: A Step-by-Step Guide to Finding Passwords in macOS Keychain</u></a></li>
 </ul></div>
 

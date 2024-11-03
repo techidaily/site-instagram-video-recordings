@@ -1,7 +1,7 @@
 ---
 title: Troubleshoot & Master Genshin Impact Launch Problems in Minutes!
-date: 2024-10-27T16:02:38.482Z
-updated: 2024-10-28T16:51:10.486Z
+date: 2024-10-29T23:45:57.106Z
+updated: 2024-11-03T06:12:00.445Z
 tags:
   - win11
   - win10
@@ -27,13 +27,6 @@ thumbnail: https://thmb.techidaily.com/f4f9accb76c2f0e56a5b696898639186341161f48
 4. **[Turn off antivirus](https://tools.techidaily.com/drivereasy/download/)**
 5. **[Enable Virtualization for BlueStacks](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Adjust the game settings
 
  First, you need to make sure that you have allocated enough RAM and CPU cores in BlueStacks Settings. This will increase performance and avoid game crashing/lagging. Here’s how to do it:
@@ -42,15 +35,15 @@ thumbnail: https://thmb.techidaily.com/f4f9accb76c2f0e56a5b696898639186341161f48
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/settings.jpg)
 2. The **Settings**  page will appear with the **Engine** tab highlighted, as shown below.  
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/settings-engine.jpg)
 3. Please match the following settings to see if this works for you.  
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
    * **CPU** : 4 Cores  
    * **RAM** : 4 GB (this will require a restart, so you can leave it to the last step)  
@@ -62,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/f4f9accb76c2f0e56a5b696898639186341161f48
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/save-changes.jpg)
 
  Your Bluestacks will be restarted, and your game won’t be crashing again now. But if it does, please try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 2: Update your graphics driver
 
@@ -104,21 +104,7 @@ There are mainly two ways for you to update the graphics driver:
 2. Select the program you want to close and click**End Task** . Also, force close BlueStacks 5 and relaunch the program. Check to see if it’s working now.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/end-task.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Now other programs stop consuming a high amount of RAM, you can launch BlueStacks again to check if the crashing problem is fixed.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Turn off antivirus
 
@@ -129,7 +115,21 @@ There are mainly two ways for you to update the graphics driver:
 ![uninstall app](https://images.drivereasy.com/wp-content/uploads/2021/01/appwiz.cpl_.jpg)
 3. Right-click your antivirus and choose**Uninstall** , and follow the on-screen instructions.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. Reboot your computer and launch BlueStacks to check if the issue persists.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5: Enable Virtualization for BlueStacks
 
@@ -141,10 +141,10 @@ There are mainly two ways for you to update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/on.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If this feature is disabled, you should follow[this guide](https://support.bluestacks.com/hc/en-us/articles/115003174386) to turn it on in the BIOS settings. However, if everything seems alright but you still get the crashing issues, you can reinstall BlueStacks (be sure to remove all its files and then reinstall it again).
@@ -168,16 +168,18 @@ There are mainly two ways for you to update the graphics driver:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-share-your-story-share-a-spark-top-20-instagram-shots/"><u>[New] In 2024, Share Your Story, Share a Spark Top 20 Instagram Shots</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-decoding-snapchat-emoji-language/"><u>[Updated] In 2024, Decoding Snapchat Emoji Language</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-download-instagram-vids-effortlessly-on-your-desktop-system-pcmac/"><u>[Updated] In 2024, Download Instagram Vids Effortlessly on Your Desktop System (PC/Mac)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-extensive-look-at-djis-inspire-1-drone/"><u>[Updated] In 2024, Extensive Look at DJI's Inspire 1 Drone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-propel-participation-through-unique-custom-story-queries/"><u>[Updated] In 2024, Propel Participation Through Unique, Custom Story Queries</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-and-youtube-synergy-sharing-video-links-in-stories/"><u>2024 Approved Instagram and YouTube Synergy Sharing Video Links in Stories</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/2024s-elite-list-of-8-premium-parental-supervision-services-revealed-here/"><u>2024'S Elite List of 8 Premium Parental Supervision Services Revealed Here</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-a-comprehensible-guide-to-instagrams-latest-updates/"><u>In 2024, A Comprehensible Guide to Instagram's Latest Updates</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-finest-10-online-spots-to-download-pristine-photos-for-2024/"><u>The Finest 10 Online Spots to Download Pristine Photos for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-key-to-engaging-audiences-instagram-video-descriptions/"><u>The Key to Engaging Audiences Instagram Video Descriptions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-ultimate-roadmap-to-crafting-memorable-tiktok-videos-for-2024/"><u>The Ultimate Roadmap to Crafting Memorable TikTok Videos for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-bring-back-classic-ps3-fun-with-best-tools-for-2024/"><u>[New] Bring Back Classic PS3 Fun with Best Tools for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-from-simple-starts-proving-talent-with-tiktok-edits/"><u>[New] In 2024, From Simple Starts Proving Talent with TikTok Edits</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-proven-techniques-to-enhance-engagement-and-interaction/"><u>[New] In 2024, Proven Techniques to Enhance Engagement and Interaction</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-top-tactics-for-captivating-audienes-in-instagram-reels/"><u>[New] In 2024, Top Tactics for Captivating Audienes in Instagram Reels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-rotation-rituals-mastering-angles-that-engage-captivate-and-amaze-for-2024/"><u>[New] Insta Rotation Rituals Mastering Angles that Engage, Captivate, and Amaze for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-when-does-instagram-get-most-active-a-comprehensive-look/"><u>[Updated] 2024 Approved When Does Instagram Get Most Active? A Comprehensive Look</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-utilizing-zoom-services-directly-from-your-inbox-gmail-edition/"><u>2024 Approved Utilizing Zoom Services Directly From Your Inbox - Gmail Edition</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/experience-professional-level-footage-without-breaking-the-bank/"><u>Experience Professional-Level Footage Without Breaking the Bank</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-tecno-spark-20-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Tecno Spark 20 Phones with/without a PC</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-apple-iphone-11-pro-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>In 2024, Change Location on Yik Yak For your Apple iPhone 11 Pro to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-vanguard-of-virtual-fame-instagrams-25-luminaries/"><u>In 2024, The Vanguard of Virtual Fame Instagram's 25 Luminaries</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-top-free-video-capture-apps-exploring-the-leaders/"><u>In 2024, Top Free Video Capture Apps – Exploring the Leaders</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-the-latest-version-of-mpow-bluetooth-drivers-for-improved-compatibility-with-windows-1187-download-here/"><u>Install the Latest Version of MPOW Bluetooth Drivers for Improved Compatibility with Windows 11/8/7 - Download Here</u></a></li>
 </ul></div>
 
