@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Spotlight on Stories  Crafting Three Effective Highlights for 2024\""
-date: 2024-10-28T09:04:31.246Z
-updated: 2024-11-02T18:14:32.039Z
+date: 2024-11-07T12:23:14.873Z
+updated: 2024-11-12T00:00:11.208Z
 tags:
   - ai video
   - ai instagram
@@ -35,13 +35,6 @@ Once the active story has been selected, you will find an option at the bottom o
 
 ![ Instagram Highlight](https://images.wondershare.com/filmora/article-images/create-instagram-highlight-from-active-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Create A Highlight on Instagram From an Archived Story?
 
 Creating a highlight from an archived Story follows a similar process. Simply go to your profile and tap on the story highlights below your bio. Tap on the plus icon to access the new Highlight option. Click on the stories which you want to have included in your new highlight. You can have stories in multiple highlights.
@@ -50,19 +43,20 @@ Tap the **Edit Cover** and choose the graphic for your highlight then enter a na
 
 ![ add Instagram Highlight](https://images.wondershare.com/filmora/article-images/add-highlight-instagram-edit-cover.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Note that although Instagram is available on desktop, creating highlights should be created on your mobile device. PC desktops do not allow you to create highlights from a desktop. Highlights created on your mobile device will appear on your desktop profile underneath your bio.
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Add More Stories in A Current Highlight?
@@ -82,17 +76,10 @@ If a highlight does not show up on your profile, check that you have a unique na
 ![  Instagram Highlight Profile](https://images.wondershare.com/filmora/article-images/instagram-highlight-profile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Use Highlights and Story Links to Increase Conversions?
@@ -113,6 +100,13 @@ By following these simple methods of how to make a highlight on Instagram, wheth
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -128,19 +122,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-expert-tips-efficiently-download-igtv-on-windows-and-macos/"><u>[New] In 2024, Expert Tips Efficiently Download IGTV on Windows & MacOS</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-precise-obs-settings-for-inexpensive-hardware/"><u>[New] In 2024, Precise OBS Settings for Inexpensive Hardware</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-key-to-effective-instagram-chats-a-comprehensive-guide-for-2024/"><u>[New] The Key to Effective Instagram Chats A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-how-to-upload-media-to-twitter-without-copying-another-users-tweet/"><u>[Updated] 2024 Approved How To Upload Media to Twitter without Copying Another User's Tweet</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-igtv-to-fb-exposure-strategies-6-essential-tips/"><u>[Updated] 2024 Approved IGTV to FB Exposure Strategies (6 Essential Tips)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-amplify-your-influence-the-ultimate-list-of-instagram-apps-for-2024/"><u>[Updated] Amplify Your Influence The Ultimate List of Instagram Apps for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-expert-guide-to-enhancing-video-controls-and-performance/"><u>2024 Approved Expert Guide to Enhancing Video Controls and Performance</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/discover-the-leading-macos-applications-for-2e23-expert-picks/"><u>Discover the Leading macOS Applications for 2E23 - Expert Picks</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-reno-8t-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Reno 8T to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210780126-9781633413030-the-cards-youre-dealt/"><u>The Cards You're Dealt | Free Book</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/the-ultimate-list-of-top-5-no-cost-wma-editor-programs-available-online-and-offline/"><u>The Ultimate List of Top 5 No-Cost WMA Editor Programs Available Online & Offline</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/top-4-proven-tactics-for-exceptional-loop-videos-on-ig/"><u>Top 4 Proven Tactics for Exceptional Loop Videos on IG</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-secrets-efficient-qr-codes-on-windows-systems/"><u>Unlocking Secrets: Efficient QR Codes on Windows Systems</u></a></li>
-<li><a href="https://windows11.techidaily.com/winning-over-sluggishness-speedy-printer-solutions-windows-style/"><u>Winning over Sluggishness: Speedy Printer Solutions, Windows-Style</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-superior-web-destinations-alarm-ringtone-downloads-guide-for-2024/"><u>[New] Superior Web Destinations Alarm Ringtone Downloads Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-mobile-and-dslr-shooting-igtv-with-perfection/"><u>[Updated] 2024 Approved Mastering Mobile & DSLR Shooting IGTV with Perfection</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-unlock-the-secrets-to-amazing-instagram-films/"><u>[Updated] 2024 Approved Unlock the Secrets to Amazing Instagram Films</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-cinematic-projects-utilizing-movie-maker-on-windows-8-pcs/"><u>[Updated] Crafting Cinematic Projects Utilizing Movie Maker on Windows 8 PCs</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-viral-tweets-watchlist-the-hottest-twitch-videos-on-twitter/"><u>[Updated] Viral Tweets Watchlist The Hottest Twitch Videos on Twitter</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-valorant-thumbnails-made-professionally-without-delay/"><u>2024 Approved Valorant Thumbnails Made Professionally, Without Delay</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-social-media-savant-writes-on-mastering-brand-promotion/"><u>In 2024, The Social Media Savant' Writes on Mastering Brand Promotion</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/nailing-the-perfect-shot-advanced-strategies-for-instagram-video-editing-for-2024/"><u>Nailing the Perfect Shot Advanced Strategies for Instagram Video Editing for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oppo-a1x-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Oppo A1x 5G Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
 

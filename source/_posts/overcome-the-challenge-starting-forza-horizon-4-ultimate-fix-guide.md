@@ -1,7 +1,7 @@
 ---
 title: "Overcome the Challenge: Starting Forza Horizon 4 - Ultimate Fix Guide"
-date: 2024-10-27T00:34:58.328Z
-updated: 2024-11-03T12:25:32.236Z
+date: 2024-11-09T11:58:08.027Z
+updated: 2024-11-12T05:56:35.155Z
 tags:
   - win11
   - win10
@@ -41,27 +41,7 @@ Don’t worry, here’re fixes may help you solve the issue.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-48-52.jpg)
 4. In the open section, change**Response Curve** to**Raw** , and set**Horizontal Turning Bonus** and**Vertical Turning Bonus** to**0** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-50-02.jpg)
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### For mouse/keyboard users
 
@@ -73,9 +53,29 @@ If you’re not using the controller, check the below settings.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-53-01.jpg)
 4. If you need to lower your graphic resolution, move to the**GRAPHICS** tab.
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. Scroll down to find the**Resolution Scaling** section.
 6. Set the**Static FidelityFX CAS** to**ON** and lower the Resolution Scaling.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-59-50.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Some users have reported that by disabling all the aim assist options in settings, the issue has been improved a lot.
 
@@ -91,21 +91,14 @@ If this fix doesn’t work, move to the next one.
 3. Go to the**Mouse** tab, click**Additional mouse options** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_16-00-50.jpg)
 4. Make sure you uncheck the**Enhance pointer precision** . Click**Apply > OK** .  
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_16-01-18.jpg)
 5. Launch the game and check.
@@ -113,10 +106,10 @@ If this fix doesn’t work, move to the next one.
 If it doesn’t work, move to the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 3: Update the device driver
@@ -147,6 +140,13 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update**  button next to the flagged driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
 
@@ -173,24 +173,21 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-should-you-review-off-facebook-histories-security-tips-and-tricks/"><u>[New] 2024 Approved Should You Review Off-Facebook Histories? Security Tips & Tricks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-a-stepwise-approach-to-twitter-archive-utilization/"><u>[New] A Stepwise Approach to Twitter Archive Utilization</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-novice-to-vlogger-your-guide-to-creating-a-youtube-chanel/"><u>[New] In 2024, From Novice to Vlogger Your Guide to Creating a YouTube Chanel</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-stylish-spectacles-trending-insta-filters-list/"><u>[Updated] 2024 Approved Stylish Spectacles Trending Insta Filters List</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-top-edge-video-editing-programs-for-instagram-on-android/"><u>[Updated] 2024 Approved Top Edge Video Editing Programs for Instagram on Android</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-tricks-to-faster-and-smoother-instagram-media/"><u>[Updated] 2024 Approved Tricks to Faster and Smoother Instagram Media</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-content-youtube-movie-maker-101-for-2024/"><u>[Updated] Elevate Your Content YouTube Movie Maker 101 for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-the-art-of-backwards-videos-on-instagram/"><u>[Updated] In 2024, Mastering the Art of Backwards Videos on Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-perfect-harmony-music-in-instagram-storytelling/"><u>[Updated] In 2024, Perfect Harmony Music in Instagram Storytelling</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-ultimate-utility-watch-opens-your-macdevice-for-2024/"><u>[Updated] Ultimate Utility Watch Opens Your MacDevice for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-essential-hashtags-boosting-your-instagram-presence-now/"><u>2024 Approved Essential #Hashtags Boosting Your Instagram Presence Now</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-navigating-ig-videos-successfully-building-an-efficient-marketing-blueprint/"><u>2024 Approved Navigating IG Videos Successfully Building an Efficient Marketing Blueprint</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-itel-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-vivo-v30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/decoding-instagrams-trends-reels-and-stories-comparison-for-2024/"><u>Decoding Instagram's Trends Reels & Stories Comparison for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/guide-to-seamlessly-share-your-igtv-story-for-2024/"><u>Guide to Seamlessly Share Your IGTV Story for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-xiaomi-redmi-note-13-proplus-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Xiaomi Redmi Note 13 Pro+ 5G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-ab-testing-caption-variants/"><u>[New] 2024 Approved A/B Testing Caption Variants</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-ideas-to-impact-mastering-video-marketing-on-instagram/"><u>[New] From Ideas to Impact Mastering Video Marketing on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-taking-a-step-back-in-time-with-instagram-videos/"><u>[New] Taking a Step Back in Time with Instagram Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiled-top-6-tools-to-purify-signature-images-online-for-2024/"><u>[Updated] Unveiled Top 6 Tools to Purify Signature Images Online for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-infusing-your-reels-with-soundscape-elements/"><u>2024 Approved Infusing Your Reels with Soundscape Elements</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/cookiebot-enhanced-site-performance-and-analytics/"><u>Cookiebot-Enhanced Site Performance & Analytics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-visual-stories-in-minutes-using-windows-8-movie-maker-for-2024/"><u>Crafting Visual Stories in Minutes Using Window's 8 Movie Maker for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-s23plus-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel S23+ to Outlook | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-ignite-social-success-discover-the-10-most-powerful-igtv-video-ideas-for-brands/"><u>In 2024, Ignite Social Success Discover the 10 Most Powerful IGTV Video Ideas for Brands</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-twists-that-tell-stories-mastering-the-art-and-technique-of-spinning-visuals-for-maximum-impact-on-social-media-platforms/"><u>In 2024, Twists That Tell Stories Mastering the Art and Technique of Spinning Visuals for Maximum Impact on Social Media Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/innovative-ways-to-create-captivating-slow-motion-videos-for-instagram-fame-for-2024/"><u>Innovative Ways to Create Captivating Slow Motion Videos for Instagram Fame for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instavid-promotion-crafting-a-successful-marketing-gameplan/"><u>Mastering InstaVid Promotion Crafting a Successful Marketing Gameplan</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolve-code-39-problems-in-windows-a-comprehensive-solution-manual/"><u>Resolve Code 39 Problems in Windows: A Comprehensive Solution Manual</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/tsgif-movavi/"><u>TSファイルを無料でGIFに変換: Movaviの簡単な方法</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unstuck-from-silence-resolving-headphone-issues-in-windows-10-systems/"><u>Unstuck From Silence: Resolving Headphone Issues In Windows 10 Systems</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-samsung-galaxy-xcover-6-pro-tactical-edition-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Samsung Galaxy XCover 6 Pro Tactical Edition Phones</u></a></li>
 </ul></div>
 
