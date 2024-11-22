@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add Music to Instagram Story [With/Without Sticker] for 2024"
-date: 2024-11-05T05:43:23.205Z
-updated: 2024-11-12T02:53:06.688Z
+date: 2024-11-19T21:23:19.025Z
+updated: 2024-11-21T19:22:35.344Z
 tags:
   - ai video
   - ai instagram
@@ -58,6 +58,10 @@ After you **click on the music sticker**, you will be presented with many song s
 
 ![Share Music with Instagram   Sticker](https://images.wondershare.com/filmora/article-images/share-music-with-sticker-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Edit Music Stickers?
 
 While adding music to Instagram stories via sticker, you can edit them in any way you want. While editing, you cannot only adjust the length of the clip, the color of the music sticker, size and type, and even the font lyrics as well.
@@ -69,6 +73,10 @@ You can tap on the music sticker to change the icon. You can also switch to the 
 **Changing colors:**
 
 You can also press the color wheel at the top corner of the screen to adjust the color of music stickers and the lyrics as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Add Lyrics to Stories through Instagram Music?
 
@@ -87,13 +95,6 @@ If you want to add lyrics, you can press the letter sign before posting.
 Before you post a story or send it to your close friends, you can enlarge or minimize the music sticker size and change its placement on the screen.
 
 ![Add Lyrics to Instagram Music](https://images.wondershare.com/filmora/article-images/add-lyrics-to-instagram-music.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Instagram without Music Stickers?
 
@@ -114,6 +115,10 @@ Spotify has millions of songs to listen to and add to your library. You can post
 When you click on the three dots, you will be presented with a few options; click **on share**. After clicking on share, you will see a few apps options; click **on Instagram stories**.
 
 ![Share Spotify Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-spotify-music-to-instagram-stories.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Post**
 
@@ -158,22 +163,12 @@ Note: You might have to click on "More" on some smartphones.
 ![Share Apple Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-apple-music-instagram.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Post on stories**
 
 The last thing you will do is post the cover art and the song. People can click on the Apple Music icon to listen to it there.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 4: Edit Instagram stories with Music through Filmora
 
@@ -194,10 +189,7 @@ Once selected, you can edit and customize that video or photo as per your choice
 ![Add Music to Filmora](https://images.wondershare.com/filmora/article-images/add-music-to-video-filmorago.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Share the** **Video** **with Music to Instagram**
@@ -207,10 +199,7 @@ Finally, you can share your edited Instagram Story Video to your Instagram accou
 ![Share video with Music to Ins](https://images.wondershare.com/filmora/article-images/share-video-with-music-to-instagram.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Frequently Asked Questions About Instagram Music
@@ -244,21 +233,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-essential-imovie-steps-for-squaring-up-instagram-posts/"><u>[New] 2024 Approved The Essential iMovie Steps for Squaring Up Instagram Posts</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-chronicle-samsung-games-with-precision-timing-for-2024/"><u>[New] Chronicle Samsung Games with Precision Timing for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-complete-process-to-tweak-your-instagram-voice/"><u>[New] In 2024, The Complete Process to Tweak Your Instagram Voice</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-complete-guide-to-downloading-and-backup-of-instagram-vids-on-pcmacos/"><u>[Updated] 2024 Approved A Complete Guide to Downloading & Backup of Instagram Vids on PC/macOS</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-insta-ode-selecting-song-lyrics-and-beats-for-vids/"><u>[Updated] 2024 Approved The Insta-Ode Selecting Song Lyrics and Beats for Vids</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-pioneering-platform-potential-the-10-most-effective-igtv-strategies-for-brands/"><u>[Updated] Pioneering Platform Potential The 10 Most Effective IGTV Strategies for Brands</u></a></li>
-<li><a href="https://win-answers.techidaily.com/call-of-duty-warzone-dev-error-6328-solved-insider-tips-and-best-practices/"><u>Call of Duty Warzone Dev Error 6328 Solved - Insider Tips & Best Practices</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/deciphering-instagrams-video-snippet-size/"><u>Deciphering Instagram's Video Snippet Size</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/descubre-los-mejores-convertidores-de-video-gratuitos-para-windows-pertinentos-a-la-version-11-analisis-detallado/"><u>Descubre Los Mejores Convertidores De Vídeo Gratuitos Para Windows Pertinentos a La Versión 11 | Análisis Detallado</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-social-network-harmony-integrating-instagram-and-facebook/"><u>In 2024, Social Network Harmony Integrating Instagram & Facebook</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/lustrous-frameworks-structuring-illumination-in-film-for-2024/"><u>Lustrous Frameworks Structuring Illumination in Film for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-microsoft-teams-with-ai-the-ultimate-guide-to-using-copilot/"><u>Mastering Microsoft Teams with AI: The Ultimate Guide to Using Copilot</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/solution-strategies-for-unlocking-a-damaged-iphone-display/"><u>Solution Strategies for Unlocking a Damaged iPhone Display</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/speedy-conversion-guide-transforming-mkv-files-into-divx-format-efficiently/"><u>Speedy Conversion Guide: Transforming MKV Files Into DivX Format Efficiently</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-solution-when-your-steam-store-wont-load-correctly/"><u>Step-by-Step Solution: When Your Steam Store Won't Load Correctly</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/streamlining-your-creative-process-with-windows-10-video-tools/"><u>Streamlining Your Creative Process with Windows 10 Video Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unleashing-creativity-in-instagram-photography-through-border-use-for-2024/"><u>[New] Unleashing Creativity in Instagram Photography Through Border Use for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-earning-through-instagram-a-guide-to-attracting-brand-partnerships/"><u>[Updated] 2024 Approved Earning Through Instagram A Guide to Attracting Brand Partnerships</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-complete-insight-into-sierras-icloud-file-management-for-2024/"><u>[Updated] Complete Insight Into Sierra’s iCloud File Management for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhance-your-content-utilizing-the-green-screen-on-instagram/"><u>[Updated] Enhance Your Content Utilizing the Green Screen on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-instagram-adding-borders-to-videos/"><u>[Updated] In 2024, Mastering Instagram Adding Borders to Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-instagrams-most-appreciated-ae-layouts/"><u>[Updated] In 2024, Mastering Instagram's Most Appreciated AE Layouts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-shorts-revenue-sharing-explained-how-much-will-i-make/"><u>[Updated] In 2024, YouTube Shorts Revenue Sharing Explained How Much Will I Make?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-inch-towards-a-million-instagrams-1k-goal-for-you-for-2024/"><u>[Updated] Inch Towards a Million Instagram's 1K Goal for You for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-top-8-trending-ae-templates-on-instagram-for-2024/"><u>[Updated] Top 8 Trending AE Templates on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-the-power-of-in-stream-ads-strategy-and-metrics-guide-for-2024/"><u>[Updated] Unlocking the Power of In-Stream Ads Strategy & Metrics Guide for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/comparing-giants-of-digital-engagement-facebook-twitter-instagram-and-youtube/"><u>Comparing Giants of Digital Engagement: Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-correcting-common-tozo-t6-malfunctions-in-windows-11-systems/"><u>Expert Advice: Correcting Common Tozo T6 Malfunctions in Windows 11 Systems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-realme-c53-by-drfone-android/"><u>How to Show Wi-Fi Password on Realme C53</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-10-best-music-video-makers-to-make-fantastic-mv/"><u>New 2024 Approved 10 Best Music Video Makers to Make Fantastic MV</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-affordable-portable-power-banks-thoroughly-tested-and-reviews-by-tech-experts-zdnet/"><u>Top Rated Affordable Portable Power Banks - Thoroughly Tested & Reviews by Tech Experts | ZDNet</u></a></li>
 </ul></div>
 

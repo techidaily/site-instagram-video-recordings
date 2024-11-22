@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Ratchet & Clank Examination: Reborn for a New Generation"
-date: 2024-11-09T10:26:50.446Z
-updated: 2024-11-11T18:45:55.070Z
+date: 2024-11-21T03:27:12.705Z
+updated: 2024-11-22T04:38:19.411Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Ratchet & Clank Examination: Reborn for a New Generation"
@@ -37,9 +37,17 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -66,27 +74,7 @@ Lifewire / Jonno Hill
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/FEdsHVNn7IxwxXsSkRT0jxmmRuQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_02-d797d473ec154becbab8a3023cff8b53.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Vanilla**
 
@@ -94,18 +82,15 @@ Lifewire / Jonno Hill
 
  Being a powered antenna, the 1byone uses an external amplifier to boost the signal. This box contains a coaxial input attached via the included 16.5ft cable, and has a power input, which can be supplied by the TV itself if it can support USB power. Otherwise, 1byone includes a USB power adapter.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Fairly intuitive**
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas. Simply attach the 16.5ft coaxial cable to the external amplifier, connect the power to a USB power source, and then attach the coaxial cable from the amplifier to your TV.
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Good enough for most**
 
@@ -121,16 +106,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
 
@@ -143,6 +125,10 @@ Lifewire / Jonno Hill
 **The overall best value.**
 
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,24 +158,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-capture-the-crash-top-surf-cameras-of-2023/"><u>[New] Capture the Crash Top Surf Cameras of 2023</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-fbs-viral-anthems-list-crafting-your-number-one-song-for-2024/"><u>[New] FB's Viral Anthems List Crafting Your Number One Song for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-social-media-to-monetary-success-the-roadmap-for-instagram-sponsorship/"><u>[New] In 2024, From Social Media to Monetary Success The Roadmap for Instagram Sponsorship</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-infinite-save-instagram-stories-secret-weapon-for-2024/"><u>[New] Infinite Save Instagram Stories' Secret Weapon for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-the-craft-of-looped-visuals-for-social-media-success/"><u>[New] Mastering the Craft of Looped Visuals for Social Media Success</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-navigating-hd-disruptions-clear-screening-challenges-in-fir-safari-chrome/"><u>[New] Navigating HD Disruptions Clear Screening Challenges in Fir, Safari, Chrome</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-downloads-igtv-media-for-phone-users/"><u>[Updated] 2024 Approved Mastering Downloads IGTV Media for Phone Users</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-from-dull-scenes-to-dynamic-sports-highlights/"><u>[Updated] From Dull Scenes to Dynamic Sports Highlights</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-make-every-instagram-story-count-your-complete-guide/"><u>[Updated] How to Make Every Instagram Story Count – Your Complete Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-enrich-engagement-tailored-questions-for-ig-story-boosting/"><u>[Updated] In 2024, Enrich Engagement Tailored Questions for IG Story Boosting</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-video-loading-boosted-tricks-for-all-devices/"><u>[Updated] In 2024, Instagram Video Loading Boosted Tricks for All Devices</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-top-ranked-mac-pro-video-maker-plus-audio/"><u>[Updated] In 2024, Top-Ranked Mac Pro Video Maker Plus Audio</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-complete-guide-to-inverted-footage-in-instagram-for-2024/"><u>[Updated] The Complete Guide to Inverted Footage in Instagram for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-camcorder-features-front-view-display/"><u>2024 Approved Ultimate Camcorder Features - Front View Display</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/free-online-mp4-webm-mp4-movavi/"><u>Free Online MP4 변환기: WebM 파일을 MP4으로 효과적으로 바꾸기 - Movavi 탐색</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-nokia-105-classic-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Nokia 105 Classic PIN</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/postpone-pruning-saving-chatgpt-talks/"><u>Postpone Pruning: Saving ChatGPT Talks</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/updating-your-logitech-m510-a-step-by-step-software-update-tutorial/"><u>Updating Your Logitech M510: A Step-by-Step Software Update Tutorial</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/visualvoyage-mastering-the-art-of-image-and-video-size-on-instagram/"><u>VisualVoyage Mastering the Art of Image and Video Size on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-bridging-language-gaps-with-translated-subs-in-igtv/"><u>[New] Bridging Language Gaps with Translated Subs in IGTV</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-the-conversion-of-vids-to-mp3-on-insta/"><u>[New] Mastering the Conversion of Vids to MP3 on Insta</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-8-best-tips-for-perfecting-igtv-video-dimensions-and-layouts/"><u>[New] The 8 Best Tips for Perfecting IGTV Video Dimensions and Layouts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-immediate-screenshot-recorder-chrome/"><u>[Updated] 2024 Approved Immediate Screenshot Recorder (Chrome)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-social-media-savvy-ig-filter-hits/"><u>[Updated] 2024 Approved Social Media Savvy IG Filter Hits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-step-by-step-for-adding-a-link-in-your-tiktok-bios/"><u>[Updated] 2024 Approved The Ultimate Step-by-Step for Adding a Link in Your TikTok Bios</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlock-the-potential-of-youtube-videos-with-smart-tags/"><u>[Updated] 2024 Approved Unlock the Potential of YouTube Videos with Smart Tags</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elevate-your-skill-discovering-the-top-10-budget-friendly-video-artists-on-youtube-for-2024/"><u>[Updated] Elevate Your Skill Discovering the Top 10 Budget-Friendly Video Artists on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-adapt-posting-techniques-after-instagrams-revisions/"><u>[Updated] How to Adapt Posting Techniques After Instagram’s Revisions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-master-earning-plan-top-5-highest-paying-ig-posts/"><u>[Updated] In 2024, Master Earning Plan Top 5 Highest Paying IG Posts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pro-fishing-cams-ranked-your-ultimate-guide/"><u>[Updated] Pro-Fishing Cams Ranked Your Ultimate Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-comprehensive-directory-for-got-ringtones-download-for-2024/"><u>[Updated] The Comprehensive Directory for GoT Ringtones Download for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-10-cheap-cameras-for-dynamic-shots/"><u>[Updated] Top 10 Cheap Cameras For Dynamic Shots</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-breakneck-video-progress-on-facebook-must-have-extension-solutions/"><u>2024 Approved Breakneck Video Progress on Facebook - Must-Have Extension Solutions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-bringing-your-instagram-aesthetic-to-life-with-square-videos-in-imovie/"><u>In 2024, Bringing Your Instagram Aesthetic to Life with Square Videos in iMovie</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/leveraging-likes-and-shares-for-viral-content/"><u>Leveraging Likes and Shares for Viral Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/social-media-blend-easy-twitch-to-facebook-integration-for-2024/"><u>Social Media Blend Easy Twitch to Facebook Integration for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/things-you-need-to-know-about-music-for-instagram/"><u>Things You Need to Know About Music for Instagram</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-and-resolving-mobile-call-problems-in-android-devices/"><u>Troubleshooting and Resolving Mobile Call Problems in Android Devices</u></a></li>
 </ul></div>
 

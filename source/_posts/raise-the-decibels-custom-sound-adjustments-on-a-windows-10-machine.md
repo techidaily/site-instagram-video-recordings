@@ -1,7 +1,7 @@
 ---
 title: "Raise the Decibels: Custom Sound Adjustments on a Windows 10 Machine"
-date: 2024-11-10T13:46:22.979Z
-updated: 2024-11-12T05:21:05.867Z
+date: 2024-11-19T02:22:10.325Z
+updated: 2024-11-22T02:04:47.655Z
 tags:
   - win11
   - win10
@@ -33,13 +33,6 @@ But first, ensure that your device has been connected and set correctly.
 5. [**Update your audio driver**](https://tools.techidaily.com/drivereasy/download/)
 6. [**Restart the game**](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Set your device as Default
 
  If you have multiple output devices (more than two), you’d better set the headset as default. It probably the reason for “Anthem no sound” error.
@@ -50,10 +43,7 @@ But first, ensure that your device has been connected and set correctly.
 3. In the Playback tab, select your device and click**Set Default** .![](https://images.drivereasy.com/wp-content/uploads/2019/07/mi.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4. Go back to the Anthem and check it has sound or not.
@@ -66,21 +56,16 @@ But first, ensure that your device has been connected and set correctly.
 2. Click **Playing Audio** . Then click **Run the troubleshooter** . Wait for the investigation complete. ![](https://images.drivereasy.com/wp-content/uploads/2019/07/10-1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3. Follow the on-screen instructions to finish the process.
 
 4. Restart your computer and check whether Anthem has sound or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Set the Default Format in the lowest mode
 
@@ -92,13 +77,6 @@ But first, ensure that your device has been connected and set correctly.
 3. In the **Playback** tab, choose the device you’re using and click **Properties** . ![](https://images.drivereasy.com/wp-content/uploads/2019/07/audio1-1.jpg)
 
 4. Click the **Advanced** tab, select the lowest setting on the Default Format drop-down menu. Then click **OK** . Back to the Sound window, click **Apply** \> **OK** .![](https://images.drivereasy.com/wp-content/uploads/2019/07/12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5. Reboot your computer and check whether Anthem has sound or not.
 
@@ -112,24 +90,22 @@ But first, ensure that your device has been connected and set correctly.
 3. In the **Playback** tab, choose the device you’re using and click **Properties** . ![](https://images.drivereasy.com/wp-content/uploads/2019/07/audio1-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4. In the **Enhancements** tab, uncheck “**Disable all sound effects** “. ![](https://images.drivereasy.com/wp-content/uploads/2019/07/audio-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 5. Click **Apply > OK** .
 
 6. Reboot your computer and go back to the game, you should have audio now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Update your audio driver
 
@@ -149,6 +125,10 @@ But first, ensure that your device has been connected and set correctly.
  Or click **Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/driver1.jpg)
 4. Restart your computer and check the Anthem has sound or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6: Restart the game
 
@@ -177,19 +157,16 @@ But first, ensure that your device has been connected and set correctly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-visual-symphony-iosandroid-instagram-collage-app/"><u>[New] In 2024, Visual Symphony IOS/Android Instagram Collage App</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-the-world-of-instagram-stories-easily-for-2024/"><u>[New] Navigating the World of Instagram Stories Easily for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-stories-incorporating-natural-bokeh-effects/"><u>[Updated] In 2024, Instagram Stories Incorporating Natural Bokeh Effects</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-top-strategies-for-changing-song-pace-on-spotify-app-for-2024/"><u>[Updated] Top Strategies for Changing Song Pace on Spotify App for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-incorporating-borders-in-your-next-video-post/"><u>2024 Approved Incorporating Borders in Your Next Video Post</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Honor Play 8T | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/building-a-thriving-igtv-following-the-ultimate-guide/"><u>Building a Thriving IGTV Following The Ultimate Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/capturing-marine-magic-pro-tips-for-filming-oceanic-scenes-using-gopro-for-2024/"><u>Capturing Marine Magic Pro Tips for Filming Oceanic Scenes Using GoPro for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-prowess-the-ultimate-list-of-powerful-hashtags/"><u>In 2024, Instagram Prowess The Ultimate List of Powerful Hashtags</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-spot-real-vs-sham-accounts-in-instagram-life/"><u>In 2024, Spot Real Vs. Sham Accounts in Instagram Life</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-chromecast-converter-how-to-stream-unsupported-video-formats-for-2024/"><u>New The Chromecast Converter How to Stream UnSupported Video Formats for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/picshot-the-gateway-to-elegant-photographic-assemblies-for-2024/"><u>Picshot The Gateway to Elegant Photographic Assemblies for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/tailor-your-experience-a-guide-to-optimizing-account-preferences-and-settings/"><u>Tailor Your Experience: A Guide to Optimizing Account Preferences and Settings</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-tutorial-leveraging-live-activities-on-your-iphones-latest-update/"><u>The Ultimate Tutorial: Leveraging Live Activities on Your iPhone's Latest Update</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-pushing-past-vimeos-limits-with-top-10-editors/"><u>[New] 2024 Approved Pushing Past Vimeo's Limits with Top 10 Editors</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-social-media-mastery-incorporating-polls-in-stories-for-2024/"><u>[New] Social Media Mastery Incorporating Polls in Stories for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-capture-and-share-with-confidence-a-step-by-step-guide-to-desktop-video-uploads-on-instagram-for-2024/"><u>[Updated] Capture & Share with Confidence A Step-by-Step Guide to Desktop Video Uploads on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-visuals-to-audio-step-by-step-guide/"><u>2024 Approved Instagram Visuals to Audio Step-by-Step Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/het-aanstaande-allerwelste-top-15-gratis-schermopnamestools-moovavis-voorbeelden-en-gevarieerd-functionaaliteitspeil/"><u>Het Aanstaande Allerwelste Top 15 Gratis Schermopnamestools - Moovavis Voorbeelden En Gevarieerd Functionaaliteitspeil</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-fix-the-0x0000004e-error-in-windows-10-and-11/"><u>How to Fix the 0X0000004E Error in Windows 10 and 11</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-infinix-smart-8-hd-easily-by-drfone-android/"><u>How To Unlock a Infinix Smart 8 HD Easily?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-inspiration-in-frames-top-20-creative-instagrams/"><u>In 2024, Inspiration in Frames Top 20 Creative Instagrams</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagrams-pathway-including-vimeo-videos/"><u>Instagram's Pathway Including Vimeo Videos</u></a></li>
+<li><a href="https://program-issues.techidaily.com/no-more-crashes-with-paladins-latest-fixes-and-enhancements/"><u>No More Crashes with Paladins: Latest Fixes and Enhancements</u></a></li>
+<li><a href="https://win-able.techidaily.com/solve-fps-issues-in-fallout-76-with-easy-to-follow-fixes-players/"><u>Solve FPS Issues in Fallout 76 with Easy-to-Follow Fixes Players</u></a></li>
 </ul></div>
 

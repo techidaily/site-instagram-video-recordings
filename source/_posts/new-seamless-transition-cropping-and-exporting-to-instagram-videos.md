@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Seamless Transition  Cropping & Exporting to Instagram Videos\""
-date: 2024-11-09T03:08:48.203Z
-updated: 2024-11-12T07:38:21.448Z
+date: 2024-11-18T04:23:49.562Z
+updated: 2024-11-22T04:45:31.039Z
 tags:
   - ai video
   - ai instagram
@@ -37,6 +37,10 @@ In order to create videos that will get thousands of likes on Instagram, you nee
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to crop videos for instagram in Filmora**
 
 Unless you shoot your video directly from the Instagram app, the aspect ratio of your videos will not match the square aspect ratio used on Instagram. The only solution to this issue is to crop the video and change its aspect ratio so it fits one of the commonly used aspect ratios on Instagram.
@@ -49,9 +53,17 @@ In order to start cropping your videos, you first must install the Filmora video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
 
@@ -69,6 +81,10 @@ Click on the Settings button and then set the Quality of the video to Best and s
 
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2\. Portrait (4:3)**
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
@@ -85,6 +101,10 @@ The steps for exporting square videos are the same as the steps you need to take
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -100,21 +120,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-instagram-elite-discover-the-leading-25-influential-souls-for-2024/"><u>[New] The Instagram Elite Discover the Leading 25 Influential Souls for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-your-roadmap-to-acquiring-facebooks-esteemed-verification/"><u>[Updated] In 2024, Your Roadmap to Acquiring Facebook’s Esteemed Verification</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-alter-your-tone-effectively/"><u>[Updated] Mastering Instagram Alter Your Tone Effectively</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/campus-tech-hacks-how-to-qualify-and-benefit-from-lenovo-scholarly-discounts/"><u>Campus Tech Hacks: How to Qualify and Benefit From Lenovo Scholarly Discounts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-direct-download-vs-alternative-store-instagram-reels-efficiently/"><u>In 2024, Direct Download vs Alternative Store Instagram Reels Efficiently</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-realme-gt-neo-5-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Realme GT Neo 5 with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/meme-ology-the-science-of-popularizing-video-laughs-on-social-platforms/"><u>Meme-Ology The Science of Popularizing Video Laughs on Social Platforms</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-complete-guide-to-selecting-best-free-srt-translators-online-for-2024/"><u>The Complete Guide to Selecting Best FREE SRT Translators Online for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/transform-your-snapshots-with-vsco-essentials/"><u>Transform Your Snapshots with VSCO Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-prime-color-balancer-suite/"><u>[New] 2024 Approved Prime Color Balancer Suite</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-a-collection-of-the-most-engrossing-amusing-ig-accounts/"><u>[New] A Collection of The Most Engrossing, Amusing IG Accounts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevate-your-instagram-feed-vertical-video-edits-in-fcpx/"><u>[New] Elevate Your Instagram Feed Vertical Video Edits in FCPX</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-art-of-testimonials-techniques-for-persuasive-video-credibility/"><u>[New] In 2024, The Art of Testimonials Techniques for Persuasive Video Credibility</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-video-frustrations-find-solutions-now/"><u>[New] Instagram Video Frustrations? Find Solutions Now</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leading-tech-in-action-sports-recording/"><u>[Updated] Leading Tech in Action Sports Recording</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-the-art-of-larger-video-posts-in-instagram-for-2024/"><u>[Updated] Mastering the Art of Larger Video Posts in Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-shine-bright-on-social-top-instagram-highlight-ideas-triple-theme-for-2024/"><u>[Updated] Shine Bright on Social Top Instagram Highlight Ideas (Triple Theme) for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-finest-places-to-source-high-quality-vectors/"><u>[Updated] The Finest Places to Source High-Quality Vectors</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-guide-to-instagrams-gold-standard-six-tactics-to-attract-more-followers-for-2024/"><u>[Updated] The Ultimate Guide to Instagram's Gold Standard Six Tactics to Attract More Followers for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-instagram-reel-playbook/"><u>[Updated] The Ultimate Instagram Reel Playbook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-social-surge-amass-1k-on-ig-each-month-for-a-million-dream-for-2024/"><u>[Updated] The Ultimate Social Surge Amass 1K on IG Each Month for a Million Dream for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-6-plus-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 6 Plus to the Latest iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-secure-your-footage-how-to-blur-faces-in-videos/"><u>New In 2024, Secure Your Footage How to Blur Faces in Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/teaching-friends-share-your-location-in-fbmessenger/"><u>Teaching Friends: Share Your Location in FBMessenger</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-best-at-memes-app-version/"><u>The Best at Memes (App Version)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-guide-to-instagram-influence-5-strategies-with-examples/"><u>The Ultimate Guide to Instagram Influence 5 Strategies with Examples</u></a></li>
+<li><a href="https://media-tips.techidaily.com/three-effective-ways-to-transform-images-into-videos-a-step-by-step-guide/"><u>Three Effective Ways to Transform Images Into Videos: A Step-by-Step Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

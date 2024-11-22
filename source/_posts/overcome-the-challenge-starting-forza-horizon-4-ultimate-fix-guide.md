@@ -1,7 +1,7 @@
 ---
 title: "Overcome the Challenge: Starting Forza Horizon 4 - Ultimate Fix Guide"
-date: 2024-11-09T11:58:08.027Z
-updated: 2024-11-12T05:56:35.155Z
+date: 2024-11-18T18:22:10.133Z
+updated: 2024-11-22T00:17:12.455Z
 tags:
   - win11
   - win10
@@ -41,7 +41,15 @@ Don’t worry, here’re fixes may help you solve the issue.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-48-52.jpg)
 4. In the open section, change**Response Curve** to**Raw** , and set**Horizontal Turning Bonus** and**Vertical Turning Bonus** to**0** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-50-02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### For mouse/keyboard users
 
@@ -54,28 +62,12 @@ If you’re not using the controller, check the below settings.
 4. If you need to lower your graphic resolution, move to the**GRAPHICS** tab.
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5. Scroll down to find the**Resolution Scaling** section.
 6. Set the**Static FidelityFX CAS** to**ON** and lower the Resolution Scaling.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-59-50.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Some users have reported that by disabling all the aim assist options in settings, the issue has been improved a lot.
 
@@ -91,10 +83,7 @@ If this fix doesn’t work, move to the next one.
 3. Go to the**Mouse** tab, click**Additional mouse options** .  
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_16-00-50.jpg)
@@ -104,13 +93,6 @@ If this fix doesn’t work, move to the next one.
 5. Launch the game and check.
 
 If it doesn’t work, move to the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Update the device driver
 
@@ -140,15 +122,12 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update**  button next to the flagged driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
@@ -173,21 +152,20 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-ab-testing-caption-variants/"><u>[New] 2024 Approved A/B Testing Caption Variants</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-from-ideas-to-impact-mastering-video-marketing-on-instagram/"><u>[New] From Ideas to Impact Mastering Video Marketing on Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-taking-a-step-back-in-time-with-instagram-videos/"><u>[New] Taking a Step Back in Time with Instagram Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-unveiled-top-6-tools-to-purify-signature-images-online-for-2024/"><u>[Updated] Unveiled Top 6 Tools to Purify Signature Images Online for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-infusing-your-reels-with-soundscape-elements/"><u>2024 Approved Infusing Your Reels with Soundscape Elements</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/cookiebot-enhanced-site-performance-and-analytics/"><u>Cookiebot-Enhanced Site Performance & Analytics</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-visual-stories-in-minutes-using-windows-8-movie-maker-for-2024/"><u>Crafting Visual Stories in Minutes Using Window's 8 Movie Maker for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-s23plus-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel S23+ to Outlook | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-ignite-social-success-discover-the-10-most-powerful-igtv-video-ideas-for-brands/"><u>In 2024, Ignite Social Success Discover the 10 Most Powerful IGTV Video Ideas for Brands</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-twists-that-tell-stories-mastering-the-art-and-technique-of-spinning-visuals-for-maximum-impact-on-social-media-platforms/"><u>In 2024, Twists That Tell Stories Mastering the Art and Technique of Spinning Visuals for Maximum Impact on Social Media Platforms</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/innovative-ways-to-create-captivating-slow-motion-videos-for-instagram-fame-for-2024/"><u>Innovative Ways to Create Captivating Slow Motion Videos for Instagram Fame for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instavid-promotion-crafting-a-successful-marketing-gameplan/"><u>Mastering InstaVid Promotion Crafting a Successful Marketing Gameplan</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/resolve-code-39-problems-in-windows-a-comprehensive-solution-manual/"><u>Resolve Code 39 Problems in Windows: A Comprehensive Solution Manual</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/tsgif-movavi/"><u>TSファイルを無料でGIFに変換: Movaviの簡単な方法</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unstuck-from-silence-resolving-headphone-issues-in-windows-10-systems/"><u>Unstuck From Silence: Resolving Headphone Issues In Windows 10 Systems</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-samsung-galaxy-xcover-6-pro-tactical-edition-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Samsung Galaxy XCover 6 Pro Tactical Edition Phones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-invisible-time-recording-expertise/"><u>[New] Invisible Time Recording Expertise</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-transform-your-visual-content-on-instagram-using-these-6-tools-for-2024/"><u>[New] Transform Your Visual Content on Instagram Using These 6 Tools for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-avoiding-unwanted-accounts-on-insta/"><u>[Updated] 2024 Approved Avoiding Unwanted Accounts on Insta</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-navigating-through-instagrams-new-trends/"><u>[Updated] 2024 Approved Navigating Through Instagram's New Trends</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-8-most-popular-instagram-after-effects-packs-for-2024/"><u>[Updated] 8 Most Popular Instagram After Effects Packs for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-effortless-preservation-of-your-loved-instagram-reels-for-2024/"><u>[Updated] Effortless Preservation of Your Loved Instagram Reels for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-tips-for-picture-perfect-posts/"><u>[Updated] Mastering Instagram Tips for Picture-Perfect Posts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-recommended-set-17-apps-that-make-picture-fixing-easier/"><u>[Updated] Recommended Set 17 Apps That Make Picture Fixing Easier</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-superior-streaming-services-for-musicians/"><u>2024 Approved Superior Streaming Services for Musicians</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-tackle-destiny-2s-broccoli-glitch-with-a-2024-update-solution/"><u>How to Tackle Destiny 2'S Broccoli Glitch with a 2024 Update Solution</u></a></li>
+<li><a href="https://blog-min.techidaily.com/online-mpg-3g2-movavi/"><u>Online 무료 MPG 파일을 3G2 형식으로 자유성 변환 - Movavi</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/stepwise-guide-to-designing-efficient-podcast-rss-feeds/"><u>Stepwise Guide to Designing Efficient Podcast RSS Feeds</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/unveiling-hidden-issues-with-symbol-on-mac-files/"><u>Unveiling Hidden Issues with '?' Symbol on Mac Files</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-the-ultimate-selection-of-six-compelling-chrome-talk-transformers-to-experience-moviemagicsuite-for-2024/"><u>Updated The Ultimate Selection of Six Compelling Chrome Talk Transformers to Experience - MovieMagicSuite for 2024</u></a></li>
 </ul></div>
 

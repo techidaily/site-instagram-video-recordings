@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Lenovo Tab 4: Great Value but with Some Downsides in an Android Tablet"
-date: 2024-11-09T10:56:06.430Z
-updated: 2024-11-12T03:49:21.366Z
+date: 2024-11-17T04:48:47.241Z
+updated: 2024-11-21T16:12:18.524Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Lenovo Tab 4: Great Value but with Some Downsides in an Android Tablet"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/d3cde457e9e8c995d522bb2c4aea0f1da4fb181b0
 ## Lenovo Tab M10 HD (2nd Gen)
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/06yy-B-ZCvWfOzJ-tXX1fyPjkUE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_HeroSquare-00489478f3e74cb9b38444e2d94ab257.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -41,6 +45,10 @@ Lifewire / Jeremy Laukkonen
 ## Lenovo Tab M10 HD (2nd Gen)
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/nflgcBFiQwDyFecUir_IrCX-Gc4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_HeroSquare-00489478f3e74cb9b38444e2d94ab257.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -75,6 +83,10 @@ Lifewire / Jeremy Laukkonen
 
  I recently unpacked a second-gen Tab M10 HD and used it for about a week for everything from email and web browsing to video conferencing and streaming movies from[apps like Netflix](https://www.lifewire.com/overview-of-the-netflix-streaming-service-1847831) and[HBO Max](https://www.lifewire.com/what-is-hbo-max-how-to-watch-it-4782926) . During my time with the tablet, I tested overall performance, video and audio quality, wireless speeds, and a variety of other factors to see if this budget friendly Android tablet is worth the asking price.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What’s New: Better price, better specs, lower resolution
 
  The first-generation Lenovo Tab M10 hit shelves back in 2019\. It shipped with Android 8.1 and an MSRP just shy of $200\. Right off the top you can see that Lenovo decided to chase a more budget-friendly market segment with the second generation of the hardware.
@@ -92,10 +104,7 @@ Lifewire / Jeremy Laukkonen
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/pPNbzMq7aB9LY-_koMR-oHoTUHA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_02-1cb2ef47999844eaacd3c03a777faea8-f2d25c46eb184b4c8b7a8667735f2ea9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -113,13 +122,6 @@ Lifewire / Jeremy Laukkonen
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big. The first generation of the Tab M10 hardware had a full HD display, while this one gives you only a resolution of 800 x 1280 for an abysmal pixel density of about 149 ppi on the big 10-inch IPS LCD screen. It looks fine when held at arm's length, but move it any closer and you can make out the individual pixels like you’re looking at the tablet through a screen door.
 
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: Depends on the configuration you get
 
@@ -141,13 +143,6 @@ Lifewire / Jeremy Laukkonen
 
  These results aren’t very surprising, but they do indicate that you’re unlikely to have that great experience playing complex games on this tablet. If you’re looking for a tablet to run in Google Kids Space, it will run most of those games pretty well. If you’re looking to play anything that’s demanding on a graphics level, keep looking. Even Lenovo’s similarly-equipped Tab M10 FHD Plus performs significantly better in this department.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Productivity: Best suited to basic tasks
 
  There are two versions of this tablet: the Tab M10 HD, and the Smart Tab M10 HD. They are identical in terms of both internal hardware and external design. The difference is that the Smart Tab M10 HD comes with a dock, and the Tab M10 HD doesn’t. With its dock and integrated[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) voice controls, the Smart Tab M10 HD gets higher marks in terms of productivity than the Tab M10 HD.
@@ -157,20 +152,10 @@ Lifewire / Jeremy Laukkonen
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/jC-nIsNjG_LVHXw3eP-5D_jO_fY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_03-dad5bfce705b4e0c891a4088b2b77b10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Audio: Decent stereo sound with support for Dolby Atmos
 
@@ -181,10 +166,7 @@ Lifewire / Jeremy Laukkonen
  On the subject of audio and headphones, the Tab M10 HD includes a[built-in FM radio](https://www.lifewire.com/use-fm-radio-on-smartphone-4176272) using your headphones as the antenna. I plugged in my favorite earbuds, loaded up an FM radio app, and I was able to pull down dozens of local FM radio stations with pretty decent reception. This is a feature that isn’t always enabled even when the hardware technically supports it, so it’s a nice little extra you’ll be able to rely on even if your internet goes down.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Network: Good Wi-Fi speeds and an LTE option
@@ -206,6 +188,10 @@ Lifewire / Jeremy Laukkonen
  Lenovo improved the camera situation in the 2020 version of the Tab M10 HD compared to the first generation, but not enough to provide anything even close to what I’d consider good results. The rear camera is an 8MP shooter that can record 1080p video at 30 FPS, and it also has a 5MP sensor around front for a selfie cam.
 
 ![ Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/QWjGqm3tIOfUaMl-XbAiyNGq3Qs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_04-1ce5df00874d43509815a19be12088ad-889e4f6f68c041b58b9e2d96cd0d9c29.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -233,13 +219,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/tEVLeulE6MYWbsBkYCv9cDXD3CM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_05-ffe07c01135a491abdafbdc41ef6eca6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
 ## Lenovo Tab M10 HD (2020) vs. Lenovo Tab M10 FHD Plus (2020)
@@ -255,6 +234,10 @@ Lifewire / Jeremy Laukkonen
 **Great for casual use or as a tablet for the kids.**
 
  The Lenovo Tab M10 HD (2020) looks great and feels solid, and the price is right. If you’re looking for a tablet that you’ll primarily use for email and web browsing, with some video streaming thrown in, it’s a very solid option. Thanks to the inclusion of Google Kids Space, it’s also a great choice if you’re looking for a tablet for your kids.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -299,20 +282,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-beginning-the-live-journey-on-instagram-for-2024/"><u>[New] Beginning the Live Journey on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-comparing-reels-and-stories-whats-the-best-choice/"><u>[New] In 2024, Comparing Reels & Stories What's the Best Choice?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-expertly-design-fb-ads-get-help-from-free-video-creation-toolkit/"><u>[New] In 2024, Expertly Design FB Ads – Get Help From Free Video Creation Toolkit</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-to-turn-off-igtv-for-2024/"><u>[New] Step-by-Step to Turn Off IGTV for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-transformative-techniques-for-high-quality-mp4s-from-instagram/"><u>[Updated] 2024 Approved Transformative Techniques for High-Quality MP4s From Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-gleaming-graphics-the-art-of-crafting-insta-highlights-3-ways/"><u>2024 Approved Gleaming Graphics The Art of Crafting Insta Highlights (3 Ways)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-insights-into-instagram-an-in-depth-analysis-guide-for-professionals/"><u>2024 Approved Insights Into Instagram An In-Depth Analysis Guide for Professionals</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-15-plus-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 15 Plus Online</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-motorola-edge-40-neo-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Motorola Edge 40 Neo via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-6-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone 6 Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-inquiring-into-the-benefit-of-verified-online-self-portraits/"><u>In 2024, Inquiring Into the Benefit of Verified Online Self-Portraits</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/inside-look-at-samsung-galaxy-s21-a-step-back-for-a-strategic-leap-forward/"><u>Inside Look at Samsung Galaxy S21: A Step Back for a Strategic Leap Forward</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/stellar-unveils-revolutionary-software-for-impeccable-picture-retrieval-and-mending-latest-news-update/"><u>Stellar Unveils Revolutionary Software for Impeccable Picture Retrieval & Mending - Latest News Update</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-strategies-for-boosting-handp-healthcare-fb-campaigns-for-2024/"><u>Top Strategies for Boosting H&P Healthcare FB Campaigns for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/transforming-iphone-into-an-ultimate-gaming-device/"><u>Transforming iPhone Into an Ultimate Gaming Device</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevate-your-feed-10-must-have-instagram-tools/"><u>[New] 2024 Approved Elevate Your Feed 10 Must-Have Instagram Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-learn-the-art-of-adding-borders-on-insta-videos/"><u>[New] 2024 Approved Learn the Art of Adding Borders on Insta Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-ultimate-select-masterful-instagram-hlv-artisans-for-2024/"><u>[New] Ultimate Select Masterful Instagram HLV Artisans for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-capturing-emotion-ensuring-authenticity-in-your-youtube-videos/"><u>[Updated] Capturing Emotion Ensuring Authenticity in Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-simplified-approach-to-broadcasting-recorded-vids-on-social-media-for-2024/"><u>[Updated] Simplified Approach to Broadcasting Recorded Vids on Social Media for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-speeding-up-snapchat-media-video/"><u>[Updated] Step-by-Step Speeding Up Snapchat Media (Video)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-enhance-your-content-creating-engaging-loop-videos-for-ig/"><u>2024 Approved Enhance Your Content Creating Engaging Loop Videos for IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-definitive-guide-to-post-production-perfection-on-instagram/"><u>2024 Approved The Definitive Guide to Post-Production Perfection on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-leading-25-icons-setting-social-trends-on-insta/"><u>2024 Approved The Leading 25 Icons Setting Social Trends on Insta</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/cutting-the-clutter-stopping-instagram-followers/"><u>Cutting the Clutter Stopping Instagram Followers</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-the-latest-fingerprint-authentication-suite-on-windows-pcs/"><u>Download and Install the Latest Fingerprint Authentication Suite on Windows PCs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-blurry-edges-to-squared-perfection-the-imovie-guide-for-instagram-videos-for-2024/"><u>From Blurry Edges to Squared Perfection The iMovie Guide for Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-secrets-to-dynamic-and-effective-igtv-covers/"><u>In 2024, Secrets to Dynamic & Effective IGTV Covers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-the-marketplace-30-advanced-fb-techniques-explored/"><u>Mastering the Marketplace 30 Advanced FB Techniques Explored</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-vivo-y02t-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Vivo Y02T – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/stable-gaming-experience-overcoming-gas-station-simulator-pc-glitches/"><u>Stable Gaming Experience: Overcoming Gas Station Simulator PC Glitches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lueprint-for-success-livestreaming-ultra-wide-video-content-on-youtube-for-2024/"><u>The Blueprint for Success Livestreaming Ultra-Wide Video Content on YouTube for 2024</u></a></li>
 </ul></div>
 

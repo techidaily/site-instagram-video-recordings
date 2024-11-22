@@ -1,7 +1,7 @@
 ---
 title: "[New] Integrating Language Support in IGTV Posts"
-date: 2024-11-07T16:09:48.998Z
-updated: 2024-11-11T19:41:38.106Z
+date: 2024-11-19T21:33:57.450Z
+updated: 2024-11-21T21:07:11.195Z
 tags:
   - ai video
   - ai instagram
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/7bb5cd6c098dcc354a1616a8cf729a503ba552ba0
 
 During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
 
 IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
@@ -40,6 +44,10 @@ We are going to show you how to add subtitles to videos in Filmora because you d
 Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
 
@@ -59,26 +67,20 @@ You can choose from a variety of preset text styles, and you can select the font
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
@@ -92,16 +94,7 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -119,21 +112,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-30-powerful-freegame-hashtags-for-dominating-youtube/"><u>[New] 2024 Approved 30 Powerful FreeGame Hashtags for Dominating YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-iconic-instagram-aesthetics-compilation/"><u>[New] In 2024, Iconic Instagram Aesthetics Compilation</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-image-protection-the-art-of-photowatermarking-for-2024/"><u>[New] Instagram Image Protection The Art of Photowatermarking for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-best-practices-for-uploading-windows-media-content-to-vimeo/"><u>[Updated] 2024 Approved Best Practices for Uploading Windows Media Content to Vimeo</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-transform-your-online-presence-on-tiktok-in-5-easy-steps-for-2024/"><u>[Updated] Transform Your Online Presence on TikTok in 5 Easy Steps for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-a-comprehensive-dive-into-creating-inspiring-slow-mo-videos-on-ig/"><u>2024 Approved A Comprehensive Dive Into Creating Inspiring Slow Mo Videos on IG</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-deciphering-instagrams-video-limit-rules/"><u>2024 Approved Deciphering Instagram's Video Limit Rules</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-exploring-the-validity-of-instagram-photos/"><u>2024 Approved Exploring the Validity of Instagram Photos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-integrating-instagram-effects-into-pre-existing-content/"><u>2024 Approved Integrating Instagram Effects Into Pre-Existing Content</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-maximize-inshot-usage-import-feature-walkthrough/"><u>2024 Approved Maximize InShot Usage Import Feature Walkthrough</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/data-restoration-solutions-for-mac-best-of-free-and-paid-software/"><u>Data Restoration Solutions for Mac - Best of Free & Paid Software</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/elite-racer-cutting-edge-gaming-selection/"><u>Elite Racer Cutting-Edge Gaming Selection</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Samsung Galaxy M54 5G? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-exclusive-tools-to-elevate-your-horizontal-and-vertical-igtv-posts/"><u>In 2024, Exclusive Tools to Elevate Your Horizontal and Vertical IGTV Posts</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/m-audio-fast-track-drivers-download-now-for-windows-11-7-8-and-81-compatibility/"><u>M-Audio Fast Track Drivers – Download Now for Windows 11, 7, 8 and 8.1 Compatibility</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723211702433-windows-and-system-event-notification-services-connection-problem-fixed/"><u>Windows & System Event Notification Services Connection Problem, Fixed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-discover-the-top-7-free-youtube-tag-extractor-vendors/"><u>[New] 2024 Approved Discover the Top 7 Free YouTube Tag Extractor Vendors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-expert-tips-for-optimal-color-grading-using-luts-in-adobe-premiere-pro/"><u>[New] Expert Tips for Optimal Color Grading Using LUTs in Adobe Premiere Pro</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-connect-instagram-to-facebook/"><u>[New] In 2024, How to Connect Instagram to Facebook</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/onetization-mastery-guide-choosing-the-right-platform-for-2024/"><u>[New] Monetization Mastery Guide Choosing the Right Platform for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-synergizing-social-networks-share-your-igtv-content/"><u>[New] Synergizing Social Networks Share Your IGTV Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-televisual-enhancements-through-engaging-fb-livestreams-for-2024/"><u>[New] Televisual Enhancements Through Engaging FB Livestreams for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitmedia-mastery-elevate-your-tweet-game/"><u>[New] TwitMedia Mastery Elevate Your Tweet Game</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eye-catching-vlog-talk-points/"><u>[Updated] 2024 Approved Eye-Catching Vlog Talk Points</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-final-cut-pro-x-the-ultimate-guide-for-vertical-video-posts/"><u>[Updated] 2024 Approved Final Cut Pro X The Ultimate Guide for Vertical Video Posts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-fix-audio-loop-in-tweeted-visual-media-links/"><u>[Updated] 2024 Approved Fix Audio Loop in Tweeted Visual Media Links</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-flipping-through-frames-instagrams-video-reversal-wizardry/"><u>[Updated] 2024 Approved Flipping Through Frames Instagram's Video Reversal Wizardry</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-iconic-instagram-aesthetics-compilation/"><u>[Updated] 2024 Approved Iconic Instagram Aesthetics Compilation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-novice-to-nirvana-transform-your-instagram-edits-for-2024/"><u>[Updated] From Novice to Nirvana Transform Your Instagram Edits for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-increasing-engagement-on-instagram-videos-for-2024/"><u>[Updated] Increasing Engagement on Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagrams-visual-spectacle-becoming-a-reel-wizard/"><u>[Updated] Instagram's Visual Spectacle Becoming a Reel Wizard</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/itunesmp3wav-dvd/"><u>ITunesでMP3やWAVファイルのみ抽出する - DVDから</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lifelong-learners-guide-to-new-languages/"><u>The Lifelong Learner's Guide to New Languages</u></a></li>
 </ul></div>
 

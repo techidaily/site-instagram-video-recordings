@@ -1,7 +1,7 @@
 ---
 title: How to Overcome Launch Difficulties for Red Dead Redemption 2 (ISSUES RESOLVED)
-date: 2024-11-10T20:52:45.025Z
-updated: 2024-11-12T03:48:36.991Z
+date: 2024-11-15T02:46:38.399Z
+updated: 2024-11-21T16:46:32.084Z
 tags:
   - win11
   - win10
@@ -46,13 +46,6 @@ By checking your system specs, just follow the instructions below:
 
 ![bring up DirectX Diagnostic Tool](https://images.drivereasy.com/wp-content/uploads/2020/09/dxdiag.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2) Now you can check your system specs.
 
 ![check system specs
@@ -69,6 +62,10 @@ By checking your system specs, just follow the instructions below:
  You might not be able to launch your games if your graphics drivers are corrupt or out-of-date. So to have a better gaming experience, have them updated.
 
  There are mainly two options you can take to update your graphics drivers:[manually](https://tools.techidaily.com/drivereasy/download/) or[automatically](https://tools.techidaily.com/drivereasy/download/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Option 1: Manually update your graphics drivers
 
@@ -90,6 +87,10 @@ By checking your system specs, just follow the instructions below:
 
 ![update drivers; scan now](https://images.drivereasy.com/wp-content/uploads/2020/09/scan-now-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click the **Update** button next to _your graphics driver_ to automatically download the correct driver for your computer, then you can manually install it.
 
 OR
@@ -105,6 +106,10 @@ OR
 
  If you’ve had all your drivers updated and the problem persists, try the next fix.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 3: Run TF2 in compatibility mode & as an administrator
 
  When your game keeps hanging on “Preparing to launch…” and it never launches, try running it in compatibility mode & as an administrator.
@@ -113,16 +118,13 @@ OR
 
 ![run the game in compatibility mode; Team Fortress 2](https://images.drivereasy.com/wp-content/uploads/2020/09/run-the-game-in-compatibility-mode-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Open the**steamapps** folder.
 
 ![run the game in compatibility mode TF2](https://images.drivereasy.com/wp-content/uploads/2020/09/run-the-game-in-compatibility-mode-2-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3) Then open the**common** folder >**Team Fortress 2** folder.
 
@@ -130,23 +132,9 @@ OR
 
 ![run the game in compatibility mode TF2](https://images.drivereasy.com/wp-content/uploads/2020/09/run-the-game-in-compatibility-mode-3-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  5) Select the**Compatibility** tab and check**Run this program in compatibility mode** and**Run this program as an administrator** . Then click**OK** .
 
 ![run the game in compatibility mode TF2](https://images.drivereasy.com/wp-content/uploads/2020/09/run-the-game-in-compatibility-mode-as-an-administrator.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 4: Verify the integrity of game files
 
@@ -161,10 +149,7 @@ OR
 ![Team Fortress 2 verify integrity of game files](https://images.drivereasy.com/wp-content/uploads/2020/09/verify-integrity-of-game-files.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3) Steam will verify the game’s files and this process may take several minutes.
@@ -172,10 +157,11 @@ OR
 ![Team Fortress 2 verify integrity of game files](https://images.drivereasy.com/wp-content/uploads/2020/09/verify-integrity-of-game-files-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 5: Set Launch Options
@@ -186,6 +172,10 @@ OR
 
 ![set launch options Team Fortress 2](https://images.drivereasy.com/wp-content/uploads/2020/09/set-launch-options-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) Under the**GENERAL** tab, click**SET LAUNCH OPTIONS** .
 
 ![set launch options Team Fortress 2](https://images.drivereasy.com/wp-content/uploads/2020/09/set-launch-options-2.png)
@@ -193,13 +183,6 @@ OR
  3) When the window pops up, type**autoconfig** and click**OK** .
 
 ![set launch options Team Fortress 2](https://images.drivereasy.com/wp-content/uploads/2020/09/set-launch-options-3.png)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Till then, try running the game. If you want to go back to the previous launch options, just delete**autoconfig** following the steps listed above.
 
@@ -233,19 +216,15 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-detailed-studio-assessment-xvideo-studio-journey-for-2024/"><u>[New] Detailed Studio Assessment XVideo Studio Journey for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-easy-steps-to-starting-an-instagram-live/"><u>[New] Easy Steps to Starting an Instagram Live</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-hitting-the-high-notes-in-instagram-photography-for-2024/"><u>[New] Hitting the High Notes in Instagram Photography for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-the-social-media-puzzle-decoding-ig-data-for-enhanced-campaigns-for-2024/"><u>[New] Mastering the Social Media Puzzle Decoding IG Data for Enhanced Campaigns for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhancing-user-experience-combining-instagram-and-facebook/"><u>[Updated] Enhancing User Experience Combining Instagram & Facebook</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-transforming-film-frames-on-insta-with-easy-steps/"><u>[Updated] In 2024, Transforming Film Frames on Insta with Easy Steps</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-overview-and-assessment-parrots-advanced-edition-for-2024/"><u>[Updated] Overview and Assessment - Parrot's Advanced Edition for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-10-pc-vr-headsets-2023-update/"><u>2024 Approved Top 10 PC VR Headsets -2023 Update</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/avoid-the-last-batch-meltdown-expert-strategies-for-windows-systems-updated-for-2024/"><u>Avoid the Last Batch Meltdown: Expert Strategies for Windows Systems (Updated for 202#4)</u></a></li>
-<li><a href="https://extra-information.techidaily.com/budget-friendly-high-resolution-cameras-for-2024/"><u>Budget-Friendly High-Resolution Cameras for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/discovering-10-ultimate-pic-finder-portals/"><u>Discovering 10 Ultimate Pic Finder Portals</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-infinix-hot-30i-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Infinix Hot 30i.</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/from-humble-beginnings-surging-subscribers-and-views-in-youtube-world-for-2024/"><u>From Humble Beginnings Surging Subscribers & Views in Youtube World for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/stop-mordhau-from-crashing-tips-and-fixes-for-a-smooth-gaming-experience/"><u>Stop Mordhau From Crashing: Tips and Fixes for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-anonymous-engagement-how-to-watch-instagram-stories-without-profile-reveal-pc-android-iphone/"><u>[New] Anonymous Engagement How to Watch Instagram Stories without Profile Reveal [PC, Android, iPhone]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-youtube-trailers-a-filmora-guide-for-2024/"><u>[New] Crafting YouTube Trailers A Filmora Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-building-brands-on-instagram-a-playbook-for-sponsorship-success/"><u>[New] In 2024, Building Brands on Instagram A Playbook for Sponsorship Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-clandestine-way-exploring-insta-stories-on-tech-devices/"><u>[New] In 2024, The Clandestine Way Exploring Insta Stories on Tech Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-streamlining-the-process-of-converting-zip-to-srt/"><u>[New] Streamlining the Process of Converting Zip to Srt</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tilize-youtubes-prominent-slot-a-compreenhensive-strategy-guide-for-2024/"><u>[New] Utilize YouTube's Prominent Slot A Compreenhensive Strategy Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-streamline-your-content-embedding-youtube-media-into-instagrams-story-section-for-2024/"><u>[Updated] Streamline Your Content Embedding YouTube Media Into Instagram's Story Section for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-xstudio-complete-video-setup-analysis/"><u>Mastering XStudio Complete Video Setup Analysis</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-initialization-problem-of-windows-11-configurations-step-by-step-tips/"><u>Solving the Initialization Problem of Windows 11 Configurations: Step-by-Step Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-now-leading-trio-of-language-learning-aids/"><u>Speak Anywhere, Now: Leading Trio of Language Learning Aids</u></a></li>
 </ul></div>
 
