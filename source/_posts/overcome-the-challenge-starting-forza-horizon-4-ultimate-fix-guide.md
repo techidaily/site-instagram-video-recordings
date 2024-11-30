@@ -1,7 +1,7 @@
 ---
 title: "Overcome the Challenge: Starting Forza Horizon 4 - Ultimate Fix Guide"
-date: 2024-11-18T18:22:10.133Z
-updated: 2024-11-22T00:17:12.455Z
+date: 2024-11-29T08:31:41.153Z
+updated: 2024-11-30T07:16:31.236Z
 tags:
   - win11
   - win10
@@ -42,13 +42,13 @@ Don’t worry, here’re fixes may help you solve the issue.
 4. In the open section, change**Response Curve** to**Raw** , and set**Horizontal Turning Bonus** and**Vertical Turning Bonus** to**0** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-50-02.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### For mouse/keyboard users
@@ -61,13 +61,13 @@ If you’re not using the controller, check the below settings.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-53-01.jpg)
 4. If you need to lower your graphic resolution, move to the**GRAPHICS** tab.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5. Scroll down to find the**Resolution Scaling** section.
 6. Set the**Static FidelityFX CAS** to**ON** and lower the Resolution Scaling.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-59-50.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Some users have reported that by disabling all the aim assist options in settings, the issue has been improved a lot.
 
@@ -83,7 +83,7 @@ If this fix doesn’t work, move to the next one.
 3. Go to the**Mouse** tab, click**Additional mouse options** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_16-00-50.jpg)
@@ -122,12 +122,12 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update**  button next to the flagged driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
@@ -152,20 +152,22 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-invisible-time-recording-expertise/"><u>[New] Invisible Time Recording Expertise</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-transform-your-visual-content-on-instagram-using-these-6-tools-for-2024/"><u>[New] Transform Your Visual Content on Instagram Using These 6 Tools for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-avoiding-unwanted-accounts-on-insta/"><u>[Updated] 2024 Approved Avoiding Unwanted Accounts on Insta</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-navigating-through-instagrams-new-trends/"><u>[Updated] 2024 Approved Navigating Through Instagram's New Trends</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-8-most-popular-instagram-after-effects-packs-for-2024/"><u>[Updated] 8 Most Popular Instagram After Effects Packs for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-effortless-preservation-of-your-loved-instagram-reels-for-2024/"><u>[Updated] Effortless Preservation of Your Loved Instagram Reels for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-tips-for-picture-perfect-posts/"><u>[Updated] Mastering Instagram Tips for Picture-Perfect Posts</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-recommended-set-17-apps-that-make-picture-fixing-easier/"><u>[Updated] Recommended Set 17 Apps That Make Picture Fixing Easier</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-superior-streaming-services-for-musicians/"><u>2024 Approved Superior Streaming Services for Musicians</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/how-to-tackle-destiny-2s-broccoli-glitch-with-a-2024-update-solution/"><u>How to Tackle Destiny 2'S Broccoli Glitch with a 2024 Update Solution</u></a></li>
-<li><a href="https://blog-min.techidaily.com/online-mpg-3g2-movavi/"><u>Online 무료 MPG 파일을 3G2 형식으로 자유성 변환 - Movavi</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/stepwise-guide-to-designing-efficient-podcast-rss-feeds/"><u>Stepwise Guide to Designing Efficient Podcast RSS Feeds</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/unveiling-hidden-issues-with-symbol-on-mac-files/"><u>Unveiling Hidden Issues with '?' Symbol on Mac Files</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-the-ultimate-selection-of-six-compelling-chrome-talk-transformers-to-experience-moviemagicsuite-for-2024/"><u>Updated The Ultimate Selection of Six Compelling Chrome Talk Transformers to Experience - MovieMagicSuite for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-adding-frames-to-instagram-videos-3-procedures/"><u>[New] In 2024, Adding Frames to Instagram Videos - 3 Procedures</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-best-10-websites-for-premium-quality-vector-stock-images/"><u>[New] In 2024, Best 10 Websites for Premium-Quality Vector Stock Images</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-optimize-your-gopro-shoot/"><u>[New] In 2024, Optimize Your GoPro Shoot</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-instagram-tips-sharing-your-podcast-content/"><u>[New] Instagram Tips Sharing Your Podcast Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-masterclass-in-design-upgrading-igtv-backgrounds/"><u>[New] Masterclass in Design Upgrading IGTV Backgrounds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-guide-to-top-instagram-metrics-monitors-for-ambitious-marketers-for-2024/"><u>[New] The Guide to Top Instagram Metrics Monitors for Ambitious Marketers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-xstudio-procedures-reviewed-complete-overview/"><u>[New] XStudio Procedures Reviewed Complete Overview</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-audio-recipe-converting-insta-vids-to-mp3/"><u>[Updated] Audio Recipe Converting Insta Vids to Mp3</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-get-going-on-youtube-video-upload-tutorial-in-premiere-for-2024/"><u>[Updated] Get Going on YouTube Video Upload Tutorial in Premiere for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-guide-to-exceptional-instagram-stories/"><u>[Updated] Step-by-Step Guide to Exceptional Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-observing-patterns-in-instagram-unlikes/"><u>2024 Approved Observing Patterns in Instagram Unlikes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/evaluating-igtv-video-impact-effectively-for-2024/"><u>Evaluating IGTV Video Impact Effectively for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-connect-instagram-to-facebook/"><u>How to Connect Instagram to Facebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-in-stream-ad-configurations-on-facebook-for-peak-performance/"><u>Mastering In-Stream Ad Configurations on Facebook for Peak Performance</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigating-instagram-copyright-for-2024/"><u>Navigating Instagram Copyright for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-infinix-zero-30-5g-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Infinix Zero 30 5G</u></a></li>
 </ul></div>
 
