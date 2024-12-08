@@ -1,7 +1,7 @@
 ---
 title: "[New] IGTV Video Submission Made Simple"
-date: 2024-11-23T22:03:01.829Z
-updated: 2024-11-29T21:05:49.810Z
+date: 2024-12-03T19:14:44.075Z
+updated: 2024-12-08T17:20:30.016Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/1b9c0ec4aac0a389de35bac2a472d37b33435d994
 A little over six months ago, Instagram launched the IGTV service that allows creators to post videos that last up to one hour. On the same day IGTV app that makes sharing videos on your IGTV channel easier was also launched, so you don’t even have to use the Instagram app to post new content to your channel. In case you’re not familiar with the IGTV app and you don’t know how to upload videos to your channel you’ve come to the right place, because in this article we are going to take you through all the steps you’ll need to take in order to upload a video to IGTV.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Make Your IGTV Marketing Videos Shine
@@ -38,11 +38,7 @@ Recently, video marketing has become an unstoppable trend. Celebrities and busin
 [![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Upload Videos to IGTV?
@@ -72,7 +68,7 @@ Even though IGTV videos can last up to **sixty minutes**, this option is **reser
 Currently, the size of a video can’t exceed **560 MB** for videos between **15 seconds and ten minutes,** while the maximum file size for a sixty-minute videos is limited to **3.6 GB**. IGTV videos have to be vertical, and the content you upload must have a minimum **4:5 aspect ratio, while the maximum aspect ratio is 9:16\.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Uploading and Posting Videos to IGTV
@@ -80,6 +76,10 @@ Currently, the size of a video can’t exceed **560 MB** for videos between **15
 Despite the fact that you can now upload videos that last for an entire hour, it is still better to keep the content you share on your IGTV channel short. Videos that **last between two and five minutes** are best suited for the audience on social media. Posting videos that surpass the five-minute limit can prove to be counterproductive because people won’t take the time to watch them from start to finish.
 
 Aside from YouTube, a majority of videos on social media platforms are watched without sound. That’s why adding subtitles to your video may be a good idea, but just remember that you have to hardcode the subtitles into the video since SRT files don’t work well with vertical videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Analyzing and Promoting an IGTV Channel
 
@@ -92,7 +92,7 @@ In the first six months after its initial launch IGTV seems like it has made Ins
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -110,16 +110,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-step-by-step-guide-to-viewing-vr-films-and-games-on-ios/"><u>[New] 2024 Approved Step-by-Step Guide to Viewing VR Films & Games on IOS</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-masterclass-in-instagram-story-downloads-and-creation/"><u>[Updated] 2024 Approved Masterclass in Instagram Story Downloads & Creation</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-essential-insights-into-youtubes-content-policy-framework-for-2024/"><u>[Updated] Essential Insights Into YouTube's Content Policy Framework for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-endless-eradication-guide-bypassing-youtubes-snappy-content/"><u>[Updated] In 2024, Endless Eradication Guide Bypassing YouTube's Snappy Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-quick-guide-to-instagrams-magnification-magic/"><u>[Updated] In 2024, The Quick Guide to Instagram's Magnification Magic</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-snapsizestrategy-optimize-your-visual-content-on-ig/"><u>[Updated] SnapSizeStrategy Optimize Your Visual Content on IG</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-the-full-potential-of-your-h-videos-on-instagram-tv/"><u>[Updated] Unlock the Full Potential of Your H-Videos on Instagram TV</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-uncomplicated-steps-to-record-instagrams-story-feed/"><u>2024 Approved Uncomplicated Steps to Record Instagram's Story Feed</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-z50-ultra-by-fonelab-android-recover-video/"><u>How to recover old videos from your Z50 Ultra</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-screenshot-simplicity-compatible-free-capturing-apps-for-windows/"><u>In 2024, Screenshot Simplicity Compatible Free Capturing Apps for Windows</u></a></li>
-<li><a href="https://video-capture.techidaily.com/mp3vlc-simple-guide-for-converting-mp3-music-with-vlc/"><u>MP3音楽をVLCに変換する簡単ガイド - Simple Guide for Converting MP3 Music with VLC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-copyright-protection-for-instatunes/"><u>[New] 2024 Approved Copyright Protection for InstaTunes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-shoot-igtv-videos-with-smartphonedlsr-cameras/"><u>[New] 2024 Approved How to Shoot IGTV Videos With Smartphone/DLSR Cameras?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-your-screens-guide-to-smart-stocks/"><u>[New] In 2024, Your Screen's Guide to Smart Stocks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insights-on-instagram-maximum-video-length/"><u>[New] Insights on Instagram Maximum Video Length</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-awaken-the-artist-within-selective-shots-for-inspiration/"><u>[Updated] 2024 Approved Awaken the Artist Within Selective Shots for Inspiration</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-exclusive-access-to-premium-playlists-on-mobile-devices-for-2024/"><u>[Updated] Exclusive Access to Premium Playlists on Mobile Devices for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-swiftly-restoring-eliminated-reddit-content/"><u>[Updated] In 2024, Swiftly Restoring Eliminated Reddit Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-perfect-your-titles-and-descriptions-for-top-ranked-igtv-videos/"><u>[Updated] Perfect Your Titles & Descriptions for Top-Ranked IGTV Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-secure-quick-and-free-screen-captures-on-windows-8/"><u>[Updated] Secure, Quick, & Free Screen Captures on Windows 8</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unlocking-the-potential-of-instagrams-live-video-features/"><u>2024 Approved Unlocking the Potential of Instagram’s Live Video Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/avoiding-common-hashtag-faux-pas-on-instagram-for-2024/"><u>Avoiding Common Hashtag Faux Pas on Instagram for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-excel-2007-formula-not-showing-result-by-stellar-guide/"><u>Fix Excel 2007 formula not showing result</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-of-schooling-mondly-and-apple-join-forces/"><u>Future of Schooling: Mondly & Apple Join Forces</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-insta-story-mastery-adjusting-focus-like-a-pro/"><u>In 2024, Insta Story Mastery Adjusting Focus Like a Pro</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-virtual-meeting-platforms-zooming-onto-your-android/"><u>In 2024, Navigating Virtual Meeting Platforms Zooming Onto Your Android</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-complete-guide-to-hp-envy-27s-4k-features/"><u>In 2024, The Complete Guide to HP Envy 27'S 4K Features</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/two-system-sync-fixes-remedying-the-absence-of-audio-on-your-dual-computer-setup/"><u>Two-System Sync Fixes: Remedying the Absence of Audio on Your Dual Computer Setup</u></a></li>
 </ul></div>
 

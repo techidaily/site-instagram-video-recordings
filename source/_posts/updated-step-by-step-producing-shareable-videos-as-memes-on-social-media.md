@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step  Producing Shareable Videos as Memes on Social Media\""
-date: 2024-11-18T18:06:31.852Z
-updated: 2024-11-21T21:15:51.223Z
+date: 2024-12-03T19:57:43.064Z
+updated: 2024-12-08T16:26:57.156Z
 tags:
   - ai video
   - ai instagram
@@ -33,16 +33,12 @@ thumbnail: https://thmb.techidaily.com/cb31b7e1126829f3edd114be49ab32d4b537b8ce3
 * [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook and Instagram specs
 
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Facebook
 
@@ -67,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/cb31b7e1126829f3edd114be49ab32d4b537b8ce3
 * Link description is 30 characters max with 25 characters long headline.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Instagram
@@ -78,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/cb31b7e1126829f3edd114be49ab32d4b537b8ce3
 * Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
 * The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to make a video meme for Facebook and Instagram step by step
 
@@ -102,11 +102,11 @@ thumbnail: https://thmb.techidaily.com/cb31b7e1126829f3edd114be49ab32d4b537b8ce3
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bottom Line
@@ -130,19 +130,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-aesthetics-tips-for-video-reversal/"><u>[New] 2024 Approved Instagram Aesthetics Tips for Video Reversal</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-leveraging-instagrams-newest-filters-techniques-and-trends/"><u>[New] 2024 Approved Leveraging Instagram's Newest Filters - Techniques and Trends</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-how-to-make-slow-motion-videos-on-instagram-reels-step-by-step-for-2024/"><u>[New] How to Make Slow Motion Videos on Instagram Reels [Step by Step] for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-capture-every-click-with-spring-screen-recorder/"><u>[Updated] 2024 Approved Capture Every Click with Spring Screen Recorder</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-inauthentic-affection-impacts-your-feeds-credibility/"><u>[Updated] 2024 Approved How Inauthentic Affection Impacts Your Feed's Credibility</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-download-instagram-videos-on-pc-and-mac/"><u>[Updated] How to Download Instagram Videos on PC and Mac</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-advanced-methods-for-creating-quick-quality-thumbnails/"><u>[Updated] In 2024, Advanced Methods for Creating Quick, Quality Thumbnails</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-camera-accessories-for-travel-cinematography/"><u>[Updated] In 2024, Camera Accessories for Travel Cinematography</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-setup-made-simple-installing-vrecorder/"><u>[Updated] In 2024, Setup Made Simple Installing VRecorder</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-vocal-lens-capture-microphone-inputs-for-2024/"><u>[Updated] Vocal Lens Capture Microphone Inputs for 2024</u></a></li>
-<li><a href="https://techidaily.com/different-methods-for-resetting-motorola-edge-2023-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Motorola Edge 2023 Phones with Screen Locked and Not | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-essentials-of-instagram-filters-for-picture-perfection/"><u>In 2024, The Essentials of Instagram Filters for Picture Perfection</u></a></li>
-<li><a href="https://facebook.techidaily.com/leadership-overseeing-facebook/"><u>Leadership Overseeing Facebook</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolved-how-to-eliminate-lag-during-a-game-of-league-of-legends/"><u>Resolved: How to Eliminate Lag During a Game of League of Legends</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevate-your-posts-with-4-effective-video-loop-techniques-for-2024/"><u>[New] Elevate Your Posts with 4 Effective Video Loop Techniques for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-exclusive-list-top-5-affordable-screen-recorders-for-windows/"><u>[New] Exclusive List Top 5 Affordable Screen Recorders for Windows</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-shaping-snapshots-transitioning-from-auto-to-smart-hdr-shooting/"><u>[New] Shaping Snapshots Transitioning From Auto to Smart HDR Shooting</u></a></li>
+<li><a href="https://win11.techidaily.com/correcting-enterprise-browser-controls-on-chrome-and-edge-on-windows/"><u>Correcting Enterprise Browser Controls on Chrome and Edge on Windows</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-cord-clutter-simultaneous-playthrough-of-videos/"><u>Cut the Cord Clutter Simultaneous Playthrough of Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/exclusive-ig-edits-for-apple-and-android-users-for-2024/"><u>Exclusive IG Edits for Apple & Android Users for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/experiencing-lenovos-clearbook-a-functional-marvel-unveiled-at-mobile-world-congress-insights-from-zdnet/"><u>Experiencing Lenovo's Clearbook: A Functional Marvel Unveiled at Mobile World Congress - Insights From ZDNet</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-panzoid-framework-assemblage/"><u>In 2024, Ultimate Panzoid Framework Assemblage</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagram-essential-hashtag-tips-for-2024/"><u>Mastering Instagram Essential Hashtag Tips for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/movavi-webp-online-webp/"><u>Movavi의 WEBP 이미지를 쉽게 구문 분석하고 원하는 모드로 변환: Online 무료 WEBP 변환기</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-visual-impact-insta-video-tips/"><u>Unlocking Visual Impact Insta Video Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/x4-executive-chair-by-x-chair-a-comprehensive-review-and-why-its-great-for-offices/"><u>X4 Executive Chair by X-Chair: A Comprehensive Review and Why It's Great For Offices</u></a></li>
 </ul></div>
 

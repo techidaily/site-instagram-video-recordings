@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Creating Engaging Instagram Highlight Tags"
-date: 2024-11-29T06:21:45.270Z
-updated: 2024-11-29T20:11:05.270Z
+date: 2024-12-02T19:34:35.756Z
+updated: 2024-12-08T21:37:34.418Z
 tags:
   - ai video
   - ai instagram
@@ -38,7 +38,7 @@ Generally, the Instagram highlight covers dimensions are the same as Insta stori
 ![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
@@ -59,10 +59,6 @@ Once you are on the website, create your free account if you do not have one, an
 
 ![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
 
 **Step 3: Select a background color or photo**
@@ -70,10 +66,6 @@ On the Canva homepage, click on **Create a design** tab at the right-hand upper 
 Canva provides fully customizable templates for highlight cover, you can drag one from the left pane to the blank canvas to start, add some texts or elements to customize.
 
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
 
@@ -85,9 +77,17 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 
 ![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
 
 ![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can make as many highlights covers as you want. Just click on the +Add page to replicate the background and then add a new icon or text for each new page created.
 
@@ -95,11 +95,11 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 ![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
@@ -107,11 +107,11 @@ Before you upload the highlight covers on Instagram, ensure you turn on the Arch
 
 ![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
 
@@ -158,19 +158,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-creative-couture-top-trendy-filters-on-ig/"><u>[New] 2024 Approved Creative Couture Top Trendy Filters on IG</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-immediate-window-image-on-pc-win/"><u>[New] In 2024, Immediate Window Image on PC (Win)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-best-budget-video-players-across-operating-systems-for-2024/"><u>[New] The Best Budget Video Players Across Operating Systems for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-creating-instagram-virality-video-edition-for-2024/"><u>[Updated] Creating Instagram Virality Video Edition for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unleash-creativity-professional-insights-into-shooting-and-editing-stunning-slow-motion-content-for-instagram-for-2024/"><u>[Updated] Unleash Creativity Professional Insights Into Shooting and Editing Stunning Slow Motion Content for Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/accelerating-your-ascension-to-instagram-a-list-status-our-fast-track-guide-of-15-must-try-strategies/"><u>Accelerating Your Ascension to Instagram A-List Status Our Fast Track Guide of 15 Must-Try Strategies</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprehensive-tips-to-address-missing-x3daudiodll-errors-quickly-and-easily/"><u>Comprehensive Tips to Address Missing X3DAudio.dll Errors Quickly and Easily</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-m-audio-fast-track-driver-for-windows-11-7-8-and-81-free-download-now/"><u>Get the Latest M-Audio Fast Track Driver for Windows 11, 7, 8 & 8.1 - Free Download Now</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-boost-your-bank-account-quickly-with-these-13-ways-to-profit-on-reddit/"><u>In 2024, Boost Your Bank Account Quickly With These 13 Ways to Profit on Reddit</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-video-loading-boosted-tricks-for-all-devices/"><u>In 2024, Instagram Video Loading Boosted Tricks for All Devices</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/navigating-file-transfer-how-to-save-igtv-videos-on-windowsmac-os-for-2024/"><u>Navigating File Transfer How to Save IGTV Videos on Windows/Mac OS for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/silence-no-more-discover-top-techniques-for-enabling-iphones-messaging-sounds-and-alerts/"><u>Silence No More: Discover Top Techniques for Enabling iPhone's Messaging Sounds and Alerts</u></a></li>
-<li><a href="https://techtrends.techidaily.com/solving-common-connectivity-challenges-making-your-ipad-recognize-the-printer-again/"><u>Solving Common Connectivity Challenges: Making Your iPad Recognize the Printer Again</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-dilemma-getting-your-windows-11-microphone-back-up-and-running/"><u>Solving the Dilemma: Getting Your Windows 11 Microphone Back Up and Running</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-3-ways-add-captions-to-instagram-videos/"><u>[New] 2024 Approved [3 Ways] Add Captions to Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-best-practices-for-measuring-igtv-video-effectiveness/"><u>[New] In 2024, Best Practices for Measuring IGTV Video Effectiveness</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-lg-360-vr-headset-review/"><u>[New] In 2024, LG 360 VR Headset Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-making-audio-files-out-of-instagram-videos-for-2024/"><u>[New] Making Audio Files Out of Instagram Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-view-count-visionaries-strategies-for-huge-traffic/"><u>[New] View Count Visionaries Strategies for Huge Traffic</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-essential-guide-to-enhancing-video-content-on-instagram-for-2024/"><u>[Updated] Essential Guide to Enhancing Video Content on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-use-igtv-hashtags-to-get-more-followers-for-2024/"><u>[Updated] How to Use IGTV Hashtags to Get More Followers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-comparative-analysis-is-pickup-the-best-editor-for-your-android-device/"><u>[Updated] In 2024, Comparative Analysis Is PickUp The Best Editor for Your Android Device?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-how-to-uncover-hidden-facebook-vids-updated-guide/"><u>2024 Approved How to Uncover Hidden Facebook Vids (Updated Guide)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unleash-your-potential-with-top-igtv-creators/"><u>2024 Approved Unleash Your Potential with Top IGTV Creators</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-game-on-instagram-5-key-tactics-for-top-tier-influencers-for-2024/"><u>Elevate Your Game on Instagram 5 Key Tactics for Top-Tier Influencers for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-innovative-metaverse-memes-a-beginners-roadmap-for-2024/"><u>Exploring Innovative Metaverse Memes A Beginner's Roadmap for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-honor-90-gt-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Honor 90 GT Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-gt-5-pro-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from GT 5 Pro</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-zte-axon-40-lite-by-drfone-android/"><u>How to Show Wi-Fi Password on ZTE Axon 40 Lite</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/optimize-your-facebook-routine-using-our-five-key-productivity-hacks/"><u>Optimize Your Facebook Routine Using Our Five Key Productivity Hacks</u></a></li>
 </ul></div>
 

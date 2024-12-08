@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reviving Your Visual Story  Adding Instagram's Flavor to Old Photos/Videos for 2024\""
-date: 2024-11-19T17:07:15.525Z
-updated: 2024-11-21T20:18:43.377Z
+date: 2024-12-03T19:15:35.138Z
+updated: 2024-12-08T21:03:12.726Z
 tags:
   - ai video
   - ai instagram
@@ -64,10 +64,6 @@ After you have selected the image from the gallery, you can apply a filter to it
 
 ![  Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Select filters**
 
 After clicking on the smiley icon, you will be seeing a lot of saved and existing filer options. **Swipe left** to try out and select a filter you like.
@@ -80,16 +76,12 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
@@ -127,9 +119,17 @@ On the bottom, you will find a search icon which is also called the filter carou
 
 ![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Download or upload**
 
 After you apply the filter, you can **click on done** on the top right to post. Also, there is an option to **download the video** if you like. You can save videos with filters in your gallery to use on other social media platforms.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Add Filters o Instagram Photos When Uploading?
 
@@ -150,7 +150,7 @@ After you **click next**, you will see a lot of filter options. You can **swipe 
 When customizing the filter intensity, you can s**elect next** and **click on edit** to further enhance the image. You can increase brightness, sharpen the image, etc. When the image is edited as per your choice, you can tag people or simply post.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Add Filter to Instagram Reel Photo and Video?
@@ -164,7 +164,7 @@ Open the story option and **swipe to enable the Reel option**. Once you have the
 ![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Click on shine emoji to add filters**
@@ -180,11 +180,7 @@ After you are done adding effects, you can **click on done** to post, and you ca
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **FAQs** About Instagram Filters
@@ -203,6 +199,10 @@ Often people do not know how to add Instagram filters to existing photos and vid
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -218,24 +218,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-crafting-your-professional-space-setting-up-an-account-on-ig/"><u>[New] Crafting Your Professional Space Setting Up an Account on IG</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-demystifying-complexities-a-guide-to-understanding-slug-lines/"><u>[New] In 2024, Demystifying Complexities A Guide to Understanding Slug Lines</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-peak-hours-explained-maximizing-engagement-for-2024/"><u>[New] Instagram Peak Hours Explained Maximizing Engagement for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-the-hottest-templates-in-igs-vfx-community/"><u>[New] Navigating the Hottest Templates in IG's VFX Community</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-revolutionize-your-social-media-strategy-essential-instagram-analytics-platforms-for-2024/"><u>[New] Revolutionize Your Social Media Strategy Essential Instagram Analytics Platforms for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-your-channels-viewer-loyalty-essential-tactics-unveiled-for-2024/"><u>[Updated] Boosting Your Channels' Viewer Loyalty Essential Tactics Unveiled for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-determining-a-bespoke-keyword-for-your-tiktok-feed-for-2024/"><u>[Updated] Determining a Bespoke Keyword for Your TikTok Feed for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-elevating-your-igtv-visuals-cover-photos-update/"><u>[Updated] In 2024, Elevating Your IGTV Visuals Cover Photos Update</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlock-the-secrets-of-smooth-and-seamless-keying-in-videography/"><u>[Updated] In 2024, Unlock the Secrets of Smooth and Seamless Keying in Videography</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/appreciation-showcase-outro-themes-for-all-budgets/"><u>Appreciation Showcase Outro Themes for All Budgets</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/discover-the-best-instagram-video-editors-for-mobile-devices-for-2024/"><u>Discover the Best Instagram Video Editors for Mobile Devices for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/global-audiences-local-stories-crafting-engaging-instagramcaptions/"><u>Global Audiences, Local Stories - Crafting Engaging #InstagramCaptions</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-restore-functionality-of-the-steelseries-gg-engine-when-encountered-with-windows-glitches/"><u>How to Restore Functionality of the SteelSeries GG Engine When Encountered With Windows Glitches</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-rapid-growth-on-instagram-the-like-video-duo-power/"><u>In 2024, Rapid Growth on Instagram The Like-Video Duo Power</u></a></li>
-<li><a href="https://driver-install.techidaily.com/maximize-windows-11-and-hp-laserjet-with-updated-drivers/"><u>Maximize Windows 11 & HP Laserjet with Updated Drivers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/navigate-effortlessly-the-best-5-chrome-addons-for-downloading-fb-videos/"><u>Navigate Effortlessly The Best 5 Chrome Addons for Downloading FB Videos</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/switching-offon-windows-11s-online-scan-feature/"><u>Switching Off/On Windows 11'S Online Scan Feature</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/tall-tales-reimagined-edits-for-vt-videos-on-fcpx-for-2024/"><u>Tall Tales Reimagined Edits for VT Videos on FCPX for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlock-the-potential-of-youtube-videos-with-these-simple-gif-creation-steps-pcmobile-for-2024/"><u>Unlock the Potential of YouTube Videos with These Simple GIF Creation Steps (PC/Mobile) for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-building-impressive-instagram-story-bookmarks/"><u>[New] 2024 Approved Building Impressive Instagram Story Bookmarks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-download-instagram-reels-effortlessly-anytime/"><u>[New] Download Instagram Reels Effortlessly, Anytime</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-masterful-content-creation-with-these-top-editing-tools/"><u>[New] Masterful Content Creation with These Top Editing Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-insightful-advice-for-an-unhindered-instagram-experience/"><u>2024 Approved Insightful Advice for an Unhindered Instagram Experience</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-navigating-to-groups-shared-content-in-messenger/"><u>2024 Approved Navigating to Group's Shared Content in Messenger</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-art-of-instagram-story-layering-a-visual-journey/"><u>2024 Approved The Art of Instagram Story Layering A Visual Journey</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-advice-to-eliminate-game-stuttering-and-improve-performance-in-deathloop-for-pc-users/"><u>Expert Advice to Eliminate Game Stuttering & Improve Performance in Deathloop for PC Users</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-honor-90-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Honor 90 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Oppo F25 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-step-by-step-implementing-auto-captions-in-reels/"><u>In 2024, Step-by-Step Implementing Auto Captions in Reels</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamline-operating-system-security/"><u>Streamline Operating System Security</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-understanding-google-voice-telephony/"><u>The Definitive Guide to Understanding Google Voice Telephony</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-error-x80131500-in-windows-marketplace/"><u>Troubleshooting Error X80131500 in Windows Marketplace</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-split-cut-and-trim-avi-files-like-a-pro-a-beginners-guide/"><u>Updated Split, Cut, and Trim AVI Files Like a Pro A Beginners Guide</u></a></li>
 </ul></div>
 

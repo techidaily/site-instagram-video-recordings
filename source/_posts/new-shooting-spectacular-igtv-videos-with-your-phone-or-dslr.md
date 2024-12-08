@@ -1,7 +1,7 @@
 ---
 title: "[New] Shooting Spectacular IGTV Videos with Your Phone or DSLR"
-date: 2024-11-22T16:00:38.085Z
-updated: 2024-11-29T20:39:00.766Z
+date: 2024-12-06T18:39:26.649Z
+updated: 2024-12-08T16:28:55.510Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/647ef78b4d08f0529cf98c1ddda37990b536ba3da
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Record IGTV Videos With a Smartphone?
@@ -44,7 +44,7 @@ The type of video you’re trying to create determines which pieces of equipment
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Shoot IGTV Videos With a DSLR Camera?
@@ -60,7 +60,7 @@ Shooting videos on DSLR cameras also mean that you need access to a **video edit
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -70,7 +70,7 @@ You don’t have to be a professional in order to record an IGTV video, but you 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -88,24 +88,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-watch-unseen-selective-tools-for-insta-enthusiasts/"><u>[New] 2024 Approved Watch Unseen Selective Tools for Insta Enthusiasts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-cut-to-impact-video-editing-secrets-for-instagram-professionals/"><u>[New] In 2024, Cut to Impact Video Editing Secrets for Instagram Professionals</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-magic-box-inside-a-top-tier-vr-device/"><u>[New] The Magic Box Inside a Top-Tier VR Device</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-boost-your-creative-edge-on-instagram-with-more-free-filters/"><u>[Updated] 2024 Approved Boost Your Creative Edge on Instagram with More Free Filters</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-identifying-trends-analyzing-the-success-of-your-igtv-video/"><u>[Updated] 2024 Approved Identifying Trends Analyzing the Success of Your IGTV Video</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-navigating-the-future-of-fb-advertising-key-predictions/"><u>[Updated] 2024 Approved Navigating the Future of FB Advertising – Key Predictions</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-fabricate-funnier-photos-for-2024/"><u>[Updated] Fabricate Funnier Photos for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-capturing-snapshots-transferring-from-snapchat-to-device-storage/"><u>[Updated] In 2024, Capturing Snapshots Transferring From Snapchat to Device Storage</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unlocking-slow-motion-magic-in-instagram-reels/"><u>[Updated] In 2024, Unlocking Slow Motion Magic in Instagram Reels</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-a-sea-of-silence-the-perils-of-pretense-in-profiles/"><u>[Updated] In a Sea of Silence The Perils of Pretense in Profiles</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1-step-by-step-tutorial-mastering-the-art-of-downloading-giphys-iconic-gifs/"><u>1. Step-by-Step Tutorial: Mastering the Art of Downloading Giphy's Iconic GIFs</u></a></li>
-<li><a href="https://article-helps.techidaily.com/10-free-passport-photo-maker-for-desktop-and-online-for-2024/"><u>10 Free Passport Photo Maker for Desktop and Online for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-maximizing-your-content-instagrams-video-time-restrictions/"><u>2024 Approved Maximizing Your Content Instagram's Video Time Restrictions</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-tips-to-personalize-your-vocal-presence-on-instagram-story-and-reels/"><u>2024 Approved Tips to Personalize Your Vocal Presence on Instagram Story and Reels</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-your-snap-with-soundtracks-without-stickers-for-2024/"><u>Enhancing Your Snap with Soundtracks (Without Stickers) for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-look-at-google-pixel-the-essence-of-android-in-a-phone/"><u>In-Depth Look at Google Pixel 지오블: The Essence of Android in a Phone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/obs-studio-vs-bandicam/"><u>OBS Studio vs Bandicam</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/samsung-galaxy-watch-steps-to-fix-unresponsive-phone-calls/"><u>Samsung Galaxy Watch: Steps to Fix Unresponsive Phone Calls</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-pathway-to-professional-pc-livestreams-with-tiktok/"><u>The Pathway to Professional PC Livestreams with TikTok</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-master-the-art-of-instagram-live-chats-a-comprehensive-guide/"><u>[New] 2024 Approved Master the Art of Instagram Live Chats A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-crafting-engagement-with-weblink-content-in-instagram/"><u>[Updated] In 2024, Crafting Engagement with Weblink Content in Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-illumination-best-covered-ig-highlights-on-the-move-for-2024/"><u>[Updated] Instagram Illumination Best-Covered IG Highlights on the Move for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-real-time-broadcasting-step-by-step-guide/"><u>2024 Approved Mastering Real-Time Broadcasting Step by Step Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-honor-magic-vs-2-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/laugh-out-tears-in-unravel-the-top-10-humorous-instagram-feeds-for-2024/"><u>Laugh Out, Tears In Unravel The Top 10 Humorous Instagram Feeds for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-vivo-x90s-by-fonelab-android-recover-music/"><u>The way to get back lost music from Vivo X90S</u></a></li>
+<li><a href="https://fox-that.techidaily.com/uninterrupted-music-streams-how-to-keep-spotify-running-when-iphone-is-locked/"><u>Uninterrupted Music Streams: How to Keep Spotify Running when iPhone Is Locked</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/king-the-secret-how-to-display-youtube-playlists-on-websites-for-2024/"><u>Unlocking the Secret How to Display YouTube Playlists on Websites for 2024</u></a></li>
 </ul></div>
 
