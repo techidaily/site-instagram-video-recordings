@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Tips for Disconnecting  Unfollowing on Instagram for 2024\""
-date: 2024-12-02T17:23:37.132Z
-updated: 2024-12-08T18:11:51.871Z
+date: 2024-12-07T18:49:16.069Z
+updated: 2024-12-14T19:02:05.982Z
 tags:
   - ai video
   - ai instagram
@@ -42,7 +42,7 @@ Please be informed that when you block someone on Instagram, that person will no
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 1: Using Your Instagram Mobile App to Block Followers
@@ -53,16 +53,24 @@ Please be informed that when you block someone on Instagram, that person will no
 
 ![Visit  Instagram Profile](https://images.wondershare.com/filmora/article-images/visit-the-profile-and-click-on-the-three-dots.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step** **3** **:** Click on that, and you will see a small pop-up with multiple choices; you need to click on the block option.
 
 ![Instagram Block options](https://images.wondershare.com/filmora/article-images/click-on-instagram-block-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** Instagram will ask you if you want to block the person; click on the block option again.
 
 ![Instagram Block  ](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Using a Web Browser to Block Followers
@@ -81,17 +89,21 @@ If you don't want to use your mobile app, you can easily block a person using th
 
 ![Instagram Block  Confirm](https://images.wondershare.com/filmora/article-images/confirm-the-block-option-instagram.jpg)
 
----
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+---
 
 ## Part 2: How to Block Someone Who's Not Following You on Instagram?
 
 If you notice people sending you messages who are not following you, or you are following someone only to realize after a while that they are not following you, you can block them as well.
 
 The steps are the same as explained in part 1.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Here are the steps to follow to block someone through your app
 
@@ -110,7 +122,7 @@ The steps are the same as explained in part 1.
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Where to Find your Instagram Blocklist?
@@ -128,10 +140,6 @@ The best part about Instagram is that it not only allows you to block people who
 **Step 6:** This is the page where you will see the list of accounts that you have blocked.
 
 ![Instagram Block  account](https://images.wondershare.com/filmora/article-images/instagram-find-blocked-accounts.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -152,7 +160,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 ![Instagram Unblock  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5:** Instagram will ask you to confirm your choice. You need to click on the Unblock option again. That's it; the user has been unblocked successfully.
@@ -166,10 +174,6 @@ Just like blocking an account is possible, unblocking the same account is possib
 **Step 3:** Visit their profile, and you will see the unblock option. Click on the unblock option to remove the profile from the blocked list.
 
 ![Instagram Unblock from web  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4:** Click on the unblock option, and Instagram will ask you to confirm your choice. Click on the unblock option again, and it's done.
 
@@ -207,10 +211,6 @@ No, Instagram allows you to block people remotely and won't send any notificatio
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -226,22 +226,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-celebrated-colours-top-instagram-filters/"><u>[New] 2024 Approved Celebrated Colours Top Instagram Filters</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-chart-topping-ideas-to-invigorate-your-youtube-channel/"><u>[New] In 2024, Chart-Topping Ideas to Invigorate Your YouTube Channel</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-making-your-mark-strategies-for-monthly-growth-on-instagram-for-2024/"><u>[New] Making Your Mark Strategies for Monthly Growth on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-quick-guide-to-overcoming-instagram-video-hiccups-for-2024/"><u>[New] Quick Guide to Overcoming Instagram Video Hiccups for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-top-10-tools-to-perfect-your-igtv-edits-for-2024/"><u>[New] Top 10 Tools to Perfect Your IGTV Edits for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-safely-increase-your-youtube-fanbase-to-one-million/"><u>[Updated] 2024 Approved How to Safely Increase Your YouTube Fanbase To One Million</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-digital-footprints-recording-nintendo-switch-sessions/"><u>[Updated] In 2024, Digital Footprints Recording Nintendo Switch Sessions</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unlock-the-potential-of-your-camera-creating-stunning-slow-motion-videos-for-instagram/"><u>[Updated] In 2024, Unlock the Potential of Your Camera Creating Stunning Slow-Motion Videos for Instagram</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-financial-flourishing-yielding-higher-returns-with-mobile-youtube-content/"><u>2024 Approved Financial Flourishing Yielding Higher Returns with Mobile YouTube Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unlock-slow-momentum-a-filmmakers-tale-on-instagram/"><u>2024 Approved Unlock Slow Momentum A Filmmaker’s Tale on Instagram</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-nokia-c12-plus-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Nokia C12 Plus</u></a></li>
-<li><a href="https://driver-download.techidaily.com/fresh-driver-pack-for-your-pc-enhance-the-performance-of-msi-b350-motherboard-windows-friendly/"><u>Fresh Driver Pack for Your PC: Enhance the Performance of MSI B350 Motherboard (Windows Friendly)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/harness-the-power-of-video-editing-cropping-to-perfect-instagram-posts/"><u>Harness the Power of Video Editing Cropping to Perfect Instagram Posts</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-honor-magic-5-lite-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Honor Magic 5 Lite</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-driver-downloads-and-setup-instructions-for-the-lenovo-x1-carbon-on-windows-107-systems/"><u>Step-by-Step Driver Downloads and Setup Instructions for the Lenovo X1 Carbon on Windows 10/7 Systems</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-essential-guide-to-creating-amazing-ig-films/"><u>The Essential Guide to Creating Amazing IG Films</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-to-iphonedesktop-video-change-top-8-recommendations-for-2024/"><u>The Ultimate Guide to iPhone/Desktop Video Change Top 8 Recommendations for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-comprehensive-guide-for-dynamic-snaps-and-boomers/"><u>[New] 2024 Approved The Comprehensive Guide for Dynamic Snaps & Boomers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/igital-divas-top-ten-gamers-on-youtube/"><u>[New] Digital Divas Top Ten Gamers on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-share-youtube-link-on-instagram-story-for-2024/"><u>[New] How to Share YouTube Link on Instagram Story for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-innovative-methods-for-chronological-disruption-in-acting/"><u>[New] In 2024, Innovative Methods for Chronological Disruption in Acting</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-sharpen-aesthetic-focus-learning-border-techniques-for-insta-videos/"><u>[New] In 2024, Sharpen Aesthetic Focus Learning Border Techniques for Insta-Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-exploring-advanced-techniques-making-a-difference-with-your-slow-motion-images-on-instagram/"><u>[Updated] Exploring Advanced Techniques Making a Difference with Your Slow Motion Images on Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-tap-into-the-secrets-of-successful-video-thumbnails-for-youtube-for-2024/"><u>[Updated] Tap Into the Secrets of Successful Video Thumbnails for YouTube for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-visual-storytelling-on-instagram/"><u>2024 Approved Mastering Visual Storytelling on Instagram</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209824385-9781644616550-capricornio/"><u>Capricornio | Free Book</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/discover-the-leading-smartwatch-models/"><u>Discover the Leading Smartwatch Models</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-exclusive-tips-for-dominating-the-instagram-story-space/"><u>In 2024, Exclusive Tips for Dominating the Instagram Story Space</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-the-top-10-websites-for-mystery-box-acquisitions-for-2024/"><u>Navigating the Top 10 Websites for Mystery Box Acquisitions for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unmatched-5-apps-for-harmonious-photoplussound-creation/"><u>Unmatched 5 Apps for Harmonious Photo+Sound Creation</u></a></li>
 </ul></div>
 
