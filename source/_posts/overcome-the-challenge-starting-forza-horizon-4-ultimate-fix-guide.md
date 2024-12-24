@@ -1,7 +1,7 @@
 ---
 title: "Overcome the Challenge: Starting Forza Horizon 4 - Ultimate Fix Guide"
-date: 2024-12-10T20:34:45.109Z
-updated: 2024-12-14T18:21:38.491Z
+date: 2024-12-22T16:08:13.020Z
+updated: 2024-12-23T16:32:58.415Z
 tags:
   - win11
   - win10
@@ -27,10 +27,6 @@ Don’t worry, here’re fixes may help you solve the issue.
 2. [Change the mouse setting](https://tools.techidaily.com/drivereasy/download/)
 3. [Update the device driver](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1: Change the in-game settings
 
  Change the in-game setting can help you fix the input lagging issue. If you’re not using controllers, change[Graphics settings](https://tools.techidaily.com/drivereasy/download/) would also help.
@@ -41,17 +37,9 @@ Don’t worry, here’re fixes may help you solve the issue.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-48-13.jpg)
 2. Click the**CONTROLS** tab.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Under the**First-Person** Camera (Controller) section, find**Show Advanced Options** and click**ON** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-48-52.jpg)
 4. In the open section, change**Response Curve** to**Raw** , and set**Horizontal Turning Bonus** and**Vertical Turning Bonus** to**0** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-50-02.jpg)
 
@@ -65,9 +53,17 @@ If you’re not using the controller, check the below settings.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-53-01.jpg)
 4. If you need to lower your graphic resolution, move to the**GRAPHICS** tab.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. Scroll down to find the**Resolution Scaling** section.
 6. Set the**Static FidelityFX CAS** to**ON** and lower the Resolution Scaling.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_15-59-50.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Some users have reported that by disabling all the aim assist options in settings, the issue has been improved a lot.
 
@@ -82,15 +78,19 @@ If this fix doesn’t work, move to the next one.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_16-46-09.jpg)
 3. Go to the**Mouse** tab, click**Additional mouse options** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_16-00-50.jpg)
 4. Make sure you uncheck the**Enhance pointer precision** . Click**Apply > OK** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-15_16-01-18.jpg)
 5. Launch the game and check.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If it doesn’t work, move to the next fix.
 
@@ -122,12 +122,12 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update**  button next to the flagged driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
@@ -152,18 +152,20 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-top-social-media-hash-tracking-software-fb-tweet-and-ig-edition/"><u>[New] 2024 Approved Top Social Media Hash Tracking Software FB, Tweet & IG Edition</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-ig-upgrade-starts-here-top-tools-for-follower-growth/"><u>[New] IG Upgrade Starts Here Top Tools for Follower Growth</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-streaming-social-feeds-on-your-smart-tv-whats-next-for-2024/"><u>[New] Streaming Social Feeds on Your Smart TV What's Next for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unleash-artistry-a-curated-list-of-premium-3d-animation-software/"><u>[New] Unleash Artistry A Curated List of Premium 3D Animation Software</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-monotonous-to-magical-applying-video-effects-in-zoom/"><u>[Updated] From Monotonous to Magical Applying Video Effects in Zoom</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-how-to-record-movies-on-pc-mac-and-smartphones-in-2024/"><u>[Updated] How to Record Movies on PC, Mac, and Smartphones, In 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-step-by-step-the-ultimate-guide-to-borders-on-insta-pics/"><u>[Updated] In 2024, Step-By-Step The Ultimate Guide to Borders on Insta Pics</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-methods-transforming-pinterest-visuals-into-audios/"><u>2024 Approved Superior Methods Transforming Pinterest Visuals Into Audios</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatbot-face-off-evaluating-whether-claude-is-the-superior-alternative-to-chatgpt/"><u>Chatbot Face-Off: Evaluating Whether Claude Is the Superior Alternative to ChatGPT</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/how-to-use-igtv-hashtags-to-get-more-followers-for-2024/"><u>How to Use IGTV Hashtags to Get More Followers for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-samsung-galaxy-f04-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Samsung Galaxy F04</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleashing-power-potential-in-depth-analysis-of-beatit-bt-d11-jump-starter/"><u>Unleashing Power Potential: In-Depth Analysis of Beatit BT-D11 Jump Starter</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/windows-10/"><u>Windows 10의 소음 중단 문제를 해결하기 위한 효과적인 솔루션</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-crafting-instagram-magic-with-professional-edits-for-2024/"><u>[New] Crafting Instagram Magic with Professional Edits for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-convert-your-best-videography-into-melodic-mp3s-insta/"><u>[New] In 2024, How to Convert Your Best Videography Into Melodic MP3s (Insta)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-maximize-impact-video-resizing-techniques-for-instagram/"><u>[New] In 2024, Maximize Impact Video Resizing Techniques for Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-streamerease-screen-recording-on-win11/"><u>[New] In 2024, StreamerEase Screen Recording on Win11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-slippery-slope-of-simulated-support-instagram-style-for-2024/"><u>[New] The Slippery Slope of Simulated Support, Instagram Style for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-inside-perspectives-unveiling-what-you-dont-know-about-story-watching/"><u>[Updated] 2024 Approved Inside Perspectives Unveiling What You Don't Know About Story Watching</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-staticscreen-snapshot-on-demand-steps-for-2024/"><u>[Updated] StaticScreen Snapshot On-Demand Steps for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-strategies-for-editing-and-elevating-youtube-profiles/"><u>2024 Approved Strategies for Editing and Elevating YouTube Profiles</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/affordable-laptop-ventilation-for-your-device-check-out-the-topmate-c3amator-review/"><u>Affordable Laptop Ventilation for Your Device? Check Out the TopMate C3amator Review!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/die-besten-kostenlosen-videokonverter-fur-mac-im-jahr-2023-umfassender-testbericht-und-downloadverzeichnis/"><u>Die Besten Kostenlosen Videokonverter Für Mac Im Jahr 2023 - Umfassender Testbericht Und Downloadverzeichnis</u></a></li>
+<li><a href="https://win-answers.techidaily.com/essential-tips-for-restoring-functionality-to-broken-content-warnings-in-voice-communications/"><u>Essential Tips for Restoring Functionality to Broken Content Warnings in Voice Communications</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exclusive-deal-alert-save-big-with-up-to-1100-discounts-on-top-tier-gaming-and-video-editing-laptops-detailed-guide-on-zdnet/"><u>Exclusive Deal Alert: Save Big with Up to $1100 Discounts on Top-Tier Gaming and Video Editing Laptops | Detailed Guide on ZDNet</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-overcome-voice-chat-failures-in-call-of-duty-vanguard/"><u>How to Overcome Voice Chat Failures in Call of Duty: Vanguard</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-optimal-frame-rates-10-effective-fixes-for-battlefield-5-lag-problems/"><u>Mastering Optimal Frame Rates: 10 Effective Fixes for Battlefield 5 Lag Problems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-oppo-reno-11-pro-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Oppo Reno 11 Pro 5G without Him Knowing | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Developing Dynamic Instagram Highlight Summaries"
-date: 2024-12-13T19:25:13.559Z
-updated: 2024-12-14T22:29:28.759Z
+date: 2024-12-16T21:47:31.162Z
+updated: 2024-12-23T17:46:05.360Z
 tags:
   - ai video
   - ai instagram
@@ -29,10 +29,6 @@ Instagram highlight covers or Instagram Story covers are little circles right be
 
 No worries, here in this article, we will walk you through each step on how to create Instagram highlight covers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Instagram Highlight Cover Size and Dimensions
 
 The highlight covers are small. Thus, it is vital to have the correct size and dimensions. Creating highlight covers with proper width and height ensures that you do not have to crop any of your designs.
@@ -40,10 +36,6 @@ The highlight covers are small. Thus, it is vital to have the correct size and d
 Generally, the Instagram highlight covers dimensions are the same as Insta stories, that is, 1080 pixels by 1920 pixels or a 9:16 aspect ratio. We recommend using square 1:1 dimensions when designing your custom highlight covers with high pixels as they work well.
 
 ![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
 
@@ -72,7 +64,7 @@ Canva provides fully customizable templates for highlight cover, you can drag on
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
@@ -85,6 +77,10 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 
 ![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
 
 ![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
@@ -95,11 +91,11 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 ![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
 
-Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
 
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
@@ -110,7 +106,7 @@ Before you upload the highlight covers on Instagram, ensure you turn on the Arch
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
@@ -118,6 +114,10 @@ As we said before, you should transfer the created highlight cover photos from d
 If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
 
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: Tips for making better Instagram Highlight cover
 
@@ -158,20 +158,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-screenshot-success-mastering-instagrams-preferred-video-format-with-fcpx/"><u>[New] 2024 Approved Screenshot Success Mastering Instagram's Preferred Video Format with FCPX</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-an-overview-of-basic-and-simplified-hdr-photography/"><u>[New] An Overview of Basic and Simplified HDR Photography</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-perfect-your-igtv-presentations-with-top-video-editors/"><u>[New] In 2024, Perfect Your IGTV Presentations with Top Video Editors</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-mental-matinee-best-general-knowledge-shows/"><u>[New] Mental Matinee Best General Knowledge Shows</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-smart-solutions-apply-apple-watch-open-mac/"><u>[New] Smart Solutions Apply Apple Watch, Open Mac</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-fast-forward-fame-insta-popularity-through-content/"><u>[Updated] 2024 Approved Fast Forward Fame Insta Popularity Through Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-screenshots-of-success-decoding-post-viewer-demographics/"><u>[Updated] 2024 Approved Screenshots of Success Decoding Post Viewer Demographics</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-subscribe-bonanza-thousands-acquired-for-just-5/"><u>[Updated] 2024 Approved Subscribe Bonanza Thousands Acquired for Just $5</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-youtubes-functionality-following-uploaded-videos/"><u>[Updated] Exploring YouTube’s Functionality Following Uploaded Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-efficient-editing-techniques-mastering-video-cropping-and-exporting/"><u>[Updated] In 2024, Efficient Editing Techniques Mastering Video Cropping and Exporting</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-audio-intellectual-property/"><u>[Updated] In 2024, Instagram Audio Intellectual Property</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/boost-your-video-subtitle-skills-using-these-top-online-aids/"><u>Boost Your Video Subtitle Skills Using These Top Online Aids</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/decipher-the-riddle-of-windows-subsystem-for-linux-error-code-4294967295/"><u>Decipher the Riddle of Windows Subsystem for Linux Error Code: 4294967295</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/discreet-insta-story-enthusiasts-best-5-tools/"><u>Discreet Insta-Story Enthusiast's Best 5 Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unleashing-the-potential-of-instavids-planning-for-success/"><u>In 2024, Unleashing the Potential of InstaVids Planning for Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-optimize-your-instagram-stories-for-engagement/"><u>[New] 2024 Approved How to Optimize Your Instagram Stories for Engagement</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unlocking-viral-potential-in-instagram-videos/"><u>[New] 2024 Approved Unlocking Viral Potential in Instagram Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ake-content-stand-out-the-ultimate-guide-to-youtube-responses/"><u>[New] Make Content Stand Out The Ultimate Guide to YouTube Responses</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-guide-to-applying-new-colors-and-textures-on-past-media/"><u>[New] Step-by-Step Guide to Applying New Colors & Textures on Past Media</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-transition-magic-4-simplified-fading-methods-for-2024/"><u>[New] Transition Magic 4 Simplified Fading Methods for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-fix-in-a-flash-rapid-recovery-techniques-for-disrupted-fb-lives/"><u>[Updated] 2024 Approved Fix in a Flash Rapid Recovery Techniques for Disrupted FB Lives</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-leveraging-edits-to-captivate-audiences-on-instagram/"><u>[Updated] 2024 Approved Leveraging Edits to Captivate Audiences on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-experts-to-follow-on-igtv/"><u>[Updated] Experts to Follow on IGTV</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-video-to-song-instagrams-mp3-conversion-process/"><u>[Updated] From Video to Song Instagram's Mp3 Conversion Process</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-stepping-up-your-game-on-instagram/"><u>[Updated] Stepping Up Your Game on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-effortless-video-management-25plus-free-apps-turning-instagram-content-into-mp4-files/"><u>2024 Approved Effortless Video Management 25+ Free Apps Turning Instagram Content Into MP4 Files</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-navigating-through-troubled-waters-instagram-videos-guide/"><u>2024 Approved Navigating Through Troubled Waters Instagram Videos Guide</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/attempted-switch-from-dpc-error-on-windows-solved/"><u>ATTEMPTED SWITCH FROM DPC Error on Windows [Solved]</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/harnessing-look-up-tables-luts-to-achieve-stunning-visuals/"><u>Harnessing Look-Up Tables (LUTs) to Achieve Stunning Visuals</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlock-content-insights-7-premier-free-tag-extraction-tools/"><u>In 2024, Unlock Content Insights 7 Premier Free Tag Extraction Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-vanished-vids-rediscovered-the-ultimate-guide-to-old-youtube-videos/"><u>In 2024, Vanished Vids Rediscovered The Ultimate Guide to Old YouTube Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-widevine-content-decryption-module-missing-not-updated-issue-on-windows/"><u>Solved Widevine Content Decryption Module Missing, Not Updated Issue on Windows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/streamlining-the-update-process-for-accurate-tiktok-age-details/"><u>Streamlining the Update Process for Accurate TikTok Age Details</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/tailor-your-media-auto-scaling-videos-for-instagram-via-macos-for-2024/"><u>Tailor Your Media Auto-Scaling Videos for Instagram via MacOS for 2024</u></a></li>
 </ul></div>
 

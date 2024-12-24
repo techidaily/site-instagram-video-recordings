@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Boost Engagement with Smart Video Cropping & Exporting"
-date: 2024-12-13T20:55:50.653Z
-updated: 2024-12-14T21:20:19.758Z
+date: 2024-12-21T17:46:06.119Z
+updated: 2024-12-23T20:51:45.421Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ With more than 500 million active daily users Instagram has become one of the la
 **You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to crop and export videos to instagram
@@ -51,18 +51,18 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
@@ -74,6 +74,10 @@ Now that the video clip you want to edit is in the editor's media library, drag 
 Chances are that the camera you used to record your video clip recorded the footage in the landscape aspect ratio. Before you can export your video clip, you must first check the resolution and frame rate of the clip you want to export. Right-click on the clip in the media panel and select Properties. After you found out this information, click on the Export button located just below the media panel.
 
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
 
@@ -88,7 +92,7 @@ In order to create a video that has a portrait aspect ratio, you need to crop it
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
@@ -100,10 +104,6 @@ The process of creating a square video is the same as the process of creating a 
 The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -120,20 +120,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-find-the-perfect-mix-funny-touching-ig-meme-stories-of-ten-for-2024/"><u>[New] Find the Perfect Mix Funny, Touching IG Meme Stories of Ten for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-from-components-to-creativity-designing-your-own-4k-editor-pc/"><u>[New] From Components to Creativity Designing Your Own 4K Editor PC</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-celebrating-the-premier-25-ones-to-watch-on-insta/"><u>[New] In 2024, Celebrating the Premier 25 Ones to Watch on Insta</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-streamline-your-income-youtubes-new-rules/"><u>[New] In 2024, Streamline Your Income YouTube's New Rules</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unrestricted-mental-harmony/"><u>[New] Unrestricted Mental Harmony</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-list-of-the-top-10-digital-recording-apps-for-2024/"><u>[Updated] Exclusive List of the Top 10 Digital Recording Apps for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-harnessing-instagram-video-power-strategizing-for-impact/"><u>[Updated] Harnessing Instagram Video Power Strategizing for Impact</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-reverse-reality-expert-tips-for-turning-images-upside-down-on-insta/"><u>[Updated] In 2024, Reverse Reality Expert Tips for Turning Images Upside Down on Insta</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-simplified-guide-uploading-urls-to-instagram-media/"><u>[Updated] In 2024, Simplified Guide Uploading URLs to Instagram Media</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-when-does-instagram-get-most-active-a-comprehensive-look-for-2024/"><u>[Updated] When Does Instagram Get Most Active? A Comprehensive Look for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-10-basic-blocks-house-concepts-for-mc-players/"><u>2024 Approved 10 Basic Blocks House Concepts for MC Players</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/banishing-pc-bugs-solving-the-final-fantasy-xiv-online-issues/"><u>Banishing PC Bugs: Solving the Final Fantasy XIV Online Issues</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/assembly-station-for-2024/"><u>Film Assembly Station for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-disabled-apple-iphone-14-proipad-without-computer-by-drfone-ios/"><u>How to Unlock Disabled Apple iPhone 14 Pro/iPad Without Computer</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-perfect-clean-a-how-to-manual-for-refreshing-your-lcd-tv-screen/"><u>The Perfect Clean: A How-To Manual for Refreshing Your LCD TV Screen</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevate-your-social-standing-with-1000-followersmth-for-2024/"><u>[New] Elevate Your Social Standing with 1,000 Followers/Mth for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-fast-forward-fame-insta-popularity-through-content/"><u>[New] In 2024, Fast Forward Fame Insta Popularity Through Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-launch-your-brands-professional-chapter-with-instagram/"><u>[New] In 2024, Launch Your Brand's Professional Chapter with Instagram</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-interactive-design-best-practices-for-srgb-and-rgb-for-2024/"><u>[New] Interactive Design Best Practices for Srgb and Rgb for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-exclusive-high-end-computer-choices/"><u>[Updated] Exclusive High-End Computer Choices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-gasp-and-guffaw-10-instagram-pages-where-laughter-meets-tears/"><u>[Updated] In 2024, Gasp & Guffaw 10 Instagram Pages Where Laughter Meets Tears</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-vivo-y02t-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Vivo Y02T Activity | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-capturing-creativity-mobile-gadgets-ranking-leaders/"><u>In 2024, Capturing Creativity Mobile Gadgets Ranking Leaders</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-pioneers-designing-the-online-avengers-landscape/"><u>In 2024, Pioneers Designing the Online Avengers Landscape</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-guide-to-effective-instagram-tagging-with-these-top-25-hashes-for-2024/"><u>The Ultimate Guide to Effective Instagram Tagging with These Top 25 Hashes for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-device-drivers-that-fail-to-function-on-windows-11/"><u>Troubleshooting Device Drivers that Fail to Function on Windows 11</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-10-best-meme-makers-online-free-to-use/"><u>Updated In 2024, 10 Best Meme Makers Online (Free to Use)</u></a></li>
 </ul></div>
 
