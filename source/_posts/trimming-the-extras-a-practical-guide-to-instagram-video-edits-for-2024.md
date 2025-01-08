@@ -1,7 +1,7 @@
 ---
 title: "\"Trimming the Extras  A Practical Guide to Instagram Video Edits for 2024\""
-date: 2024-07-26T03:06:02.005Z
-updated: 2024-07-27T03:06:02.005Z
+date: 2025-01-02T23:50:49.149Z
+updated: 2025-01-07T17:47:13.271Z
 tags:
   - ai video
   - ai instagram
@@ -37,10 +37,6 @@ With more than 1 billion users, Instagram is one of the world's most popular soc
 
 03 [Bonus! Tips on Editing Videos in Powerpoint](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Aspect Ratios and Dimensions on Instagram
 
 Below is a cheat sheet that will help you learn the required aspect ratios and dimensions on Instagram. Check out the required Instagram portrait video size for IGTV, Story, or Reels and the recommended vertical or square size for Instagram's Feed and Carousel.
@@ -64,10 +60,11 @@ You can crop part of your video with your mobile device while uploading it. To l
 1. Launch Instagram and then tap the + icon. A gallery will appear and allow you to upload your video from your camera roll.
 2. Once you have selected your video, it will preview. A circular icon that features two diagonally-opposing arrows will show up in the bottom left corner. You have to tap this icon to display more of the image and take it from the cropped square to its original rectangular shape.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![how to crop video for instagram](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. You can also leave it as a square, then move the image that's around the crop to a different area of the recording.
 2. Click Next and add your filters.
@@ -76,8 +73,9 @@ You can crop part of your video with your mobile device while uploading it. To l
 ![crop video for instagram](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Use Online Tool to Crop Videos for Instagram
 
 You can use an online tool to crop videos for Instagram. Clideo is one of the online platforms that people use to cut videos for Instagram. It allows you to crop videos you have stored on your device through a web browser.
@@ -96,16 +94,10 @@ This free-to-use Instagram video trimmer allows you to alter your video to any d
 3. Click Crop; once the cropping process is complete, the platform will take you to the download page.
 4. You can download your cropped video to your device, Dropbox, or Google Drive. Additionally, you can give the clip a preview first to ensure you are satisfied with the results.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![crop video for instagram - use clido](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-4.png)
 
 The Back to editor link allows you to make tweaks without starting all over.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Use Filmora to crop or Create a video for Instagram
 
 Designed to help you edit and create high-quality inspirational video clips, Filmora is user-friendly and has an authentically pleasing interface. This software allows you to change the aspect ratio of your video so that it matches the required aspect ratio for Instagram. Follow the steps below to learn how to crop videos for Instagram with this software.
@@ -119,37 +111,18 @@ Designed to help you edit and create high-quality inspirational video clips, Fil
 2. Drag the video and drop it to the track on the timeline.
 3. Right-click on your video and choose the Crop and Zoom option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![how to crop video for instagram with Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-6.png)
 
 1. You'll see a new window that allows you to crop your video for Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![how to crop video for instagram using Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-7.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. To crop the video, either select your preferred frame ratio or manually resize the frame ratio.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how to crop video for instagram using Filmora - set frame ratio](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-8.png)
 
 1. Once you have cropped your video, hit the Export button above the timeline.
@@ -185,16 +158,10 @@ Click Settings and set the Quality of your video by choosing the Best option. No
 
 It is time to select the Frame rate and Resolution matching the ones in the video clip. Navigate to the Audio Settings and change the Bitrate to 128 Kbps. Once you have done this, click on the OK button. You can now upload your video on Instagram and share it with your followers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### Upload Videos With No Crop
 
 Available in Google Play Store and the App Store, No Crop video Instagram allows you to post videos without cropping. This highly-customized video editing app has a user-friendly interface.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 ● You can use these methods to cut video for Instagram. Filmora is the most suitable tool that can help your crop and create videos that will get more views and increase your engagement.
@@ -223,9 +190,6 @@ Below is a cheat sheet that will help you learn the required aspect ratios and d
 | Reels        | 9:16                  | 1080 x 1920p   | No                                                                                                           |
 | Carousel     | 4:5                   | 1080 x 1350p   | 1080 x 1080p, 1080 x 608p                                                                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Crop Videos for Instagram
 
 You have to crop your video to resize it if you want the clip to appear correctly on the social media platform. If you do not resize it, IG will cut a portion of your video according to its [size requirements](https://tools.techidaily.com/wondershare/filmora/download/). This will make it look awkward. In turn, this could negatively impact the engagement of the video and your brand. As you have seen in the table above, Instagram has different size requirements depending upon the type of video post. There are several ways you can cut video for Instagram. They include:
@@ -245,9 +209,6 @@ You can crop part of your video with your mobile device while uploading it. To l
 
 ![crop video for instagram](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Use Online Tool to Crop Videos for Instagram
 
 You can use an online tool to crop videos for Instagram. Clideo is one of the online platforms that people use to cut videos for Instagram. It allows you to crop videos you have stored on your device through a web browser.
@@ -259,9 +220,6 @@ This free-to-use Instagram video trimmer allows you to alter your video to any d
 3. Alternatively, you can upload your video straight from your Google Drive account or Dropbox. You'll find these options by clicking the downwards arrow.
 4. After selecting your video file, you'll be directed to the editing page. You'll see the options to select the aspect ratio for Instagram Story and Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![crop video for instagram - use online tool](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-3.png)
 
 1. You can also manually select a specific area of your video using the blue crop markers and enter the exact size in pixels.
@@ -269,16 +227,10 @@ This free-to-use Instagram video trimmer allows you to alter your video to any d
 3. Click Crop; once the cropping process is complete, the platform will take you to the download page.
 4. You can download your cropped video to your device, Dropbox, or Google Drive. Additionally, you can give the clip a preview first to ensure you are satisfied with the results.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![crop video for instagram - use clido](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-4.png)
 
 The Back to editor link allows you to make tweaks without starting all over.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Use Filmora to crop or Create a video for Instagram
 
 Designed to help you edit and create high-quality inspirational video clips, Filmora is user-friendly and has an authentically pleasing interface. This software allows you to change the aspect ratio of your video so that it matches the required aspect ratio for Instagram. Follow the steps below to learn how to crop videos for Instagram with this software.
@@ -288,6 +240,10 @@ Designed to help you edit and create high-quality inspirational video clips, Fil
 
 ![crop video for instagram with Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Browse to the location where you have saved your video and click Open.
 2. Drag the video and drop it to the track on the timeline.
 3. Right-click on your video and choose the Crop and Zoom option.
@@ -296,9 +252,6 @@ Designed to help you edit and create high-quality inspirational video clips, Fil
 
 1. You'll see a new window that allows you to crop your video for Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how to crop video for instagram using Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-7.png)
 
 1. To crop the video, either select your preferred frame ratio or manually resize the frame ratio.
@@ -342,9 +295,6 @@ It is time to select the Frame rate and Resolution matching the ones in the vide
 
 Available in Google Play Store and the App Store, No Crop video Instagram allows you to post videos without cropping. This highly-customized video editing app has a user-friendly interface.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 ● You can use these methods to cut video for Instagram. Filmora is the most suitable tool that can help your crop and create videos that will get more views and increase your engagement.
@@ -373,9 +323,6 @@ Below is a cheat sheet that will help you learn the required aspect ratios and d
 | Reels        | 9:16                  | 1080 x 1920p   | No                                                                                                           |
 | Carousel     | 4:5                   | 1080 x 1350p   | 1080 x 1080p, 1080 x 608p                                                                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Crop Videos for Instagram
 
 You have to crop your video to resize it if you want the clip to appear correctly on the social media platform. If you do not resize it, IG will cut a portion of your video according to its [size requirements](https://tools.techidaily.com/wondershare/filmora/download/). This will make it look awkward. In turn, this could negatively impact the engagement of the video and your brand. As you have seen in the table above, Instagram has different size requirements depending upon the type of video post. There are several ways you can cut video for Instagram. They include:
@@ -393,9 +340,6 @@ You can crop part of your video with your mobile device while uploading it. To l
 2. Click Next and add your filters.
 3. You can save the video as a draft for later or post it. That's how to trim videos on Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![crop video for instagram](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-2.png)
 
 ### Use Online Tool to Crop Videos for Instagram
@@ -409,9 +353,6 @@ This free-to-use Instagram video trimmer allows you to alter your video to any d
 3. Alternatively, you can upload your video straight from your Google Drive account or Dropbox. You'll find these options by clicking the downwards arrow.
 4. After selecting your video file, you'll be directed to the editing page. You'll see the options to select the aspect ratio for Instagram Story and Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![crop video for instagram - use online tool](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-3.png)
 
 1. You can also manually select a specific area of your video using the blue crop markers and enter the exact size in pixels.
@@ -420,6 +361,10 @@ This free-to-use Instagram video trimmer allows you to alter your video to any d
 4. You can download your cropped video to your device, Dropbox, or Google Drive. Additionally, you can give the clip a preview first to ensure you are satisfied with the results.
 
 ![crop video for instagram - use clido](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The Back to editor link allows you to make tweaks without starting all over.
 
@@ -432,24 +377,26 @@ Designed to help you edit and create high-quality inspirational video clips, Fil
 
 ![crop video for instagram with Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Browse to the location where you have saved your video and click Open.
 2. Drag the video and drop it to the track on the timeline.
 3. Right-click on your video and choose the Crop and Zoom option.
 
 ![how to crop video for instagram with Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. You'll see a new window that allows you to crop your video for Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![how to crop video for instagram using Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-7.png)
 
 1. To crop the video, either select your preferred frame ratio or manually resize the frame ratio.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![how to crop video for instagram using Filmora - set frame ratio](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-8.png)
 
 1. Once you have cropped your video, hit the Export button above the timeline.
@@ -485,9 +432,6 @@ Click Settings and set the Quality of your video by choosing the Best option. No
 
 It is time to select the Frame rate and Resolution matching the ones in the video clip. Navigate to the Audio Settings and change the Bitrate to 128 Kbps. Once you have done this, click on the OK button. You can now upload your video on Instagram and share it with your followers.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Upload Videos With No Crop
 
 Available in Google Play Store and the App Store, No Crop video Instagram allows you to post videos without cropping. This highly-customized video editing app has a user-friendly interface.
@@ -508,9 +452,6 @@ With more than 1 billion users, Instagram is one of the world's most popular soc
 
 03 [Bonus! Tips on Editing Videos in Powerpoint](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## Aspect Ratios and Dimensions on Instagram
 
 Below is a cheat sheet that will help you learn the required aspect ratios and dimensions on Instagram. Check out the required Instagram portrait video size for IGTV, Story, or Reels and the recommended vertical or square size for Instagram's Feed and Carousel.
@@ -523,9 +464,6 @@ Below is a cheat sheet that will help you learn the required aspect ratios and d
 | Reels        | 9:16                  | 1080 x 1920p   | No                                                                                                           |
 | Carousel     | 4:5                   | 1080 x 1350p   | 1080 x 1080p, 1080 x 608p                                                                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Crop Videos for Instagram
 
 You have to crop your video to resize it if you want the clip to appear correctly on the social media platform. If you do not resize it, IG will cut a portion of your video according to its [size requirements](https://tools.techidaily.com/wondershare/filmora/download/). This will make it look awkward. In turn, this could negatively impact the engagement of the video and your brand. As you have seen in the table above, Instagram has different size requirements depending upon the type of video post. There are several ways you can cut video for Instagram. They include:
@@ -543,10 +481,11 @@ You can crop part of your video with your mobile device while uploading it. To l
 2. Click Next and add your filters.
 3. You can save the video as a draft for later or post it. That's how to trim videos on Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![crop video for instagram](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Use Online Tool to Crop Videos for Instagram
 
@@ -579,6 +518,10 @@ Designed to help you edit and create high-quality inspirational video clips, Fil
 
 ![crop video for instagram with Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Browse to the location where you have saved your video and click Open.
 2. Drag the video and drop it to the track on the timeline.
 3. Right-click on your video and choose the Crop and Zoom option.
@@ -589,12 +532,12 @@ Designed to help you edit and create high-quality inspirational video clips, Fil
 
 ![how to crop video for instagram using Filmora](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-7.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. To crop the video, either select your preferred frame ratio or manually resize the frame ratio.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![how to crop video for instagram using Filmora - set frame ratio](https://images.wondershare.com/filmora/article-images/2022/02/crop-video-for-instagram-8.png)
 
 1. Once you have cropped your video, hit the Export button above the timeline.
@@ -634,9 +577,6 @@ It is time to select the Frame rate and Resolution matching the ones in the vide
 
 Available in Google Play Store and the App Store, No Crop video Instagram allows you to post videos without cropping. This highly-customized video editing app has a user-friendly interface.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 ● You can use these methods to cut video for Instagram. Filmora is the most suitable tool that can help your crop and create videos that will get more views and increase your engagement.
@@ -652,8 +592,6 @@ Available in Google Play Store and the App Store, No Crop video Instagram allows
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -662,7 +600,23 @@ Available in Google Play Store and the App Store, No Crop video Instagram allows
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-story-expertise-your-ultimate-resource/"><u>[New] Instagram Story Expertise Your Ultimate Resource</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-taking-over-ig-monthly-strategies-to-hit-the-1k-follower-goal/"><u>[New] Taking Over IG Monthly Strategies to Hit the 1K Follower Goal</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-visual-guide-to-aspect-ratios-on-platforms-like-youtube/"><u>[New] The Visual Guide to ASPECT RATIOS on Platforms Like YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevating-your-visual-storytelling-techniques-and-strategies-for-shooting-compelling-slow-motion-content-for-instagram/"><u>[Updated] Elevating Your Visual Storytelling Techniques and Strategies for Shooting Compelling Slow Motion Content for Instagram</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-epic-review-and-substitute-guidance/"><u>[Updated] Epic Review & Substitute Guidance</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-infuse-style-in-vids-3-proven-methods-for-instagram-borders/"><u>[Updated] In 2024, Infuse Style in Vids 3 Proven Methods for Instagram Borders</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-visual-storytelling-in-your-instagram-highlight-images/"><u>[Updated] The Art of Visual Storytelling in Your Instagram Highlight Images</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/elevating-handheld-gaming-with-asuss-rog-ally-x-a-detailed-review-of-its-high-end-features-and-cost/"><u>Elevating Handheld Gaming with Asus's ROG Ally X: A Detailed Review of Its High-End Features and Cost</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-blank-page-to-airwaves-writing-engaging-podcast-episodes/"><u>From Blank Page to Airwaves Writing Engaging Podcast Episodes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-foremost-top-5-lightweight-video-capturers-guide/"><u>In 2024, Foremost Top 5 Lightweight Video Capturers Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-step-by-step-guide-to-exceptional-instagram-stories/"><u>In 2024, Step-by-Step Guide to Exceptional Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/lightning-growth-guide-for-instagram-using-content-likes-and-videos/"><u>Lightning Growth Guide for Instagram Using Content, Likes & Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/optimize-viewing-the-finest-html5-video-solutions/"><u>Optimize Viewing The Finest HTML5 Video Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/selfie-success-the-complete-guide-on-designing-an-avatar-themed-facebook-cover/"><u>Selfie Success: The Complete Guide on Designing an Avatar-Themed Facebook Cover</u></a></li>
+<li><a href="https://win11.techidaily.com/the-windows-11-oral-saga-commencement/"><u>The Windows 11 Oral Saga Commencement</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/top-5-seconds-timelapse-shooter-for-2024/"><u>Top 5-Seconds Timelapse Shooter for 2024</u></a></li>
+</ul></div>
 

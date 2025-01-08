@@ -1,7 +1,7 @@
 ---
 title: "\"Slide, Swivel and Shift  A Step-by-Step Manual to Flipping Images on Instagram Sites\""
-date: 2024-12-26T12:08:50.053Z
-updated: 2024-12-29T07:22:17.275Z
+date: 2025-01-02T07:39:47.033Z
+updated: 2025-01-07T18:34:06.922Z
 tags:
   - ai video
   - ai instagram
@@ -53,35 +53,27 @@ Step2 **Import** the media and **drag** it into the timeline.
 
 ![drag vimeo video filmora timeline](https://images.wondershare.com/filmora/article-images/drag-vimeo-video-filmora-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 **Go** to "**Video**" > "**Basic**" > "**Flip**"
 
 ![filmora flip horizontal or vertical](https://images.wondershare.com/filmora/article-images/filmora-flip-tool.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 **Click** the "**Clockwise**" icon to **rotate** the video 90 degrees to the right.
 
 ![filmora rotate clockwise or counterclockwise](https://images.wondershare.com/filmora/article-images/filmora-rotate-clockwise-or-counterclockwise.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 **Click** the "**Export**" button and edit the output settings. **Click** the "**Export**" button to **save** your video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How To Rotate Videos for Instagram on Mobile Phones?
 
 Rotating videos for Instagram on a mobile device is just as easy as doing it on a desktop computer. With the right tools and a little know-how, you can quickly and easily rotate your videos to fit the vertical screen of Instagram. Whether you're using an iPhone or an Android device, several apps can help you rotate your videos easily.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 1\. Rotate Instagram Videos Using the Photo App (iPhone)
 
@@ -104,7 +96,7 @@ Step2 **Click** "**Edit**" and **choose** the "**Rotate-Crop**" icon.
 ![photo app edit image](https://images.wondershare.com/filmora/article-images/photo-app-edit-image.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 **Click** on the "**Rotate**" symbol located in the upper-left corner.
@@ -115,6 +107,10 @@ Step4 Once you are content with the video's appearance, **tap** "**Done**."
 
 ![photo app save video](https://images.wondershare.com/filmora/article-images/photo-app-save-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 2\. Flip Instagram Videos With Filmora for Mobile
 
 Rotating videos for Instagram on a mobile device can also be done using the Filmora app. This app is a powerful video editing tool for iPhone and Android users.
@@ -122,6 +118,10 @@ Rotating videos for Instagram on a mobile device can also be done using the Film
 The Filmora app for mobile devices is a great option for anyone looking for a feature-rich video editing tool. This app offers a range of features for adjusting and enhancing your videos, including the ability to rotate them to the correct orientation for Instagram.
 
 ![filmora for mobile](https://images.wondershare.com/filmora/article-images/filmora-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 With simple controls and powerful features, Filmora for Mobile makes it easy to rotate your videos, edit them without the hassle and get them ready for sharing on Instagram. Whether you're a beginner or a professional video editor, the Filmora app is a great choice for creating high-quality content for Instagram.
 
@@ -138,6 +138,10 @@ Step2 **Import** the video you want to rotate.
 Step3 **Click** the video layer in the timeline.
 
 ![filmora app video layer](https://images.wondershare.com/filmora/article-images/filmora-app-video-layer.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 **Rotate** your thumbs while pinching in the direction you want to rotate your video.
 
@@ -179,7 +183,7 @@ Rotating videos for Instagram can be easily done on desktop and mobile devices. 
 ![filmora software](https://images.wondershare.com/filmora/guide/startup-window-on-windows-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Filmora is a powerful video editing tool that makes it easy to rotate and adjust your videos for Instagram. With a range of features and a user-friendly interface, Filmora is a great choice for anyone looking to create high-quality content for the platform.
@@ -200,9 +204,17 @@ Step3 **Go** to "**Video**" > "**Basic**" > "**Flip**"
 
 ![filmora flip horizontal or vertical](https://images.wondershare.com/filmora/article-images/filmora-flip-tool.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 **Click** the "**Clockwise**" icon to **rotate** the video 90 degrees to the right.
 
 ![filmora rotate clockwise or counterclockwise](https://images.wondershare.com/filmora/article-images/filmora-rotate-clockwise-or-counterclockwise.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5 **Click** the "**Export**" button and edit the output settings. **Click** the "**Export**" button to **save** your video.
 
@@ -217,10 +229,6 @@ Rotating videos for Instagram on an iPhone is easy using the built-in Photos app
 The Photos app on iPhone is not just for viewing your photos but also a handy tool for editing videos. The app offers a range of features for adjusting your videos, including rotating them to the correct orientation for Instagram.
 
 ![photo app in phone](https://images.wondershare.com/filmora/article-images/photo-app-iphone.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 With a user-friendly interface and simple controls, the Photos app makes it easy to rotate your videos and get them ready for sharing on the platform. Whether you need to rotate a video 90 degrees or adjust it slightly, the Photos app has you covered. So, if you're an iPhone user looking to rotate your videos for Instagram, the Photos app is a great place to start!
 
@@ -241,10 +249,6 @@ Step3 **Click** on the "**Rotate**" symbol located in the upper-left corner.
 Step4 Once you are content with the video's appearance, **tap** "**Done**."
 
 ![photo app save video](https://images.wondershare.com/filmora/article-images/photo-app-save-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 2\. Flip Instagram Videos With Filmora for Mobile
 
@@ -270,17 +274,13 @@ Step3 **Click** the video layer in the timeline.
 
 ![filmora app video layer](https://images.wondershare.com/filmora/article-images/filmora-app-video-layer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 **Rotate** your thumbs while pinching in the direction you want to rotate your video.
 
 ![filmora app rotate video](https://images.wondershare.com/filmora/article-images/filmora-app-rotate-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## People Also Ask
 
@@ -334,18 +334,22 @@ Rotating videos for Instagram can be easily done on desktop and mobile devices. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-navigating-instagrams-pathway-to-picture-posting/"><u>[New] 2024 Approved Navigating Instagram's Pathway to Picture Posting</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-wave-off-your-insta-footprint-complete-guide-to-permanent-delete/"><u>[New] 2024 Approved Wave Off Your Insta Footprint Complete Guide to Permanent Delete</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-a-beginners-guide-to-adding-depth-with-text-in-photoshop/"><u>[New] A Beginner's Guide to Adding Depth with Text in Photoshop</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-easy-igtv-video-grabs-for-ios-and-android-devices-for-2024/"><u>[New] Easy IGTV Video Grabs for iOS and Android Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-tips-for-producing-high-quality-youtube-videos-for-2024/"><u>[New] Essential Tips for Producing High-Quality YouTube Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instagram-archive-essentials-top-15-downloader-tools/"><u>[New] In 2024, Instagram Archive Essentials Top 15 Downloader Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-ideal-video-capturer-for-engaging-youtube-audiences/"><u>[Updated] 2024 Approved Ideal Video Capturer for Engaging YouTube Audiences</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-from-one-world-to-another-connecting-instagram-and-facebook/"><u>[Updated] From One World to Another Connecting Instagram & Facebook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-earning-power-through-engagement-ajays-success-on-youtube-monetization/"><u>[Updated] In 2024, Earning Power Through Engagement Ajay’s Success on YouTube Monetization</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-art-of-patience-mastering-the-craft-of-producing-captivating-slow-motion-videos-and-photos-for-instagram/"><u>[Updated] In 2024, The Art of Patience Mastering the Craft of Producing Captivating Slow Motion Videos and Photos for Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-elevating-your-visual-storytelling-techniques-and-strategies-for-shooting-compelling-slow-motion-content-for-instagram/"><u>2024 Approved Elevating Your Visual Storytelling Techniques and Strategies for Shooting Compelling Slow Motion Content for Instagram</u></a></li>
-<li><a href="https://games-able.techidaily.com/spring-into-action-with-augmented-gaming/"><u>Spring Into Action with Augmented Gaming</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-guide-to-saving-insta-story-content-for-2024/"><u>Step-by-Step Guide to Saving Insta Story Content for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-streamline-video-management-with-easy-to-follow-time-stamp-tutorials/"><u>[New] 2024 Approved Streamline Video Management with Easy-to-Follow Time Stamp Tutorials</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-devices-to-device-guide-for-google-meet-participation-for-2024/"><u>[New] Devices to Device Guide for Google Meet Participation for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-content-visibility-discover-6-thumbnail-designers-best-tools/"><u>[New] In 2024, Elevate Your Content Visibility - Discover 6 Thumbnail Designers' Best Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-aesthetics-unleashed-leading-enhancers-for-2024/"><u>[New] Instagram Aesthetics Unleashed Leading Enhancers for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlock-your-visual-potential-the-leading-ten-tools-for-instagram-grids/"><u>[New] Unlock Your Visual Potential The Leading Ten Tools for Instagram Grids</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-visuals-that-stand-out-top-10-ig-grid-making-innovations/"><u>[New] Visuals that Stand Out Top 10 IG Grid Making Innovations</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-accelerating-your-ascension-to-instagram-a-list-status-our-fast-track-guide-of-15-must-try-strategies/"><u>[Updated] Accelerating Your Ascension to Instagram A-List Status Our Fast Track Guide of 15 Must-Try Strategies</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-crafting-consumer-contentment-masterful-unboxing-tactics/"><u>[Updated] Crafting Consumer Contentment Masterful Unboxing Tactics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-creating-captivating-youtube-thumbnails-for-mac-users-for-2024/"><u>[Updated] Creating Captivating YouTube Thumbnails for Mac Users for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevating-visuals-the-most-inspiring-instagram-photos-for-2024/"><u>[Updated] Elevating Visuals The Most Inspiring Instagram Photos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mapping-out-instagram-deactivations/"><u>[Updated] In 2024, Mapping Out Instagram Deactivations</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-link-sharing-instagram-stories-and-posts/"><u>2024 Approved Mastering Link Sharing Instagram Stories & Posts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-sony-xperia-1-v-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Sony Xperia 1 V without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-y200e-5g-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo Y200e 5G Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-decoding-social-medias-new-wave-10-realities-about-reels/"><u>In 2024, Decoding Social Media's New Wave 10 Realities About Reels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-insiders-guide-to-musical-enhancements-on-ig/"><u>In 2024, The Insider's Guide to Musical Enhancements on IG</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/step-by-step-solution-overcoming-common-dvd-compatibility-issues-in-macos/"><u>Step-by-Step Solution: Overcoming Common DVD Compatibility Issues in macOS</u></a></li>
 </ul></div>
 

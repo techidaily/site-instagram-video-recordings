@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Unlock Instagram's Filter Treasure Trove Without Spending for 2024"
-date: 2024-12-18T17:05:08.569Z
-updated: 2024-12-23T16:31:04.985Z
+date: 2025-01-02T18:07:09.328Z
+updated: 2025-01-07T19:32:33.941Z
 tags:
   - ai video
   - ai instagram
@@ -48,22 +48,18 @@ Instagram filters allow you to create a different look by saving money and time.
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 1: Open Your Story
 
 ![Find Instagram Filter - Open Story](https://images.wondershare.com/filmora/article-images/open-instagram-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You need to launch the Instagram app first, and then tap on **Your Story** at the top left corner of the screen from your feed page of Instagram.
 
@@ -71,7 +67,15 @@ You need to launch the Instagram app first, and then tap on **Your Story** at th
 
 ![Find Instagram Filter - Browser Effects](https://images.wondershare.com/filmora/article-images/browser-instagram-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now swipe to the right until that camera circle reaches **Browse Effects**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Search for the Filter
 
@@ -80,6 +84,10 @@ Now swipe to the right until that camera circle reaches **Browse Effects**.
 Tap on Browse Effects to open the **Effects gallery.** Now you can select any filter from the suggestion, or you can search by clicking on the **search icon** at the right corner.
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
@@ -112,10 +120,6 @@ This way, you can also get to know about the creators who make good Instagram fi
 
 ![Find Instagram Filter - search creator](https://images.wondershare.com/filmora/article-images/search-creator-profile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Launch the Instagram app on your phone. Then go to the search engine by clicking on the **search icon** at the bottom of your screen. Now search the creator's profile by typing their username.
 
 ### Step 2: Open the Filters Section
@@ -123,10 +127,6 @@ Launch the Instagram app on your phone. Then go to the search engine by clicking
 ![Find Instagram Filter - search creator](https://images.wondershare.com/filmora/article-images/open-instagram-filter-option.jpg)
 
 Once you have reached the creator's profile, you will have to tap on a **smiling face** to open the filters section. You will see all the filters that the creator has made. Now, select the effect you want to use by clicking on it and saving it for later.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Search New Filters on Instagram from Friends
 
@@ -138,13 +138,13 @@ So despite covering the above two parts, there is another valuable and quick way
 
 Launch the app and open the friend's story by clicking on their **Profile Picture** from the top of your newsfeed on Instagram.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Click on Filter
 
 You need to click on the Filter at the top of your screen, right below the person's name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Select the Try it option
 
@@ -184,16 +184,12 @@ Instagram allows you to make stories in different filters. Now you can also down
 Once you've launched Instagram, slide left to open the story option, tap on the **Effects option**, while in the Effects Gallery, select on any filter that you would like to try, and wait for the **preview screen** to appear.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Download the Filter
 
 Once you are satisfied with the Filter, look for **the download icon featured at the bottom end of the screen and tap on it to save the Filter to your phone'**s camera gallery. The **downwards arrow** will turn into a check once you're Filter is downloaded.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Select the Filter and try it
 
@@ -213,6 +209,10 @@ Swipe left to open up the story page on the Instagram application. You can now a
 
 Open the saved filters options and choose from the filters shown in the **protected gallery**; the gallery gives you access to all of your previously used and saved filters.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Select a Filter and take a snap
 
 Choose the Filter of your choice by entering the chosen Filter on the **shutter button** and take your desired picture.
@@ -223,16 +223,12 @@ When it comes to posting stories, Instagram is the most popular choice of app, w
 
 Instagram filters provide extra touches to your Instagram stories and photos using artificial intelligence. The software comes with a few filters, but there are many more to choose from. **How to search for filters on Instagram** filters is as follows:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1: Browse for filters
 
 Swipe left on the main page of the Instagram app to open the Instagram stories, then tap the **magnifying glass** on the bottom of the page to browse different filter effects.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Preview a filter of your choice
@@ -251,6 +247,10 @@ The article mainly introduces different ways on **how to search filters on Insta
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -266,16 +266,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-conquering-social-media-with-ig-videos-planning-an-optimal-strategy/"><u>[New] Conquering Social Media with IG Videos Planning an Optimal Strategy</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-picking-a-champion-in-video-software-vlcmx/"><u>[New] Picking a Champion in Video Software VLC/MX</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-getting-started-with-windows-10-sound-recording-for-2024/"><u>[Updated] Getting Started with Windows 10 Sound Recording for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-the-power-of-instagram-reels-with-these-strategies/"><u>[Updated] Unlock the Power of Instagram Reels with These Strategies</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-simply-your-way-of-capturing-igtv-on-devices/"><u>2024 Approved Simply Your Way of Capturing IGTV on Devices</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-blurring-the-focus-bokeh-wonders-in-stories/"><u>In 2024, Blurring the Focus Bokeh Wonders in Stories</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-maximizing-vimeo-presence-with-movies-from-wmm/"><u>In 2024, Maximizing Vimeo Presence with Movies From WMM</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/step-by-step-tutorial-for-restoring-deleted-information-from-the-motorola-droid-razr-maxx-hd-phone/"><u>Step-by-Step Tutorial for Restoring Deleted Information From the Motorola Droid Razr Maxx HD Phone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-next-big-thing-in-mobile-tech-rumored-info-on-the-innovative-foldable-iphone-and-its-launch-details/"><u>The Next Big Thing in Mobile Tech: Rumored Info on the Innovative Foldable iPhone and Its Launch Details</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/twitch-time-travel-retrieve-lost-broadcast-moments/"><u>Twitch Time-Travel Retrieve Lost Broadcast Moments</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-crafting-a-unique-identity-step-by-step-audio-customizations-on-android-phones/"><u>[New] 2024 Approved Crafting a Unique Identity Step-by-Step Audio Customizations on Android Phones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instagram-video-magic-techniques-to-elevate-your-social-media-impact/"><u>[New] In 2024, Instagram Video Magic Techniques to Elevate Your Social Media Impact</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-through-instagram-video-hiccups/"><u>[New] Navigating Through Instagram Video Hiccups</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-discover-10-secret-followers-on-stories/"><u>[Updated] Discover 10 Secret Followers on Stories</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-gear-up-for-greatness-choosing-webcams-for-youtube-excellence-for-2024/"><u>[Updated] Gear Up for Greatness Choosing Webcams for YouTube Excellence for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-top-8-mobile-mosaics-best-blend-of-affordable-and-premium-android-videomosaic-apps/"><u>[Updated] Top 8 Mobile Mosaics Best Blend of Affordable and Premium Android Videomosaic Apps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-enhancing-instagram-communications-through-video-engagement/"><u>2024 Approved Enhancing Instagram Communications Through Video Engagement</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/assessing-instagrams-selfie-validation/"><u>Assessing Instagram's Selfie Validation</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1723620208613-discover-the-ultimate-list-of-no-cost-mp3-convertors-for-desktops-laptops-smartphones-and-online-services-ranked/"><u>Discover the Ultimate List of No-Cost MP3 Convertors for Desktops, Laptops, Smartphones & Online Services - Ranked</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-inquiry-to-insight-best-practices-for-story-based-polls/"><u>From Inquiry to Insight Best Practices for Story-Based Polls</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/google-meet-a-self-teached-path-for-hosts-and-attendees-for-2024/"><u>Google Meet A Self-Teached Path for Hosts & Attendees for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fascinating-film-categories-to-lure-viewers/"><u>In 2024, Fascinating Film Categories to Lure Viewers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/scrutinizing-selfies-on-instagram-validation-necessary/"><u>Scrutinizing Selfies on Instagram Validation Necessary?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-mb-error-cant-connect-to-services-in-windows-11/"><u>Troubleshooting MB Error: Can't Connect to Services in Windows 11</u></a></li>
 </ul></div>
 

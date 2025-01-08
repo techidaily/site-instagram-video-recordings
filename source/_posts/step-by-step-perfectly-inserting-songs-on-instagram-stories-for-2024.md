@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step  Perfectly Inserting Songs on Instagram Stories for 2024\""
-date: 2024-12-22T22:07:17.215Z
-updated: 2024-12-23T18:55:50.333Z
+date: 2025-01-02T02:54:49.003Z
+updated: 2025-01-08T02:25:38.234Z
 tags:
   - ai video
   - ai instagram
@@ -42,7 +42,7 @@ To start with, just launch the Instagram application on your phone and tap on th
 ![ Add Story Button](https://images.wondershare.com/filmora/article-images/add-story.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This will launch a dedicated interface for Instagram Story. Here, you can use your camera to click a picture or record a mini video. If you want, you can also upload an existing picture or video as your story as well. Once you have taken a snap, just scroll up your screen to get various add-on features for your story. From here, just tap on the “Music” option to add music to IG story.
@@ -56,16 +56,12 @@ As of now, Instagram music has an extensive catalog with millions of songs in di
 ![ Select Taylor Swift Songs](https://images.wondershare.com/filmora/article-images/select-taylor-swift-songs.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Once you find the song of your choice, just tap on it and it will be loaded on the Instagram Story interface. Although the entire song would be loaded, you would now have to clip a snippet of at most 15 seconds from it. There is a slider at the bottom that you can move and adjust to clip the specific part and even view its lyrics sliding as you move.
 
 ![ View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 3. Make optional edits to customize the story
 
@@ -76,10 +72,6 @@ If you want, you can just post the song right away after learning how to put mus
 After when you add music to IG story, you can further change how it looks. You can see different ways to display the lyrics right above the snippet selection. If you want, you can zoom in or out the text and move it to display it the way you like. Furthermore, there is a color radiant option on the top that you can select to change the text color and background.
 
 ![ Customize IG Story](https://images.wondershare.com/filmora/article-images/customize-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you don’t want to display the lyrics, then just swipe the text options at the bottom and select the sticker feature. This will only display the sticker of the track on the story. You can also tap on the sticker to get different display options for it.
 
@@ -101,6 +93,10 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Use inbuilt Instagram filters
 
 Instagram also keeps rotating different filters that we can add to our stories. You can explore them from the bottom panel and make your stories look visually appealing. There are tons of gradients and stickers here that you can explore and easily add to your story.
@@ -108,7 +104,7 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Add polls, challenges, countdowns, and more
@@ -131,6 +127,10 @@ There you go! Now when you know how to add music to IG Story, you can easily pos
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -146,22 +146,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-earn-big-stay-safe-top-5-income-boosting-posts-for-2024/"><u>[New] Earn Big, Stay Safe Top 5 Income Boosting Posts for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-how-to-add-narration-and-voiceovers-to-your-video/"><u>[New] How to Add Narration and Voiceovers to Your Video</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-tutorial-for-adding-gifs-and-emojis-in-instagram-stories/"><u>[New] In 2024, The Ultimate Tutorial for Adding GIFs & Emojis in Instagram Stories</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-add-auto-captions-to-instagram/"><u>[Updated] 2024 Approved How to Add Auto Captions to Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-luminous-leadership-elevating-content-through-insta-hits/"><u>[Updated] 2024 Approved Luminous Leadership Elevating Content Through Insta Hits</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-quick-route-to-celebrity-status-on-insta-top-15-strategies-for-rapid-follower-growth/"><u>[Updated] 2024 Approved The Quick Route to Celebrity Status on Insta Top 15 Strategies For Rapid Follower Growth</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-easy-ways-to-merge-igtv-and-instagram-stories/"><u>[Updated] In 2024, Easy Ways to Merge IGTV & Instagram Stories</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-loop-lovers-guide-instagrams-best-for-repeat-viewers-for-2024/"><u>[Updated] Loop Lovers Guide Instagram's Best for Repeat Viewers for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-projecting-facebook-videos-onto-your-home-entertainment-system-for-2024/"><u>[Updated] Projecting Facebook Videos Onto Your Home Entertainment System for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-streamlined-techniques-for-capturing-stories-on-instagram/"><u>[Updated] Streamlined Techniques for Capturing Stories on Instagram</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/enhancing-crypto-governance-strategies-for-better-oversight-by-yl-computing-and-yl-software/"><u>Enhancing Crypto Governance: Strategies for Better Oversight by YL Computing and YL Software</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-f5-pro-5g-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from F5 Pro 5G</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-12-pro-by-drfone-ios/"><u>How to Unlock iPhone 12 Pro?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-iphone-15-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling iPhone 15 Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic5-ultimate-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic5 Ultimate to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-laughter-lines-timely-meme-trends-to-share/"><u>In 2024, Laughter Lines Timely Meme Trends to Share</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-dance-the-viral-dance-mix-in-some-tiktok-flavor-for-insta-success/"><u>[New] In 2024, Dance the Viral Dance Mix in Some TikTok Flavor for Insta Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-identifying-the-top-10-hidden-story-admirers/"><u>[New] In 2024, Identifying the Top 10 Hidden Story Admirers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-velocity-strategic-use-of-likes-and-videos-for-growth/"><u>[New] Insta Velocity Strategic Use of Likes & Videos for Growth</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-harmonizing-imagery-and-tunes-on-social-media-platforms/"><u>[Updated] 2024 Approved Harmonizing Imagery & Tunes on Social Media Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-leverage-hashtags-in-igtv-for-fan-base-explosion/"><u>[Updated] 2024 Approved Leverage Hashtags in IGTV for Fan Base Explosion</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-obs-studio-vs-fraps-which-is-a-better/"><u>[Updated] 2024 Approved OBS Studio vs Fraps – Which Is A Better</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-prime-strategies-for-constructing-mcc-homes/"><u>[Updated] 2024 Approved Prime Strategies for Constructing MCC Homes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-invisible-realities-of-stories-a-closer-look-for-viewers-for-2024/"><u>[Updated] Invisible Realities of Stories A Closer Look for Viewers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-samsung-revolution-diving-deep-into-the-ue590-monitor-review-for-2024/"><u>[Updated] The Samsung Revolution - Diving Deep Into the UE590 Monitor Review for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-top-10-accelerating-yt-channels-for-intellectual-enlightenment/"><u>2024 Approved Top 10 Accelerating YT Channels for Intellectual Enlightenment</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-realme-gt-neo-5-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Realme GT Neo 5</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-titles-google-cardboards-most-immersive-vr-games/"><u>Best Titles Google Cardboard's Most Immersive VR Games</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-iphone-se-2022-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On iPhone SE (2022)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-video-trimming-for-maximum-instagram-impact-mac/"><u>Mastering Video Trimming for Maximum Instagram Impact (Mac)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/real-time-reality-showdown-softwares-supremacy-over-hardware/"><u>Real-Time Reality Showdown Software's Supremacy Over Hardware?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/retro-remake-applying-modern-filters-on-previous-media-posts/"><u>Retro Remake Applying Modern Filters on Previous Media Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/sharpen-aesthetic-focus-learning-border-techniques-for-insta-videos-for-2024/"><u>Sharpen Aesthetic Focus Learning Border Techniques for Insta-Videos for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/sitting-smart-for-virtual-battles/"><u>Sitting Smart for Virtual Battles</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/top-9-fotoregistreringsapplikationer-for-nyaret-2024-den-sista-rekommendationen/"><u>Top 9 Fotoregistreringsapplikationer För Nyåret 2024 - Den Sista Rekommendationen</u></a></li>
 </ul></div>
 
