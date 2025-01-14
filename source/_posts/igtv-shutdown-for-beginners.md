@@ -1,7 +1,7 @@
 ---
 title: "IGTV Shutdown for Beginners"
-date: 2024-07-26T02:56:19.695Z
-updated: 2024-07-27T02:56:19.695Z
+date: 2025-01-09T16:52:33.187Z
+updated: 2025-01-14T17:14:21.163Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/ac6fcc85e0fde61250c72c7455cdeba283035fd7f
 
 # How to Turn Off IGTV?
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -29,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/ac6fcc85e0fde61250c72c7455cdeba283035fd7f
  Mar 27, 2024• Proven solutions
 
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Turn Off IGTV Notifications on Instagram
 
@@ -62,15 +63,16 @@ Follow @Shanoon Cox
 
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Turn Off IGTV Notifications on Instagram
 
  Preventing IGTV notifications from bothering you while you are scrolling down your Instagram feed requires a minimum amount of effort. You just have to **launch the Instagram app** and then once the app opens, you should tap on **the profile icon** that is located in the bottom right corner. Upon arriving at your Instagram profile page, you will be able to see **the hamburger icon** in the top right corner. Tapping on the hamburger icon will grant you access to a menu that contains options such as **Your Activity, Nametag or Saved**. At the very bottom of this menu, you’ll spot the **Settings icon**, tap on it and after the **Settings menu opens** tap on the **Notifications icon**.
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -98,8 +100,9 @@ Follow @Shanoon Cox
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn Off IGTV Notifications on Instagram
 
  Preventing IGTV notifications from bothering you while you are scrolling down your Instagram feed requires a minimum amount of effort. You just have to **launch the Instagram app** and then once the app opens, you should tap on **the profile icon** that is located in the bottom right corner. Upon arriving at your Instagram profile page, you will be able to see **the hamburger icon** in the top right corner. Tapping on the hamburger icon will grant you access to a menu that contains options such as **Your Activity, Nametag or Saved**. At the very bottom of this menu, you’ll spot the **Settings icon**, tap on it and after the **Settings menu opens** tap on the **Notifications icon**.
@@ -118,10 +121,11 @@ Follow @Shanoon Cox
 
  Optimizing IGTV in accordance with your interests and tastes doesn’t require much effort, as you can easily hide or report IGTV videos you don’t want to interact with. Moreover, you can get rid of IGTV notifications in case they interrupt you too often while you are browsing through your Instagram feed. Hopefully, this article will help make the experience of using IGTV more enjoyable for you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,15 +139,16 @@ Follow @Shanoon Cox
 
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Turn Off IGTV Notifications on Instagram
 
  Preventing IGTV notifications from bothering you while you are scrolling down your Instagram feed requires a minimum amount of effort. You just have to **launch the Instagram app** and then once the app opens, you should tap on **the profile icon** that is located in the bottom right corner. Upon arriving at your Instagram profile page, you will be able to see **the hamburger icon** in the top right corner. Tapping on the hamburger icon will grant you access to a menu that contains options such as **Your Activity, Nametag or Saved**. At the very bottom of this menu, you’ll spot the **Settings icon**, tap on it and after the **Settings menu opens** tap on the **Notifications icon**.
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -156,9 +161,6 @@ Follow @Shanoon Cox
 
  Optimizing IGTV in accordance with your interests and tastes doesn’t require much effort, as you can easily hide or report IGTV videos you don’t want to interact with. Moreover, you can get rid of IGTV notifications in case they interrupt you too often while you are browsing through your Instagram feed. Hopefully, this article will help make the experience of using IGTV more enjoyable for you.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -178,8 +180,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,7 +188,16 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-by-step-guide-changing-voices-in-instagram-features/"><u>[New] In 2024, Step-by-Step Guide Changing Voices in Instagram Features</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-cutting-edge-cameras-top-15-picks-innovation/"><u>[Updated] Cutting-Edge Cameras Top 15 Picks Innovation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-evaluating-igtv-video-impact-effectively-for-2024/"><u>[Updated] Evaluating IGTV Video Impact Effectively for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/capture-the-moment-in-squares-mastering-imovie-for-instagram-video-for-2024/"><u>Capture the Moment in Squares Mastering iMovie for Instagram Video for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-engagement-essential-apps-for-insta-growth-for-2024/"><u>Elevate Your Engagement Essential Apps for Insta Growth for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-streaming-success-recorded-google-chats/"><u>In 2024, Streaming Success Recorded Google Chats</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Raise the Decibels: Custom Sound Adjustments on a Windows 10 Machine"
-date: 2024-12-04T17:10:08.211Z
-updated: 2024-12-08T20:17:37.465Z
+date: 2025-01-12T17:34:37.784Z
+updated: 2025-01-14T17:08:08.999Z
 tags:
   - win11
   - win10
@@ -42,11 +42,11 @@ But first, ensure that your device has been connected and set correctly.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/1-5.jpg)
 3. In the Playback tab, select your device and click**Set Default** .![](https://images.drivereasy.com/wp-content/uploads/2019/07/mi.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 4. Go back to the Anthem and check it has sound or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 2: Run audio troubleshooting
 
@@ -56,16 +56,12 @@ But first, ensure that your device has been connected and set correctly.
 2. Click **Playing Audio** . Then click **Run the troubleshooter** . Wait for the investigation complete. ![](https://images.drivereasy.com/wp-content/uploads/2019/07/10-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3. Follow the on-screen instructions to finish the process.
 
 4. Restart your computer and check whether Anthem has sound or not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Set the Default Format in the lowest mode
 
@@ -79,14 +75,10 @@ But first, ensure that your device has been connected and set correctly.
 4. Click the **Advanced** tab, select the lowest setting on the Default Format drop-down menu. Then click **OK** . Back to the Sound window, click **Apply** \> **OK** .![](https://images.drivereasy.com/wp-content/uploads/2019/07/12.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5. Reboot your computer and check whether Anthem has sound or not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 4: Uncheck “Disable all sound effects”
 
@@ -98,11 +90,7 @@ But first, ensure that your device has been connected and set correctly.
 3. In the **Playback** tab, choose the device you’re using and click **Properties** . ![](https://images.drivereasy.com/wp-content/uploads/2019/07/audio1-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4. In the **Enhancements** tab, uncheck “**Disable all sound effects** “. ![](https://images.drivereasy.com/wp-content/uploads/2019/07/audio-1.jpg)
@@ -110,6 +98,10 @@ But first, ensure that your device has been connected and set correctly.
 5. Click **Apply > OK** .
 
 6. Reboot your computer and go back to the game, you should have audio now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Update your audio driver
 
@@ -126,9 +118,17 @@ But first, ensure that your device has been connected and set correctly.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/driver.jpg)
 3. Click the **Update button** next to the selected driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Or click **Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/driver1.jpg)
 4. Restart your computer and check the Anthem has sound or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6: Restart the game
 
@@ -157,20 +157,20 @@ But first, ensure that your device has been connected and set correctly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-harmonic-hub-curating-exceptional-dj-visual-downloads/"><u>[New] 2024 Approved Harmonic Hub Curating Exceptional DJ Visual Downloads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube-for-2024/"><u>[New] Assessing the Value of 4-Second Rapid Subscriptions on Youtube for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-ensure-your-video-fits-the-instagram-aesthetic-perfectly-for-2024/"><u>[New] Ensure Your Video Fits the Instagram Aesthetic Perfectly for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-quick-launch-diving-into-live-conversations-on-instagram/"><u>[New] In 2024, Quick Launch Diving Into Live Conversations on Instagram</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-the-insiders-pathway-to-effective-auditory-notes/"><u>[Updated] 2024 Approved The Insider’s Pathway to Effective Auditory Notes</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-frame-it-up-right-insta-ready-video-edits-for-final-cut-pro-x/"><u>[Updated] In 2024, Frame It Up Right Insta-Ready Video Edits for Final Cut Pro X</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-insta-angle-alchemy-crafting-content-with-a-twist-for-maximum-impact-for-2024/"><u>[Updated] Insta-Angle Alchemy Crafting Content with a Twist for Maximum Impact for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-secrets-of-slow-motion-video-production-for-instagram-impact-for-2024/"><u>[Updated] Unveiling the Secrets of Slow Motion Video Production for Instagram Impact for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-essentials-of-image-augmentation-inserting-text-into-images-for-pc-and-mac-users/"><u>2024 Approved The Essentials of Image Augmentation Inserting Text Into Images for PC & Mac Users</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/comprehensive-fixes-for-the-troublesome-usb-recognition-issue-and-unsuccessful-port-resets-on-windows-11-systems/"><u>Comprehensive Fixes for the Troublesome USB Recognition Issue and Unsuccessful Port Resets on Windows 11 Systems</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/efficient-shortening-of-instagram-video-content-mac/"><u>Efficient Shortening of Instagram Video Content (Mac)</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-watch-twitter-videos-in-full-hd-for-2024/"><u>How To Watch Twitter Videos in Full HD for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-art-of-crafting-exclusive-cover-photos-on-instagram-for-2024/"><u>Mastering the Art of Crafting Exclusive Cover Photos on Instagram for 2024</u></a></li>
-<li><a href="https://win-info.techidaily.com/ultimate-guide-to-protecting-your-data-with-windows-backup-and-restore-insights-from-yl-software-experts/"><u>Ultimate Guide to Protecting Your Data with Windows Backup & Restore: Insights From YL Software Experts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-infinix-note-30-pro-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Infinix Note 30 Pro? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-boosting-your-brand-on-instagram-proven-5-techniques-and-success-stories/"><u>[New] 2024 Approved Boosting Your Brand on Instagram Proven 5 Techniques & Success Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unleashing-potential-the-instagram-success-story-guide-for-2024/"><u>[New] Unleashing Potential - The Instagram Success Story Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unveiling-metaverse-marketing-mysteries-for-2024/"><u>[New] Unveiling Metaverse Marketing Mysteries for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-veiled-realities-an-insight-into-story-viewers-world/"><u>[New] Veiled Realities An Insight Into Story Viewers' World</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-favorite-frameworks-top-instagram-filters/"><u>[Updated] 2024 Approved Favorite Frameworks Top Instagram Filters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-endgame-for-deactivating-an-instagram-profile/"><u>[Updated] 2024 Approved The Endgame for Deactivating an Instagram Profile</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-fb-video-placement-which-way-wins/"><u>[Updated] In 2024, FB Video Placement - Which Way Wins?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-metaverse-laughs-crafting-funny-virtual-memes/"><u>[Updated] Metaverse Laughs Crafting Funny Virtual Memes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-motorola-moto-g73-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Motorola Moto G73 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/1728468246642-aomei/"><u>AOMEI バックアッパー 先進セグメントバッキアップソリューション</u></a></li>
+<li><a href="https://win-web.techidaily.com/download-tutorials-and-talks-from-eckhart-tolles-official-site-with-the-best-free-download-tool/"><u>Download Tutorials & Talks From Eckhart Tolle's Official Site with the Best Free Download Tool!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-convert-instagram-video-to-mp4-2-proven-ways/"><u>How to Convert Instagram Video to MP4 [ 2 Proven Ways]</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-resurgence-of-quirks-in-pc-tech-how-unpredictability-fuels-progress/"><u>The Resurgence of Quirks in PC Tech - How Unpredictability Fuels Progress</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-stardew-valley-launch-problems-solutions-revealed/"><u>Troubleshooting Stardew Valley Launch Problems - Solutions Revealed!</u></a></li>
+<li><a href="https://app-tips.techidaily.com/unveiling-chatsonic-the-ultimate-review-for-insights-into-an-intelligent-artificial-conversational-agent/"><u>Unveiling Chatsonic: The Ultimate Review for Insights Into an Intelligent Artificial Conversational Agent</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Slippery Slope of Simulated Support, Instagram Style for 2024"
-date: 2025-01-03T04:58:30.419Z
-updated: 2025-01-08T06:33:36.419Z
+date: 2025-01-09T16:27:28.306Z
+updated: 2025-01-14T16:52:01.706Z
 tags:
   - ai video
   - ai instagram
@@ -34,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 * [**Part3: How to Identify Accounts with Fake Likes**](#part3)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why Do Influencers Buy Fake Likes?
@@ -47,19 +47,11 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 
 ## Part 2: 3 Reasons to Avoid Buying Instagram Likes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. It Will Harm Your Engagement
 
  When you have more followers on Instagram, it is inevitable that your engagement levels will decline. When an account has less than 1,000 followers, the engagement levels are around eight percent. It goes down to four percent when you have between 1,000 and 10,000 followers. Between 10,000 to 100,000 followers has an engagement level of around 2.4%. And it goes down to 1.7% when you are at a million.
 
  What do all these numbers mean? It means that if you were to buy likes, you would be arousing suspicion of brands who may want to hire you for sponsorship purposes. Say you are buying a lot of likes because they are cheaper to get than followers. If you have 15,000 followers and an engagement level of 6 or 7 percent, your account is suspicious.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Buying Fake Likes is a Black Hole
 
@@ -70,7 +62,7 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 ![ins fake likes](https://images.wondershare.com/filmora/article-images/ins-rules.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Violation of Instagram Rules
@@ -83,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 
 ## Part 3: How to Identify Accounts with Fake Likes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Followers and Engagement Levels Are Off
 
  There can be anomalies in how many likes an Instagram post gets relative to the account’s followers. For instance, a post may be shared by an influencer and celebrity, causing it to go viral.
@@ -91,15 +87,15 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 
  Those who are insistent on buying likes will need to buy followers to match up the engagement levels with the numbers we mentioned above. But it is more hassle than it is worth!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Posts and Likes Do Not Match Up
 
  When an account has very few posts, but any likes on each post, it is unusual. It generally takes a lot of posts before an account can rack up a high follower and like count. The only time accounts with few posts have a lot of likes is when they are started by a celebrity.
 
  If you notice an influencer has three or four posts in the past month, but they have thousands of likes on each post, it is suspicious. There is a good chance the influencer used inauthentic methods of gaining those likes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Spam Comments
 
@@ -117,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -132,18 +132,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-entertainment-unlocked-apk-of-funimate-explained/"><u>[New] In 2024, Entertainment Unlocked APK of Funimate Explained</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-master-the-art-of-cropping-videos-for-instagrams-highest-standards/"><u>[Updated] 2024 Approved Master the Art of Cropping Videos for Instagram's Highest Standards</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-perfecting-pace-techniques-for-shooting-captivating-slow-motion-content-for-instagram-audiences-for-2024/"><u>[Updated] Perfecting Pace Techniques for Shooting Captivating Slow Motion Content for Instagram Audiences for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-elevate-your-content-game-with-these-instagram-story-tips/"><u>2024 Approved Elevate Your Content Game with These Instagram Story Tips</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-shut-down-instagram-suggestions/"><u>2024 Approved Shut Down Instagram Suggestions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/androidiphones-ultimate-guide-top-10-free-photo-overlay-hacks/"><u>Android/iPhone's Ultimate Guide Top 10 Free Photo Overlay Hacks</u></a></li>
-<li><a href="https://win11.techidaily.com/enhance-visibility-and-efficiency-using-a-90-degree-display-shift/"><u>Enhance Visibility & Efficiency Using a 90-Degree Display Shift</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-play-7t-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor Play 7T to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-motorola-g54-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Motorola G54 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-say-goodbye-to-stumbles-in-your-instagram-stream/"><u>In 2024, Say Goodbye to Stumbles in Your Instagram Stream</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-seamless-process-of-streaming-on-facebook-live/"><u>In 2024, Seamless Process of Streaming on Facebook Live</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ultimate-insights-assessing-lgs-widescreen-monitor-capabilities-for-2024/"><u>Ultimate Insights Assessing LG's Widescreen Monitor Capabilities for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725288487066-wiidvd/"><u>WiiでDVD再生が可能なコツ：初心者歓迎・簡単に学ぶ手順【超シンプル】</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-perfectly-place-music-stickers-on-instagram-content/"><u>[New] 2024 Approved How to Perfectly Place Music Stickers on Instagram Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-instagram-utilizing-search-to-expand-your-filters/"><u>[New] In 2024, Mastering Instagram Utilizing Search to Expand Your Filters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-pro-tips-to-enhance-your-use-of-instagrams-query-symbol/"><u>[New] In 2024, Pro Tips to Enhance Your Use of Instagram's Query Symbol</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unlock-the-full-content-masterful-techniques-to-download-igtv-videos/"><u>[New] In 2024, Unlock the Full Content Masterful Techniques to Download IGTV Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-stealth-watch-instagram-stories-without-profile-links-pc-android-ios/"><u>[New] Mastering Stealth Watch Instagram Stories Without Profile Links [PC, Android, iOS]</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-finalizing-account-deletion-on-instagram-method-and-tips/"><u>[Updated] 2024 Approved Finalizing Account Deletion on Instagram Method and Tips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-pro-editor-tips-cropping-and-export-your-videos-for-instagram-success/"><u>[Updated] Pro Editor Tips Cropping & Export Your Videos for Instagram Success</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-guide-to-whatsapp-calls-on-your-phone-for-2024/"><u>[Updated] The Ultimate Guide to WhatsApp Calls on Your Phone for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-nokia-c210-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diverse-video-realms-sites-outshining-youtube-for-2024/"><u>Diverse Video Realms Sites Outshining Youtube for 2024</u></a></li>
+<li><a href="https://discover-help.techidaily.com/efficient-techniques-for-migrating-personal-storage-table-pst-data-from-exchange-onlineoffice-365-mailboxes/"><u>Efficient Techniques for Migrating Personal Storage Table (PST) Data From Exchange Online/Office 365 Mailboxes</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-androids-podcast-superheroes/"><u>In 2024, Android's Podcast Superheroes</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mastering-desktop-and-mobile-capturing-team-video-conferences/"><u>In 2024, Mastering Desktop & Mobile Capturing Team Video Conferences</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-prime-gpus-for-sharp-4k-image-display/"><u>In 2024, Prime GPUs for Sharp 4K Image Display</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolve-iphone-standby-issues-4-proven-solutions/"><u>Resolve iPhone Standby Issues: 4 Proven Solutions</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211323660-9798987858851-when-youre-going-through-hell-keep-going/"><u>When You're Going Through Hell ...Keep Going | Free Book</u></a></li>
 </ul></div>
 

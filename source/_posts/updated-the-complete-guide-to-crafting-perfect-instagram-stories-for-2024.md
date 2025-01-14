@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Complete Guide to Crafting Perfect Instagram Stories for 2024"
-date: 2025-01-03T23:52:53.593Z
-updated: 2025-01-08T04:54:26.728Z
+date: 2025-01-07T16:31:18.321Z
+updated: 2025-01-14T16:23:41.241Z
 tags:
   - ai video
   - ai instagram
@@ -44,10 +44,6 @@ First of all, update your Instagram app and then launch it. Now, you can make yo
 
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * c. You can swipe right on the screen (to launch the Instagram Camera there).
 
 #### 2\.  Share a photo or video from the gallery
@@ -55,6 +51,10 @@ First of all, update your Instagram app and then launch it. Now, you can make yo
 If you want to post a picture or video you have already in your mobile phone, you can make it your Insta story. For that you need to swipe up on your screen, after you have launched the Instagram Camera. It will open up your Gallery and you can select the preferred picture or video and click 'Send to'. On the next page, tap on 'Your Story' and then click 'Share'. Now, your first Instagram Story is out for your contacts to see.
 
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: Quora
 
@@ -69,6 +69,10 @@ Note: By default the 'Normal' mode is ready to capture your subject. We bring yo
 After launching the Instagram Camera, you need to choose the following camera options as you desire –
 
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: Ryan Bilello
 
@@ -110,10 +114,6 @@ Image resource: Ryan Bilello
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
 
 Here are the most popular 'Stickers' and their usages–
@@ -126,16 +126,12 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
@@ -148,6 +144,10 @@ Whoa! You are becoming a sport at how to use Instagram Stories.
 
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Add color overlays
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
@@ -155,7 +155,7 @@ You can also add text to make your Instagram Stories more attractive. Tap on the
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Add link
@@ -177,7 +177,7 @@ With this complete guide for Instagram Stories, we are hopeful that you are goin
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -195,22 +195,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-complete-guide-to-reversed-videos-on-instagram/"><u>[New] 2024 Approved The Complete Guide to Reversed Videos on Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-igniting-instagram-interest-maximizing-content-reach-and-interactions/"><u>[New] In 2024, Igniting Instagram Interest Maximizing Content Reach and Interactions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-overcome-vanished-youtube-minute-media/"><u>[New] In 2024, Overcome Vanished YouTube Minute Media</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-igtv-strategies-for-uploading-horizontal-videos/"><u>[New] Mastering IGTV Strategies for Uploading Horizontal Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-quick-start-guide-to-schedule-and-start-zoom-calls-on-android/"><u>[New] Quick-Start Guide to Schedule & Start Zoom Calls on Android</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-art-of-chromatic-enhancement/"><u>[New] The Art of Chromatic Enhancement</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-audio-enhancement-for-professional-instagram-posts/"><u>[Updated] In 2024, Audio Enhancement for Professional Instagram Posts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/accelerating-your-watch-experience-on-instagram-videos/"><u>Accelerating Your Watch Experience on Instagram Videos</u></a></li>
-<li><a href="https://win-community.techidaily.com/comment-faire-en-cas-de-second-hdd-incompatible-avec-windows-11-6-solutions-pratiques-a-suivre/"><u>Comment Faire en Cas De Second HDD Incompatible Avec Windows 11 : 6 Solutions Pratiques À Suivre</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-boost-your-instagrams-accessibility-with-easy-caption-features/"><u>In 2024, Boost Your Instagram's Accessibility with Easy Caption Features</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Vivo Y27 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on OnePlus Ace 2 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-pantheon-of-popularity-instagrams-top-25-icons/"><u>In 2024, The Pantheon of Popularity Instagram's Top 25 Icons</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/perfecting-presentations-adopt-the-ezvide-screencast-method-for-2024/"><u>Perfecting Presentations Adopt the EZvide Screencast Method for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/purchase-movavi-professional-video-editor-today-optimized-for-business-efficiency/"><u>Purchase Movavi Professional Video Editor Today – Optimized For Business Efficiency</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-insiders-guide-to-instagram-video-engagement/"><u>The Insider’s Guide to Instagram Video Engagement</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ultimate-walkthrough-for-activating-and-using-chatgpt-on-macos/"><u>Ultimate Walkthrough for Activating and Using ChatGPT on macOS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-leveraging-instagram-for-massive-audience-growth/"><u>[New] Leveraging Instagram for Massive Audience Growth</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-elevate-your-social-strategy-with-these-top-8-apps-phones-included/"><u>[Updated] 2024 Approved Elevate Your Social Strategy with These Top 8 Apps, Phones Included</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagrams-pathway-including-vimeo-videos/"><u>[Updated] 2024 Approved Instagram's Pathway Including Vimeo Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-exquisite-top-ten-nintendo-switch-combat-games-max-156/"><u>[Updated] Exquisite Top Ten Nintendo Switch Combat Games (Max 156)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-view-instagram-stories-anonymously-on-pc-android-and-iphone/"><u>[Updated] How to View Instagram Stories Anonymously on PC, Android, and iPhone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-beyond-the-hype-decoding-10-instagram-reels-truths/"><u>[Updated] In 2024, Beyond the Hype Decoding 10 Instagram Reels Truths</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-navigating-the-copyright-symphony-of-instagrams-sounds/"><u>[Updated] Navigating the Copyright Symphony of Instagram's Sounds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-tech-savvy-approach-to-saving-your-insta-content/"><u>2024 Approved The Tech-Savvy Approach to Saving Your Insta Content</u></a></li>
+<li><a href="https://program-issues.techidaily.com/a-comprehensive-guide-overcoming-dota-2s-vac-lockout/"><u>A Comprehensive Guide: Overcoming Dota 2'S VAC Lockout</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/asus-atk0110-free-updated-acpi-driver-download-available-now/"><u>ASUS ATK0110: Free, Updated ACPI Driver Download Available Now</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/convert-instagram-videos-into-audio-clips-mp3-for-2024/"><u>Convert Instagram Videos Into Audio Clips (MP3) for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/excel-tricks-unveiled-how-to-seamlessly-hide-comments-formulas-overflow-content-and-gridlines/"><u>Excel Tricks Unveiled: How To Seamlessly Hide Comments, Formulas, Overflow Content & Gridlines</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-tecno-spark-10c-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-data-from-apple-iphone-14-pro-max-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-14-plus-screen-lock-without-password-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock iPhone 14 Plus screen lock without password?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-your-killer-e2500-gigabit-ethernet-card-free-driver-software-available-now/"><u>Install Your Killer E2500 Gigabit Ethernet Card - Free Driver Software Available Now</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/step-by-step-tutorial-for-simple-ssd-partition-recovery-using-windows-tools-and-tricks/"><u>Step-by-Step Tutorial for Simple SSD Partition Recovery Using Windows Tools and Tricks</u></a></li>
 </ul></div>
 

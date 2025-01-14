@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step Guide to Applying New Colors & Textures on Past Media\""
-date: 2024-12-04T18:59:24.280Z
-updated: 2024-12-08T18:23:20.088Z
+date: 2025-01-12T16:18:54.391Z
+updated: 2025-01-14T16:15:17.885Z
 tags:
   - ai video
   - ai instagram
@@ -58,19 +58,11 @@ After you open the stories option, the camera will open first. You can click a p
 
 ![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: press the smiley icon**
 
 After you have selected the image from the gallery, you can apply a filter to it before posting. On top of the screen, you will see a smiley or sparkle emoji. **Click on the smiley emoji** to access the existing or saved filter options to apply to the selected photo.
 
 ![  Instgram smile icon for filters](https://images.wondershare.com/filmora/article-images/instagram-smile-icon.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Select filters**
 
@@ -78,23 +70,23 @@ After clicking on the smiley icon, you will be seeing a lot of saved and existin
 
 ![ select  Instgram filters](https://images.wondershare.com/filmora/article-images/select-instagram-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Click done and post**
 
 After selecting the filter of your choice and **applying i**t, **click done on the top right corner** and post the story.
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -113,6 +105,10 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Add Instagram Filters to Existing Videos?
 
 Do you know how to add Instagram filter to existing photo/video? Instagram is now promoting reels through which people can express their creative side. You will see many trending reels on Instagram, and most of them are quite impressive. If you also want to trend on Instagram to gain your followers, your videos should look appealing. You can make your videos get more engagement by adding suitable filters to them. Here is how you can add filters to existing videos:
@@ -130,6 +126,10 @@ On the bottom left of the screen, you will see a square box. **Click on the squa
 On the bottom, you will find a search icon which is also called the filter carousel. Through the f**ilter carousel**, you can find various kinds of filters and also type in the filter name if you have any in your mind. **Apply the filter** on the video.
 
 ![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Download or upload**
 
@@ -150,7 +150,7 @@ After you **click next**, you will see a lot of filter options. You can **swipe 
 ![  edit Instgram filters ](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Edit the image and post**
@@ -167,6 +167,10 @@ Open the story option and **swipe to enable the Reel option**. Once you have the
 
 ![Instgram Reels Gallery ](https://images.wondershare.com/filmora/article-images/instagram-reels-gallery.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Click on shine emoji to add filters**
 
 On top, you will see a **shine emoji** option through which you can **browse through filters** and select the one you like; you can **click to apply**.
@@ -179,6 +183,10 @@ After you are done adding effects, you can **click on done** to post, and you ca
 
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **FAQs** About Instagram Filters
 
 1. **Can you add Instagram story filters to existing photos?**
@@ -189,19 +197,11 @@ Yes, it is easy to add an Instagram filter to existing photos from your gallery.
 
 Just swipe left to the stories window and swipe up to select an image from the camera roll. Then click on the smiling emoji on the tab and apply the filter of your choice. You can then share it on Insta or save it to your camera roll.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Often people do not know how to add Instagram filters to existing photos and videos. It is easy to learn, especially through the steps we have mentioned above. Filters are the ultimate hack to add cohesiveness and attraction to your feed or stories.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -218,16 +218,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-building-captivating-instagram-feed-layouts/"><u>[New] 2024 Approved Building Captivating Instagram Feed Layouts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-elevate-your-content-from-instagram-vids-to-crisp-mp4-files/"><u>[New] In 2024, Elevate Your Content From Instagram Vids to Crisp MP4 Files</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-backpedaling-through-imagery-an-insiders-guide-to-finding-originals-in-instagram/"><u>2024 Approved Backpedaling Through Imagery An Insider's Guide to Finding Originals in Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/best-igtv-sources-for-daily-inspiration/"><u>Best IGTV Sources for Daily Inspiration</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/echoes-of-sound-how-to-enhance-tweeted-visuals-for-2024/"><u>Echoes of Sound How to Enhance Tweeted Visuals for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-use-face-id-make-purchases-on-iphone-13-by-drfone-ios-unlock-ios-unlock/"><u>How to Use Face ID make purchases on iPhone 13 ?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-harnessing-new-filters-on-instagram-a-modern-take-2023-techniques/"><u>In 2024, Harnessing New Filters on Instagram A Modern Take (2023 Techniques)</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-xiaomi-redmi-note-13-5g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Xiaomi Redmi Note 13 5G to Mac? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/live-coverage-of-mens-ncaa-tournament-march-madness-and-final-four-highlights/"><u>Live Coverage of Men's NCAA Tournament: March Madness & Final Four Highlights</u></a></li>
-<li><a href="https://article-helps.techidaily.com/mastering-the-art-of-audio-blending-in-audacity/"><u>Mastering the Art of Audio Blending in Audacity</u></a></li>
-<li><a href="https://win-docs.techidaily.com/step-by-step-tutorial-crafting-a-quick-fix-disaster-prevention-tool-for-windows-users/"><u>Step-by-Step Tutorial: Crafting a Quick Fix Disaster Prevention Tool for Windows Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-expert-techniques-for-adding-borders-to-your-instagram-images/"><u>[New] In 2024, Expert Techniques for Adding Borders to Your Instagram Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-acclaimed-creators-superior-insta-hlv-page-builders/"><u>[Updated] Acclaimed Creators Superior Insta HLV Page Builders</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-pro-level-insights-transforming-your-instagram-feed/"><u>[Updated] In 2024, Pro-Level Insights Transforming Your Instagram Feed</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-tecno-phantom-v-flip-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Tecno Phantom V Flip Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/detailed-look-at-the-latest-lg-360-camera-tech-for-2024/"><u>Detailed Look at the Latest LG 360 Camera Tech for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-iphone-se-2022-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your iPhone SE (2022) without Security Questions?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unleash-your-livestream-potential-no-millions-of-followers-needed/"><u>In 2024, Unleash Your Livestream Potential No Millions of Followers Needed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/keep-track-who-dropped-off-my-insta-feed-for-2024/"><u>Keep Track Who Dropped Off My Insta Feed for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pioneering-image-editing-with-toolwiz-a-compre-written-review-for-2024/"><u>Pioneering Image Editing with Toolwiz – A Compre Written Review for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/styling-your-content-a-compreran-guide-to-insta-photo-watermarks-for-2024/"><u>Styling Your Content A Compreran Guide to Insta Photo Watermarks for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/swiftly-rectify-slow-windows-app-connections-for-peak-performance/"><u>Swiftly Rectify Slow Windows App Connections for Peak Performance</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-for-eradicating-windows-search-icons/"><u>Tips for Eradicating Windows Search Icons</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/transform-your-content-instagram-ready-videos-in-final-cut-pro-x/"><u>Transform Your Content Instagram-Ready Videos in Final Cut Pro X</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ustream-overview-plus-similar-services/"><u>Ustream Overview + Similar Services</u></a></li>
+<li><a href="https://blog-min.techidaily.com/verbesserung-der-videobearbeitungsqualitat-auf-windows-und-mac-fur-hochauflosende-hd-4k-auflosungen/"><u>Verbesserung Der Videobearbeitungsqualität Auf Windows Und Mac Für Hochauflösende HD / 4K-Auflösungen</u></a></li>
 </ul></div>
 

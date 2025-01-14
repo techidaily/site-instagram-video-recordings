@@ -1,7 +1,7 @@
 ---
 title: "Fixing the Issue: Resolving PC Crashes in Halo 3"
-date: 2025-01-04T22:37:26.111Z
-updated: 2025-01-07T16:05:02.688Z
+date: 2025-01-13T17:09:37.246Z
+updated: 2025-01-14T17:12:52.425Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 **The Division 2 keeps crashing?** Don’t worry… Although it’s incredibly frustrating, you’re definitely not the only person to experience this problem. Thousands of players have recently reported the very same issue. More importantly, you should be able to fix it pretty easily…
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  Here’s a list of fixes that have resolved this problem for other players. You don’t have to try them all. Just work your way through the list until you find the one that does the trick for you.
@@ -34,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 7. **[Lower in-game graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1: Check if your system meets the specifications required for The Division 2
 
@@ -91,10 +83,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
  If it this issue persists after you install the latest game patch, or if there was no new game patch available, move on to Fix 3, below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 3: Update your graphics driver
 
  In most cases, the broken or outdated graphics driver is the main culprit behind the game crashing issues.
@@ -114,10 +102,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
@@ -141,10 +125,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-122.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) Click**the LOCAL FILES tab** , then click **VERIFY INTEGRITY OF GAME CACHE…** . After that, click **CLOSE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-120.png)
@@ -163,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
  Launch the game after verifying the game file to see if this fix works. If not, try the next fix, below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 5: Run Windows Compatibility Troubleshooter
 
 **Program Compatibility Troubleshooter** is a built-in tool in Windows OS that can check whether programs are compatible for your current Windows OS or not. The game crash issues often occur when some program settings are not compatible with the current Windows OS.
@@ -177,25 +161,37 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-124.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) Go to**the Compatibility tab** and click**Change high DPI settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-126.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3)**Check the box** next to**Override high DPI scaling behavior** and select**Scaling performed by: Application** . Then click**OK** to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-127.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  4)**Tick the box** next to**Disable fullscreen optimizations** and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-128.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
  Run The Division 2 to see if the this fix works. If not, try the next fix to modify your page file.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 6: Modify the paging file size
 
@@ -210,7 +206,7 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-146.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2) In the search box, type**advanced** and then click**View advanced system settings** in the list of search results.
@@ -225,10 +221,6 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-152.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  5)**Check the box** next to**Automatically manage paging file size for all drives** . Then click OK to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-153.png)
@@ -236,10 +228,6 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
  **Do not disable the paging file or modify it to 0 MB or a static value** even if your PC has sufficient RAM, since if you doing that, it usually causes crashes in the game.
 
  Launch The Division 2 to see if this issue gets fixed or not. If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 7: Lower in-game graphics settings
 
@@ -253,17 +241,25 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-155-1024x744.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3)**Turn off Contact Shadows** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-156-1024x776.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4) Set**Particle Detail** to**High** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-157-1024x756.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5) Set**Reflection Quality** to**Low** .
 
@@ -289,6 +285,10 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-163-1024x772.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Launch the game to see if the crash issue reappears. If not, congratulations! You’ve resolved this issue.
 
  Hopefully this post helped you resolve The Division 2 crash issue. If you have any questions or suggestions, please leave us a comment below.
@@ -312,18 +312,22 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-instant-interaction-the-art-of-crafting-instagram-stories-questions-for-2024/"><u>[New] Instant Interaction The Art of Crafting Instagram Stories Questions for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/tarting-offright-how-to-register-with-youtube/"><u>[New] Starting Offright How to Register With YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-guide-to-revamping-igtv-title-and-description-texts-for-2024/"><u>[Updated] Guide to Revamping IGTV Title & Description Texts for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-art-of-reel-production-embedding-soundtracks/"><u>2024 Approved The Art of Reel Production Embedding Soundtracks</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-uncloaking-sham-followers-on-your-instagram-network/"><u>2024 Approved Uncloaking Sham Followers on Your Instagram Network</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-elevate-video-impact-proven-youtube-seo-methods/"><u>In 2024, Elevate Video Impact Proven YouTube SEO Methods</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-m1-pro-and-m1-max-a-comparative-insight-into-apples-latest-chips/"><u>In 2024, M1 Pro and M1 Max - A Comparative Insight Into Apple's Latest Chips</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-navigating-youtube-and-instagram-sharing-video-content-without-limits/"><u>In 2024, Navigating YouTube and Instagram Sharing Video Content without Limits</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-unlocking-free-secure-vlc-player-access-on-apple-devices/"><u>In 2024, Unlocking Free, Secure VLC Player Access on Apple Devices</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/reverse-the-norm-flipping-videos-for-social-media-for-2024/"><u>Reverse the Norm Flipping Videos for Social Media for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/revolutionize-your-speech-recording-experience-with-shortcuts-in-win-11/"><u>Revolutionize Your Speech Recording Experience with Shortcuts in Win 11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/ultimate-guide-enlarge-videos-without-compromising-clarity-and-avoid-watermarks-the-top-10-strategies/"><u>Ultimate Guide: Enlarge Videos Without Compromising Clarity & Avoid Watermarks – The Top 10 Strategies</u></a></li>
-<li><a href="https://driver-install.techidaily.com/update-fixing-hp-printer-driver-conflicts-in-win-os/"><u>Update: Fixing HP Printer Driver Conflicts in Win OS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-strategy-for-highlight-image-success-in-instagram/"><u>[New] In 2024, The Ultimate Strategy for Highlight Image Success in Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-increase-views-with-smart-igtv-title-and-summary-edits/"><u>[New] Increase Views with Smart IGTV Title and Summary Edits</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-slow-motion-photography-techniques-for-instagram-posts/"><u>[New] Mastering Slow Motion Photography Techniques for Instagram Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-save-instastories-infinite-the-liberation-app/"><u>[New] Save InstaStories Infinite The Liberation App</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-collageknights-syncing-videos-across-devices/"><u>[Updated] 2024 Approved CollageKnights Syncing Videos Across Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-fading-techniques-for-aural-balance/"><u>[Updated] Fading Techniques for Aural Balance</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-a-comprehensive-walkthrough-of-adding-text-to-instagram-clips/"><u>[Updated] In 2024, A Comprehensive Walkthrough of Adding Text to Instagram Clips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-selecting-the-best-free-melodies-for-your-youtube-video/"><u>[Updated] In 2024, Selecting the Best Free Melodies for Your YouTube Video</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-experts-guide-to-interactive-instagram-stories-polling/"><u>[Updated] In 2024, The Expert's Guide to Interactive Instagram Stories Polling</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quick-play-music-10-best-apps-phones/"><u>[Updated] Quick Play Music 10 Best Apps, Phones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-guide-to-perfectly-timed-video-loops-on-ig/"><u>[Updated] Step-by-Step Guide to Perfectly Timed Video Loops on IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-and-amending-social-groups-regulatory-frameworks/"><u>Creating & Amending Social Groups' Regulatory Frameworks</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-the-cutting-edge-features-of-the-latest-ipad-calculator-app-a-potential-apple-pencil-investment/"><u>Exploring the Cutting-Edge Features of the Latest iPad Calculator App: A Potential Apple Pencil Investment?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensive-scrutiny-of-elite-parrot-ar-20/"><u>In 2024, Comprehensive Scrutiny of Elite Parrot AR 2.0</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-dialogue-engaging-your-youtube-fans-for-2024/"><u>Mastering Dialogue Engaging Your YouTube Fans for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-shot-without-a-lifeline-hand-balancing-hacks-for-2024/"><u>The Shot Without a Lifeline Hand Balancing Hacks for 2024</u></a></li>
+<li><a href="https://discover-able.techidaily.com/vrije-media-format-konvertoren-ogm-in-wmv-omzetten-online-movavi/"><u>Vrije Media-Format Konvertoren: OGM in WMV Omzetten Online - Movavi</u></a></li>
 </ul></div>
 

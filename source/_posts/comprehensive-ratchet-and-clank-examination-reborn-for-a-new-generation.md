@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Ratchet & Clank Examination: Reborn for a New Generation"
-date: 2024-12-03T16:12:23.728Z
-updated: 2024-12-08T16:08:15.580Z
+date: 2025-01-08T17:44:58.226Z
+updated: 2025-01-14T16:44:29.768Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Ratchet & Clank Examination: Reborn for a New Generation"
@@ -13,17 +13,9 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/pWXHOnFpWCs9EltKF9bRUP_y5aU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -48,6 +40,10 @@ Lifewire / Jonno Hill
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -82,6 +78,10 @@ Lifewire / Jonno Hill
 
  Being a powered antenna, the 1byone uses an external amplifier to boost the signal. This box contains a coaxial input attached via the included 16.5ft cable, and has a power input, which can be supplied by the TV itself if it can support USB power. Otherwise, 1byone includes a USB power adapter.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: Fairly intuitive**
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas. Simply attach the 16.5ft coaxial cable to the external amplifier, connect the power to a USB power source, and then attach the coaxial cable from the amplifier to your TV.
@@ -89,7 +89,7 @@ Lifewire / Jonno Hill
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Good enough for most**
@@ -98,10 +98,6 @@ Lifewire / Jonno Hill
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
@@ -109,7 +105,7 @@ Lifewire / Jonno Hill
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -117,6 +113,10 @@ Lifewire / Jonno Hill
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
 
@@ -158,20 +158,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mastering-your-marketing-edge-establishing-a-biz-page-on-instagram/"><u>[New] 2024 Approved Mastering Your Marketing Edge Establishing a Biz Page on Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-strategizing-your-approach-highlight-and-story-downloads/"><u>[New] Strategizing Your Approach Highlight & Story Downloads</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-top-7-strategies-for-delicious-food-vids/"><u>[Updated] 2024 Approved Top 7 Strategies for Delicious Food Vids</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-boost-your-igtv-views-top-5-tactics-for-increased-engagement-for-2024/"><u>[Updated] Boost Your IGTV Views Top 5 Tactics for Increased Engagement for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-discovering-local-insta-stars-finding-your-niches-top-influencers-for-2024/"><u>[Updated] Discovering Local Insta Stars Finding Your Niche's Top Influencers for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-your-social-strategy-with-these-top-8-apps-phones-included-for-2024/"><u>[Updated] Elevate Your Social Strategy with These Top 8 Apps, Phones Included for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/apex-legends-made-easy-eradicating-error-code-23-with-simple-fixes-and-tweaks/"><u>Apex Legends Made Easy: Eradicating Error Code 23 with Simple Fixes and Tweaks</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diy-solutions-to-repair-dell-speaker-problems-under-windows-7-os/"><u>DIY Solutions to Repair Dell Speaker Problems Under Windows 7 OS</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-break-through-red-dead-redemption-2s-endless-load-screen-dilemma/"><u>How to Break Through Red Dead Redemption 2'S Endless Load Screen Dilemma</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-how-to-save-photo-from-video-in-windows-10-photos-app/"><u>In 2024, How to Save Photo From Video in Windows 10 Photos App</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-perfect-picture-spotlights-how-to-zoom-in-and-out-on-insta-stories/"><u>In 2024, Perfect Picture Spotlights How to Zoom in & Out on Insta Stories</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-reviewing-asuss-4k-spectacle-the-mg28uq-unboxed/"><u>In 2024, Reviewing ASUS's 4K Spectacle - The MG28UQ Unboxed</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-skin-care-secrets-unveiled/"><u>In 2024, Skin Care Secrets Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-legacy-the-most-coolest-50-phrases-to-use-wisely/"><u>Latin Legacy: The Most Coolest 50 Phrases to Use Wisely</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/navigating-the-changing-landscape-of-instagram-stories-for-2024/"><u>Navigating the Changing Landscape of Instagram Stories for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-pioneering-the-future-of-instagram-downloads/"><u>[New] 2024 Approved Pioneering the Future of Instagram Downloads</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unlock-instagrams-hidden-features-voice-modification/"><u>[New] 2024 Approved Unlock Instagram's Hidden Features Voice Modification</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-science-of-writing-gripping-documentaries/"><u>[Updated] 2024 Approved The Science of Writing Gripping Documentaries</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-enhance-your-instagram-content-with-effective-captioning/"><u>[Updated] In 2024, Enhance Your Instagram Content with Effective Captioning</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-glow-up-the-best-three-highlight-ideas/"><u>[Updated] In 2024, Instagram Glow Up The Best Three Highlight Ideas</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-pictureprofessional-expert-guide-to-adjusting-ig-content-sizes-for-2024/"><u>[Updated] PictureProfessional Expert Guide to Adjusting IG Content Sizes for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-secrets-to-viral-meme-innovation/"><u>[Updated] Secrets to Viral Meme Innovation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-inverted-illusion-guide-transforming-visual-content-through-angled-spins/"><u>[Updated] The Inverted Illusion Guide Transforming Visual Content Through Angled Spins</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/macavchdmknvwmvmp4/"><u>轉檔超簡單Mac軟件！改變AVCHD、MKnV、WMV、MP4影片格式，一鍵就可以!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/expert-tag-analyzer-devices-for-popular-platforms-fbtwitterinsta/"><u>Expert Tag Analyzer Devices for Popular Platforms (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-quality-audio-choices-top-wired-earbuds-2024-edition/"><u>High-Quality Audio Choices: Top Wired Earbuds, 2024 Edition</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/professional-edge-mastering-bordered-videos-on-insta/"><u>Professional Edge Mastering Bordered Videos on Insta</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/step-by-step-tutorial-seamless-audio-removal-and-retrieval-in-bak-formats/"><u>Step-by-Step Tutorial: Seamless Audio Removal and Retrieval in BAK Formats</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-complete-guide-to-equipping-your-computer-with-epson-xp-430-drivers-windows/"><u>The Complete Guide to Equipping Your Computer with Epson XP-430 Drivers (Windows)</u></a></li>
+<li><a href="https://win11.techidaily.com/ultimate-tutorial-mastering-video-editing-techniques-cropping-content-on-wmp-windows-media-player/"><u>Ultimate Tutorial: Mastering Video Editing Techniques – Cropping Content on WMP (Windows Media Player)</u></a></li>
+<li><a href="https://win-updates.techidaily.com/understanding-the-distinction-malware-vs-spyware-explained-by-malwarefox/"><u>Understanding the Distinction: Malware Vs. Spyware Explained by MalwareFox</u></a></li>
 </ul></div>
 

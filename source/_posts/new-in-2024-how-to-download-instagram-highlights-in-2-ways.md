@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Download Instagram Highlights in 2 Ways?"
-date: 2024-12-07T20:21:51.455Z
-updated: 2024-12-08T18:35:01.711Z
+date: 2025-01-07T17:18:20.263Z
+updated: 2025-01-14T16:50:37.075Z
 tags:
   - ai video
   - ai instagram
@@ -64,6 +64,10 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 
 ![download instagram hightlights - copy highlight username](https://images.wondershare.com/filmora/article-images/copy-highlight-username2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3\. Select the current story or the specific Highlight/s you are crushing over.
 
 ![download instagram highlights - save highlight as video](https://images.wondershare.com/filmora/article-images/save-highlight-as-video3.jpg)
@@ -71,10 +75,6 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 4\. Click '**Save As**', and the video/photo will be downloaded to your phone/PC. As easy as that.
 
 ![how to download instagram highlights - click to download instagram highlights](https://images.wondershare.com/filmora/article-images/click-download-instagram-highlight4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2: Download Instagram Highlights Using Stories Archive
 
@@ -86,6 +86,10 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 
 ![using stories archive - tap archive button](https://images.wondershare.com/filmora/article-images/tap-archive-button5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2\. The Archive library will pop open. Finding a specific story can be like looking for a needle in the haystack. But luckily, the stories are arranged date-wise.
 
 ![using stories archive to download Instagram Highlights - find story highlight](https://images.wondershare.com/filmora/article-images/find-story-highlight6.jpg)
@@ -94,20 +98,12 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 
 ![Download Instagram Highlights using stories archive - tap to download highlights](https://images.wondershare.com/filmora/article-images/tap-more-highlight-download7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 4\. Then click on '**Save photo/video**' to download it on your phone instantly.
 
 ![download instagram highlights as](https://images.wondershare.com/filmora/article-images/download-instagram-highlight-as8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip 1: How to Create an Instagram Highlight
@@ -127,7 +123,7 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 ![tap story highlights button](https://images.wondershare.com/filmora/article-images/tap-story-highlights-button9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Choose a story/stories to create a highlight and click 'Next.'
@@ -135,7 +131,7 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 ![create new instagram highlight](https://images.wondershare.com/filmora/article-images/create-new-instagram-highlight-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Enter Highlight name and 'Edit Cover' by choosing a story.
@@ -146,20 +142,20 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 
 ![finish creating instagram highlight](https://images.wondershare.com/filmora/article-images/finish-create-instagram-highlight12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bonus Tip 2: Best Instagram Video Editor — [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 What is the best way to attract an audience on Instagram? Make unique videos! Let me introduce you to Wondershare Filmora. Now you can create stunning Instagram videos in a snap. The user-friendly interface and professional editing tools will help you [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) with advanced tools. Your creativity plus the limitless editing options in Filmora are bound to stop Instagrammers in their tracks to watch your video. You can even add animated titles that grip viewers' attention without the audio.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -203,6 +199,10 @@ Go on, craft, or download Instagram highlights and enjoy. Good luck, Instagramme
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -224,24 +224,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-clear-sound-conference-experience-via-skype/"><u>[New] 2024 Approved Clear Sound Conference Experience via Skype</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/uilding-a-million-views-empire-safe-and-secure-methods/"><u>[New] Building a Million Views Empire Safe and Secure Methods</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-fast-and-furious-how-to-turbocharge-instagram-videos-for-2024/"><u>[New] Fast and Furious How to Turbocharge Instagram Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-from-portrait-to-panorama-a-guide-to-instagrams-rotation-revolution-for-2024/"><u>[New] From Portrait to Panorama A Guide to Instagram's Rotation Revolution for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-methods-to-resuscitate-windows-photo-viewer-on-latest-os/"><u>[New] Methods to Resuscitate Windows Photo Viewer on Latest OS</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-guide-inserting-captions-in-instagram-clips-for-2024/"><u>[New] Step-by-Step Guide Inserting Captions in Instagram Clips for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-teleporting-technique-upgrading-phones-for-vr-immersion/"><u>[New] The Teleporting Technique Upgrading Phones for VR Immersion</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unveiling-the-best-premiere-plans-free-for-pros/"><u>[New] Unveiling the Best Premiere Plans, FREE for Pros</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-advanced-methods-for-fisheye-imaging-excellence/"><u>[Updated] Advanced Methods for Fisheye Imaging Excellence</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-visuals-best-practices-for-impactful-ig-video-loops-for-2024/"><u>[Updated] Elevate Visuals Best Practices for Impactful IG Video Loops for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-love-in-action-top-9-premium-wedding-films-on-youtube-and-vimeo/"><u>[Updated] In 2024, Love in Action Top 9 Premium Wedding Films on YouTube and Vimeo</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-exodus-of-followers-instagrams-new-map/"><u>[Updated] The Exodus of Followers Instagram's New Map</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-elite-anonymity-in-story-consumption-top-5-apps/"><u>2024 Approved Elite Anonymity in Story Consumption, Top 5 Apps</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/convert-instagram-videos-into-audio-clips-mp3/"><u>Convert Instagram Videos Into Audio Clips (MP3)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/crafting-captivating-igtv-cover-photos-thumbnails-for-2024/"><u>Crafting Captivating IGTV Cover Photos (Thumbnails) for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-x-flip-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Vivo X Flip to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solve-your-mass-effect-legendary-edition-crash-issues-on-pc-or-xbox/"><u>Solve Your Mass Effect Legendary Edition Crash Issues on PC or Xbox</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-implementing-auto-captions-in-reels-for-2024/"><u>Step-by-Step Implementing Auto Captions in Reels for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/step-by-step-tutorial-how-to-move-your-dvd-files-from-pc-or-mac-to-a-portable-usb-thumb-drive/"><u>Step-by-Step Tutorial: How to Move Your DVD Files From PC or Mac to a Portable USB Thumb Drive</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-a-comprehensive-guide-to-instagram-edits-for-professionals-for-2024/"><u>[New] A Comprehensive Guide to Instagram Edits for Professionals for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-effortless-techniques-to-share-igtv-in-stories/"><u>[New] Effortless Techniques to Share IGTV in Stories</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-premium-desktop-and-mobile-video-call-platforms-zoom-replacements/"><u>[Updated] 2024 Approved Premium Desktop & Mobile Video Call Platforms (Zoom Replacements)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-innovative-strategies-for-sharing-on-instagram-stories/"><u>[Updated] Innovative Strategies for Sharing on Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instaharmony-androidplusios-photo-video-alchemy/"><u>[Updated] InstaHarmony Android+iOS Photo-Video Alchemy</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-flip-side-of-perspectives-crafting-engaging-images-with-angled-spins-on-instagram-sites/"><u>[Updated] The Flip-Side of Perspectives Crafting Engaging Images with Angled Spins on Instagram Sites</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/beyond-basic-usage-mastering-instagrams-interrogation-icon/"><u>Beyond Basic Usage Mastering Instagram's Interrogation Icon</u></a></li>
+<li><a href="https://common-error.techidaily.com/handling-complications-during-the-rollout-of-windows-10-may-2019-update-v1903/"><u>Handling Complications During the Rollout of Windows 10 May 2019 Update (V1903)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-elevate-your-presence-instagrams-path-to-prominence/"><u>In 2024, Elevate Your Presence Instagram's Path to Prominence</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-microsofts-chatgpt-functioning-follow-these-5-checkpoints-to-confirm/"><u>Is Microsoft's ChatGPT Functioning? Follow These 5 Checkpoints to Confirm</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-whats-the-difference-between-adobe-premiere-and-after-effects-a-beginners-guide-for-2024/"><u>New Whats the Difference Between Adobe Premiere and After Effects? A Beginners Guide for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/nightmares-unleashed-8-must-play-zombie-games-explored/"><u>Nightmares Unleashed 8 Must-Play Zombie Games Explored</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211402844-9783989734258-the-case-against-spiritualism/"><u>The Case Against Spiritualism | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-turkish-script-decoded-simplified-alphabet-and-sound-guide/"><u>The Turkish Script Decoded: Simplified Alphabet & Sound Guide</u></a></li>
 </ul></div>
 

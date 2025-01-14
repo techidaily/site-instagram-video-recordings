@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Boost Engagement with Smart Video Cropping & Exporting"
-date: 2025-01-05T23:41:31.927Z
-updated: 2025-01-07T21:22:35.107Z
+date: 2025-01-08T17:22:05.605Z
+updated: 2025-01-14T16:53:42.680Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ With more than 500 million active daily users Instagram has become one of the la
 **You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to crop and export videos to instagram
@@ -42,7 +42,7 @@ In order to create videos that will get thousands of likes on Instagram, you nee
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **How to crop videos for instagram in Filmora**
@@ -55,10 +55,14 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Drag and Drop the video file onto the Timeline**
@@ -81,15 +85,15 @@ Click on the Settings button and then set the Quality of the video to Best and s
 
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2\. Portrait (4:3)**
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
 
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
 
@@ -100,10 +104,6 @@ The process of creating a square video is the same as the process of creating a 
 The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -120,22 +120,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-finding-the-social-beacons-in-your-interests-digital-landscape-for-2024/"><u>[New] Finding the Social Beacons in Your Interests’ Digital Landscape for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-cutting-edge-artisans-innovative-instagram-hlv-designs/"><u>[New] In 2024, Cutting-Edge Artisans Innovative Instagram HLV Designs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-earn-big-stay-safe-top-5-income-boosting-posts/"><u>[New] In 2024, Earn Big, Stay Safe Top 5 Income Boosting Posts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-video-format-mastery-best-practices-for-instagram-for-2024/"><u>[New] Video Format Mastery Best Practices for Instagram for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-get-free-green-screen-effects-from-4-youtube-channels/"><u>[Updated] 2024 Approved Get Free Green Screen Effects From 4 YouTube Channels</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-guide-to-quick-eradication-of-online-youtube-discussions/"><u>[Updated] Guide to Quick Eradication of Online YouTube Discussions</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unlocking-wealth-through-instagrams-revenue-avenues/"><u>[Updated] In 2024, Unlocking Wealth Through Instagram's Revenue Avenues</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-index-of-varied-photographic-and-videography-instruments/"><u>[Updated] Index of Varied Photographic and Videography Instruments</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-navigate-the-world-of-tags-for-superior-content-performance/"><u>[Updated] Navigate the World of Tags for Superior Content Performance</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-your-channels-potential-increase-youtube-views/"><u>[Updated] Unleashing Your Channel's Potential Increase YouTube Views</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/agriculture-adventures-with-comrades-top-10-farmers-craft/"><u>Agriculture Adventures with Comrades Top 10 Farmer's Craft</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/boom-in-the-loop-crafting-addictive-ig-videos-for-2024/"><u>Boom in the Loop Crafting Addictive IG Videos for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-f14-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy F14 5G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/individual-differences-for-2024/"><u>Individual Differences for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/join-the-metaverse-meme-revolution-quick-tips-for-original-creators/"><u>Join the Metaverse Meme Revolution - Quick Tips for Original Creators</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-instagram-hashtag-guide-for-2024/"><u>The Ultimate Instagram Hashtag Guide for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unleash-your-potential-with-instagram-tv-upload-for-2024/"><u>Unleash Your Potential with Instagram TV Upload for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-insiders-guide-to-creating-viral-instagram-reels/"><u>[Updated] 2024 Approved The Insider’s Guide to Creating Viral Instagram Reels</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-incredibly-swift-blackouts/"><u>[Updated] In 2024, Incredibly Swift Blackouts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-journey-through-the-metaverse-6-illustrative-examples-for-2024/"><u>[Updated] Journey Through the Metaverse 6 Illustrative Examples for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/conversione-gratuita-wmv-a-ogg-online-guida-passo-passo-con-movavi/"><u>Conversione Gratuita WMV a Ogg Online: Guida Passo-Passo Con Movavi</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-igtv-presence-strategies-for-perfecting-video-lengths-and-widths/"><u>Elevate Your IGTV Presence Strategies for Perfecting Video Lengths and Widths</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elite-25-instagram-personalities-worth-following/"><u>Elite 25 Instagram Personalities Worth Following</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-guide-to-turn-off-ig-predictions/"><u>In 2024, The Guide to Turn Off IG Predictions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-hp-omen-obelisk-unrivaled-performance-meets-exceptional-price-point/"><u>Inside the HP OMEN Obelisk: Unrivaled Performance Meets Exceptional Price Point</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/navigating-the-social-media-watersheds-of-your-interest-space-for-2024/"><u>Navigating the Social Media Watersheds of Your Interest Space for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/realitys-new-horizons-analyzing-metaverse-and-omniverse-worlds-for-2024/"><u>Reality's New Horizons Analyzing Metaverse and Omniverse Worlds for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/seeking-all-steam-awards-a-step-by-step-guide/"><u>Seeking All Steam Awards: A Step-by-Step Guide</u></a></li>
 </ul></div>
 
