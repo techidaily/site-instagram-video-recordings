@@ -1,7 +1,7 @@
 ---
 title: Understanding and Fixing Frequent Shutdowns While Playing Beat Saber
-date: 2025-01-12T16:22:56.211Z
-updated: 2025-01-14T16:48:58.426Z
+date: 2025-01-16T17:18:01.361Z
+updated: 2025-01-20T17:36:55.203Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 Beat Saber is a great VR title, but many players are reporting game crashing issues. If you’re also experiencing Beat Saber crashes, we’ve put together every possible solution that proved helpful to other players.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  You might not need to try them all. Simply work your way down until you find the one that does the trick.
@@ -33,15 +29,15 @@ Beat Saber is a great VR title, but many players are reporting game crashing iss
 6. **[Perform a clean reinstall](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Update your headset firmware](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1: Install the latest game patch
 
  Game developers keep releasing new game patches to fix known issues, so be sure to install the latest updates.
 
  Steam will default to updating your game automatically. But if you have disabled automatic updates, please enable this feature for Beat Saber and make sure it’s up to date.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 2: Verify integrity of game files
 
@@ -55,13 +51,13 @@ Beat Saber is a great VR title, but many players are reporting game crashing iss
 ![ Verify integrity of game files...](https://images.drivereasy.com/wp-content/uploads/2020/12/localfiles.jpg)
 4. Steam will verify the game files. It may take about 3-5 minutes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5. Once complete, launch the game again to test the issue.
 
  If Beat Saber keeps crashing rather randomly, don’t be upset, for we have a few more fixes to try.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 3: Remove all the mods
 
@@ -73,12 +69,12 @@ Beat Saber is a great VR title, but many players are reporting game crashing iss
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/local-files.jpg)
 2. Locate the**Plugins** folder, and delete the .dll files inside.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/Beat-Saber-Plugin.jpg)
 3. Relaunch your game and see if it keeps crashing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If Beat Saber still crashes without any mods, you can try the fix, below.
 
@@ -109,20 +105,20 @@ If Beat Saber still crashes without any mods, you can try the fix, below.
 3. Click the **Update**  button next to your graphics card to download the latest and correct driver for it, then you can manually install it.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/update-driver-now.jpg)  
  Or click the **Update All**  button at the bottom right to automatically update all outdated or missing drivers on your computer (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  , which comes with **Full Support** and a **30-day Money Back Guarantee** . You will be prompted to upgrade when you click **Update All** ).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 4. Restart your computer for the changes to take full effect.
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 5: Run as administrator
 
@@ -147,6 +143,10 @@ If Beat Saber still crashes without any mods, you can try the fix, below.
 3. Press the**Windows** key +**R** at the same time, and type**%appdata%** in the Run box, and press**Enter** .  
 ![AppData](https://images.drivereasy.com/wp-content/uploads/2020/12/appdata.jpg)
 4. Delete all the game-related AppData.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Download Beat Saber again and see if a clean reinstall solves this issue.
 
@@ -184,20 +184,22 @@ Download Beat Saber again and see if a clean reinstall solves this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-efficient-strategies-for-instagram-to-mp3-transformation-for-2024/"><u>[New] Efficient Strategies for Instagram to Mp3 Transformation for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-from-camera-roll-to-igtv-video-upload-101/"><u>[New] From Camera Roll to IGTV Video Upload 101</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elevate-your-content-leading-twitter-video-tools/"><u>[New] In 2024, Elevate Your Content Leading Twitter Video Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unveiling-the-top-8-instagram-schedulers-for-iphone-and-android-users/"><u>[New] In 2024, Unveiling the Top 8 Instagram Schedulers for iPhone and Android Users</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-the-pinnacle-of-photonic-innovation-sonys-xperia-xz-premium-for-2024/"><u>[New] The Pinnacle of Photonic Innovation Sony's Xperia XZ Premium for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-share-across-platforms-instagram-meets-facebook/"><u>[Updated] In 2024, Share Across Platforms Instagram Meets Facebook</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-streamlining-your-instagram-archive-with-ease-for-2024/"><u>[Updated] Streamlining Your Instagram Archive with Ease for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-nokia-g22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Nokia G22 | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-insightful-recap-updated-sony-bdp-s3700-features/"><u>2024 Approved Insightful Recap Updated Sony BDP-S3700 Features</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/fixing-a-broken-wi-fi-link-on-the-microsoft-surface-series/"><u>Fixing a Broken Wi-Fi Link on the Microsoft Surface Series</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-hyper-clear-playtime-best-ultra-hd-hdmi-21-gaming-screens/"><u>In 2024, Hyper-Clear Playtime Best Ultra HD (HDMI 2.1) Gaming Screens</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-trail-the-echoes-of-de-follows-in-instagram-land/"><u>In 2024, Trail the Echoes of De-Follows in Instagram Land</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/instagram-filmmaking-the-art-of-virtual-backdrop-integration/"><u>Instagram Filmmaking The Art of Virtual Backdrop Integration</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/smart-trades-with-ai-optimizing-your-crypto-approach/"><u>Smart Trades with AI: Optimizing Your Crypto Approach</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-process-on-how-to-change-hevc-h265-video-format-to-avc-h264-using-ffmpeg/"><u>Step-by-Step Process on How to Change HEVC (H265) Video Format to AVC (H264) Using FFmpeg</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-blueprints-for-success-top-10-insights-into-instagram-video-marketing/"><u>[New] 2024 Approved Blueprints for Success Top 10 Insights Into Instagram Video Marketing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-safekeep-stories-the-unlimited-save-service/"><u>[New] 2024 Approved Safekeep Stories The Unlimited Save Service</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-discover-the-ultimate-10-igtv-content-genres-that-work-best/"><u>[New] Discover the Ultimate 10 IGTV Content Genres That Work Best</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-essential-techniques-for-insta-photo-cover-highlights-for-2024/"><u>[New] Essential Techniques for Insta Photo Cover Highlights for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-ae-essentials-the-most-loved-templates-for-2024/"><u>[New] Instagram AE Essentials The Most Loved Templates for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-starting-point-learning-to-thrive-in-instagrams-virtual-spaces/"><u>[New] Starting Point Learning to Thrive in Instagram's Virtual Spaces</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-how-to-set-up-zoom-video-meeting-for-2024/"><u>[Updated] How to Set up Zoom Video Meeting for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-seamless-tactic-for-igtv-stories-integration/"><u>[Updated] In 2024, Seamless Tactic for IGTV Stories Integration</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-crafting-impactful-hashtags-for-instagram-content/"><u>[Updated] The Art of Crafting Impactful Hashtags for Instagram Content</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-the-power-of-a-new-identity-step-by-step-guide-to-alter-your-game-characters-voice-for-free/"><u>2024 Approved Unlock the Power of a New Identity Step-by-Step Guide to Alter Your Game Character's Voice for FREE</u></a></li>
+<li><a href="https://video-capture.techidaily.com/iuacgombqeobquobhuobnplusoboplusobpuobvplusobnpluswlleeuupluse3qombhuocveodleodioockuimiplusobpoobkeocizog5o6o5awo44gu5oml5rovig/"><u>最適なうたってみた動画編集ソフトを見つける: 推奨の手法</u></a></li>
+<li><a href="https://win-forum.techidaily.com/digital-connections-unleashed-leveraging-facebook-twitter-instagram-and-youtube/"><u>Digital Connections Unleashed: Leveraging Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/discover-fresh-innovations-now-experience-the-new-update-on-your-ios-devices-and-apple-watch/"><u>Discover Fresh Innovations Now - Experience the New Update on Your iOS Devices and Apple Watch</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-pause-life360-location-sharing-for-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-godly-onslaught-ragnaroks-day/"><u>In 2024, Godly Onslaught Ragnarok’s Day</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/latest-guide-on-ipad-23-and-apple-iphone-6s-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Latest Guide on iPad 2/3 and Apple iPhone 6s Plus iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/revolutionize-your-recording-experience-top-18-cam-tools-showcase-for-2024/"><u>Revolutionize Your Recording Experience - Top 18 Cam Tools Showcase for 2024</u></a></li>
 </ul></div>
 

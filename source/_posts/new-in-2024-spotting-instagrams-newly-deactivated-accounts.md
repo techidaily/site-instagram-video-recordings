@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Spotting Instagram's Newly Deactivated Accounts"
-date: 2025-01-13T16:58:18.081Z
-updated: 2025-01-14T17:39:16.039Z
+date: 2025-01-15T18:25:05.813Z
+updated: 2025-01-20T19:10:31.678Z
 tags:
   - ai video
   - ai instagram
@@ -37,7 +37,7 @@ Whenever anyone wants to follow you on Instagram, you are notified and have the 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Figure Out Who Unfollowed You On Instagram?
@@ -53,6 +53,10 @@ First things first, you have to launch the Instagram app or website on your phon
 Now, look at the following box in the profile of the person you want to check manually. If you don't see your profile in the **Following tab**, then you can assume that they have unfollowed you.
 
 ![Instagram following list](https://images.wondershare.com/filmora/article-images/instagram-following-list.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Search the name**
 
@@ -70,6 +74,10 @@ if your followers are in thousands, it is pretty hectic to go to each person's p
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to See Who Unfollowed You on Instagram 2021with NO APPS \[ 100% Safe Method\]
 
 Many of you are not aware of a third-party app-free method that is quick, reliable, and safe. But now, you don't have to worry about it because we will cover a 100% secure way of how to know who unfollowed you on Instagram. The following steps can help you in understanding that method:
@@ -79,10 +87,6 @@ Many of you are not aware of a third-party app-free method that is quick, reliab
 Open the Instagram app and go to **Profile.** You need to select the **three horizontal dots** at the top right corner of the screen, tap on **Settings** \-> **Security** from that list.
 
 ![Instagram Security Option](https://images.wondershare.com/filmora/article-images/instagram-security-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2: Download Data and Information from Instagram**
 
@@ -100,11 +104,11 @@ Open [ListDiff.com](http://www.listdiff.com/) and paste the data copied from **F
 
 ![compare  Instagram follower list](https://images.wondershare.com/filmora/article-images/compare-instagram-followers-following-list-listdiff.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 For the detailed information about checking who unfollowed you on Instagram 2021, you can watch the video tutorial made by YouTuber Ben Leavitt below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Best Apps to Check Who Unfollowed You On Instagram
 
@@ -132,7 +136,7 @@ It offers its premium version for $4.99 a month, $17.99 per 6 months, and $24.99
 [Android](https://play.google.com/store/apps/details?id=com.beakerapps.instameter2&hl=en&gl=US) and [iOS](https://apps.apple.com/us/app/followmeter-for-instagram/id651309421).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\.  Followers Trackers Pro
@@ -140,10 +144,6 @@ It offers its premium version for $4.99 a month, $17.99 per 6 months, and $24.99
 Follower Tracker Pro works as a tracker of Instagram followers. You have to sign in to your Instagram account once you have downloaded the app. After that, a menu will appear where you have the options to see the lists of accounts that have unfollowed you, followers, new followers, and the people who are not following you back.
 
 ![Followers Trackers Pro](https://images.wondershare.com/filmora/article-images/tracker-pro-followers-reports.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can tap on one of these options to see the list. And despite having a "pro" in its name, this app is free to download. It updates multiple times a month to keep its drivers up-to-date.
 
@@ -165,10 +165,6 @@ It offers one premium package that is $29.99 a year.
 This app helps you in being updated about your relationship with your followers. You can see individual interactions with your followers, including the likes and comments you two have done on each other's posts. It enables you to analyze your posts and tells you who has liked one picture and not the other. You can see the list of the accounts that have blocked you and the accounts that watch your story or interact on your posts but are not following you. This app enables the best chance for you to keep track of your follower's interactions with you.
 
 ![Followers Track, For Instagram](https://images.wondershare.com/filmora/article-images/followers-track-for-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features**
 
@@ -211,6 +207,10 @@ If you are not staying active for whatever reason, there's a high chance people 
 
 Start engaging with your follower, reply to their comments on your posts with interactive stickers. Otherwise, they would think that you are rude and will start unfollowing you. Also, try to engage on their posts as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### FAQs about Instagram Followers Tracking
 
 #### 1\. Are you notified if someone unfollows you on Instagram?
@@ -242,22 +242,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-discover-instagrams-free-filter-options-with-smart-searching-techniques/"><u>[New] 2024 Approved Discover Instagram's FREE Filter Options with Smart Searching Techniques</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevate-your-content-perfecting-videos-on-instagram/"><u>[New] 2024 Approved Elevate Your Content Perfecting Videos on Instagram</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagrams-backstage-pass-top-covert-strategies-revealed/"><u>[New] 2024 Approved Instagram’s Backstage Pass Top Covert Strategies Revealed</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-add-music-to-instagram-reels/"><u>[New] In 2024, How to Add Music to Instagram Reels?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-snap-a-story-sharing-photos-and-videos-without-retweet/"><u>[New] In 2024, Snap a Story Sharing Photos & Videos Without Retweet</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-pro-tips-10-crucial-tools-to-increase-followers/"><u>[New] Instagram Pro Tips 10 Crucial Tools to Increase Followers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-simplifying-igtv-access-on-computers-top-download-methods-unveiled-for-2024/"><u>[New] Simplifying IGTV Access on Computers Top Download Methods Unveiled for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-copyright-clarity-for-instagram-tracks/"><u>[Updated] 2024 Approved Copyright Clarity for Instagram Tracks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-flawless-image-reader-with-quick-access/"><u>[Updated] Flawless Image Reader with Quick Access</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-a-step-by-step-guide-to-acquiring-elite-instagram-soundtracks-and-building-perfect-alarms/"><u>2024 Approved A Step-by-Step Guide to Acquiring Elite Instagram Soundtracks and Building Perfect Alarms</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-hide-and-discover-instagram-stories-leaders/"><u>2024 Approved Hide & Discover Instagram Stories Leaders</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/discover-the-recent-advances-updated-copernic-image-finding-tool-for-greater-efficiency/"><u>Discover the Recent Advances: Updated Copernic Image Finding Tool for Greater Efficiency</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/in-2024-from-voice-to-verse-a-novices-guide-to-creating-a-polished-podcast-masterpiece/"><u>In 2024, From Voice to Verse A Novices Guide to Creating a Polished Podcast Masterpiece</u></a></li>
-<li><a href="https://win-blog.techidaily.com/master-the-quick-fix-for-overcoming-steam-error-130-hassles/"><u>Master the Quick Fix for Overcoming Steam Error 130 Hassles</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-windows-login-req-issue-in-windows-11/"><u>Overcoming Windows Login Req Issue in Windows 11</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/steps-to-resolve-fingerprint-scanner-unsupported-problems/"><u>Steps to Resolve 'Fingerprint Scanner Unsupported' Problems</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-a-step-by-step-guide-to-instagrams-premier-status-6-practical-steps-for-enthusiasts/"><u>[New] 2024 Approved A Step-by-Step Guide to Instagram's Premier Status 6 Practical Steps For Enthusiasts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-transforming-your-archive-adding-instagram-filters-to-old-media/"><u>[New] 2024 Approved Transforming Your Archive Adding Instagram Filters to Old Media</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-blending-brands-joining-instagram-and-facebook-effortlessly/"><u>[New] In 2024, Blending Brands Joining Instagram and Facebook Effortlessly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-through-instagrams-new-features-reels-and-stories/"><u>[New] Navigating Through Instagram's New Features Reels & Stories</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-photo-preservation-101-digitalization-of-ancestral-prints/"><u>[New] Photo Preservation 101 Digitalization of Ancestral Prints</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-essential-steps-for-resizing-videos-in-igtv/"><u>[Updated] 2024 Approved Essential Steps for Resizing Videos in IGTV</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-ultimate-guide-to-self-validation-on-social-media/"><u>[Updated] 2024 Approved The Ultimate Guide to Self-Validation on Social Media</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-optimal-aspect-ratios-for-video-production/"><u>[Updated] Optimal Aspect Ratios for Video Production</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-selective-engagement-on-ig-for-2024/"><u>[Updated] The Art of Selective Engagement on IG for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-frame-your-story-a-guide-to-insta-video-bordering/"><u>2024 Approved Frame Your Story A Guide to Insta Video Bordering</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-driver-software-brother-hl-l2340dw-printer-windows-compatibility/"><u>Download Driver Software: Brother HL-L2340DW Printer Windows Compatibility</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevate-your-content-with-these-24-best-video-translating-tools/"><u>Elevate Your Content with These 24 Best Video Translating Tools</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/how-secure-is-storing-cryptocurrency-in-online-wallets-insights-from-yl-computing/"><u>How Secure Is Storing Cryptocurrency in Online Wallets? Insights From YL Computing</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-xiaomi-redmi-13c-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Xiaomi Redmi 13C Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-xiaomi-redmi-12-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Xiaomi Redmi 12 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-eliminating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens/"><u>In 2024, Eliminating Odd Shades A Step-by-Step Guide to Flawless Greenscreens</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagrams-best-but-unseen-your-guide/"><u>In 2024, Instagram's Best, But Unseen - Your Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/removing-device-from-apple-id-for-your-apple-iphone-13-by-drfone-ios/"><u>Removing Device From Apple ID For your Apple iPhone 13</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-to-download-and-update-your-canoscan-lide-120-scan-software/"><u>Step-by-Step Guide to Download & Update Your CanoScan LiDE 120 Scan Software</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Troubleshoot & Master Genshin Impact Launch Problems in Minutes!
-date: 2025-01-07T16:59:36.292Z
-updated: 2025-01-14T17:05:11.714Z
+date: 2025-01-15T16:06:25.172Z
+updated: 2025-01-20T19:53:52.283Z
 tags:
   - win11
   - win10
@@ -36,11 +36,15 @@ thumbnail: https://thmb.techidaily.com/f4f9accb76c2f0e56a5b696898639186341161f48
 2. The **Settings**  page will appear with the **Engine** tab highlighted, as shown below.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/settings-engine.jpg)
 3. Please match the following settings to see if this works for you.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
    * **CPU** : 4 Cores  
    * **RAM** : 4 GB (this will require a restart, so you can leave it to the last step)  
@@ -50,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/f4f9accb76c2f0e56a5b696898639186341161f48
    * **ASTC** : Hardware decoding
 4. Click the**Save** button to preserve all changes made.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/save-changes.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Your Bluestacks will be restarted, and your game won’t be crashing again now. But if it does, please try the next fix below.
 
@@ -86,7 +86,7 @@ There are mainly two ways for you to update the graphics driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/3080.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
@@ -102,10 +102,6 @@ There are mainly two ways for you to update the graphics driver:
 2. Select the program you want to close and click**End Task** . Also, force close BlueStacks 5 and relaunch the program. Check to see if it’s working now.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/end-task.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Now other programs stop consuming a high amount of RAM, you can launch BlueStacks again to check if the crashing problem is fixed.
 
 ### Fix 4: Turn off antivirus
@@ -117,11 +113,11 @@ There are mainly two ways for you to update the graphics driver:
 ![uninstall app](https://images.drivereasy.com/wp-content/uploads/2021/01/appwiz.cpl_.jpg)
 3. Right-click your antivirus and choose**Uninstall** , and follow the on-screen instructions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 4. Reboot your computer and launch BlueStacks to check if the issue persists.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Enable Virtualization for BlueStacks
 
@@ -131,6 +127,10 @@ There are mainly two ways for you to update the graphics driver:
 2. Go to the**Performance** tab.
 3. You can view the**Virtualization** status under the CPU tab.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/03/on.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If this feature is disabled, you should follow[this guide](https://support.bluestacks.com/hc/en-us/articles/115003174386) to turn it on in the BIOS settings. However, if everything seems alright but you still get the crashing issues, you can reinstall BlueStacks (be sure to remove all its files and then reinstall it again).
 
@@ -153,21 +153,19 @@ There are mainly two ways for you to update the graphics driver:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-explore-prime-cardboard-compatible-vr-adventures-for-2024/"><u>[New] Explore Prime Cardboard-Compatible VR Adventures for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-forward-with-borders-on-instagram-videos/"><u>[New] In 2024, Step Forward with Borders on Instagram Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-uploading-and-sharing-gifs-on-instagram-step-by-step-approach/"><u>[New] In 2024, Uploading & Sharing GIFs on Instagram Step-by-Step Approach</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-10-best-classic-family-vacation-movie-for-this-summer/"><u>[Updated] 10 Best Classic Family Vacation Movie for This Summer</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ultimate-roundup-no-fee-videocalling-plus-live-desktop-share/"><u>[Updated] 2024 Approved Ultimate Roundup No-Fee Videocalling + Live Desktop Share</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-engaging-listeners-respectfully-for-increased-sign-ups/"><u>[Updated] Engaging Listeners Respectfully for Increased Sign-Ups</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-frame-it-right-vertical-video-mastery-with-final-cut-pro-x-for-2024/"><u>[Updated] Frame It Right Vertical Video Mastery with Final Cut Pro X for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-tailored-instagram-filters-a-step-by-step-process/"><u>[Updated] In 2024, Tailored Instagram Filters A Step-by-Step Process</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-top-5-secure-methods-to-maximize-instagram-earnings-for-2024/"><u>[Updated] Top 5 Secure Methods to Maximize Instagram Earnings for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-top-5-webcams-for-cutting-edge-twitch-live-streaming-quality/"><u>[Updated] Top 5 Webcams for Cutting-Edge Twitch Live Streaming Quality</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlocking-video-treasures-securely-capturing-igtv-videos-on-windows-and-macos-for-2024/"><u>[Updated] Unlocking Video Treasures Securely Capturing IGTV Videos on Windows & MacOS for 2024</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/epic-warhammer-40k-universe-backgrounds-vast-array-of-stunning-photos-and-images-for-enthusiast-fans-by-yl-computing/"><u>Epic Warhammer 40K Universe Backgrounds: Vast Array of Stunning Photos & Images for Enthusiast Fans by YL Computing</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/from-novice-to-nirvana-transform-your-instagram-edits-for-2024/"><u>From Novice to Nirvana Transform Your Instagram Edits for 2024</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/overcoming-low-disk-space-errors-when-performing-windows-server-backups/"><u>Overcoming Low Disk Space Errors When Performing Windows Server Backups</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Vivo T2x 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevating-your-igtv-presence-a-guide-to-effective-hash-tags-for-2024/"><u>[New] Elevating Your IGTV Presence A Guide to Effective Hash Tags for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-faster-viewing-experience-for-instagram-videos/"><u>[New] Faster Viewing Experience for Instagram Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-striking-14-text-animation-illustrations/"><u>[New] Striking 14 Text Animation Illustrations</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-explore-laughter-tears-fusion-the-best-ig-accounts-ever-for-2024/"><u>[Updated] Explore Laughter-Tears Fusion The Best IG Accounts Ever for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-add-a-personal-touch-using-branded-graphic-elements-in-your-instagram-content/"><u>[Updated] In 2024, Add a Personal Touch Using Branded Graphic Elements in Your Instagram Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unleashing-your-brand-potential-with-advanced-insights-on-instagram-data/"><u>[Updated] In 2024, Unleashing Your Brand Potential with Advanced Insights on Instagram Data</u></a></li>
+<li><a href="https://fox-that.techidaily.com/control-center-not-working-on-your-iphone-8-fixes-to-try/"><u>Control Center Not Working on Your iPhone? 8 Fixes to Try</u></a></li>
+<li><a href="https://win11.techidaily.com/curb-spontaneous-lockups-in-windows-11/"><u>Curb Spontaneous Lockups in WIndows 11</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-for-fixing-mic-problems-in-logitech-webcam-systems/"><u>Expert Advice for Fixing Mic Problems in Logitech Webcam Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-unlocking-oculus-go-root-access-what-this-means-for-owners/"><u>Facebook Is Unlocking Oculus Go Root Access: What This Means for Owners</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-top-pick-top-10-android-and-ios-wedding-countdown-clock-apps-of-the-year/"><u>In 2024, The Top Pick Top 10 Android and iOS Wedding Countdown Clock Apps of the Year</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-the-industry-standard-for-mac-video-editing-adobe-premiere-pro/"><u>New 2024 Approved The Industry Standard for Mac Video Editing Adobe Premiere Pro</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-art-of-angle-alteration-mastering-the-rotation-ritual-on-instagram/"><u>The Art of Angle Alteration Mastering the Rotation Ritual on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/untangling-veiled-feedback-mechanisms-in-video-sites-for-2024/"><u>Untangling Veiled Feedback Mechanisms in Video Sites for 2024</u></a></li>
 </ul></div>
 
