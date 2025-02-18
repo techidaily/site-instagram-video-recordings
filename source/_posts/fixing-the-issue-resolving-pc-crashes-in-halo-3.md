@@ -1,7 +1,7 @@
 ---
 title: "Fixing the Issue: Resolving PC Crashes in Halo 3"
-date: 2025-02-05T16:32:04.716Z
-updated: 2025-02-08T16:17:04.169Z
+date: 2025-02-16T07:08:29.354Z
+updated: 2025-02-17T17:47:05.198Z
 tags:
   - win11
   - win10
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 **The Division 2 keeps crashing?** Don’t worry… Although it’s incredibly frustrating, you’re definitely not the only person to experience this problem. Thousands of players have recently reported the very same issue. More importantly, you should be able to fix it pretty easily…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Try these fixes
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Check if your system meets the specifications required for The Division 2
@@ -85,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
  If your PC fails to meet the minimum system requirements for The Division 2, you may need to upgrade your PC hardware.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 2: Install the latest game patch
 
  The developers of The Division 2 release regular game patches to fix bugs. It’s possible that a recent patch has triggered the game crash issue, and that a new patch is required to fix it.
@@ -127,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-130.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Steam
 
  1) In Steam, navigate to**the LIBRARY tab** and**right-click** on The Division 2\. Then select**Properties** .
@@ -145,19 +153,11 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-119.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Click**Verify** to start verifying the game files.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-123.png)
 
  Launch the game after verifying the game file to see if this fix works. If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 5: Run Windows Compatibility Troubleshooter
 
@@ -173,10 +173,6 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-124.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) Go to**the Compatibility tab** and click**Change high DPI settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-126.png)
@@ -189,13 +185,13 @@ thumbnail: https://thmb.techidaily.com/07ca320cf616365de8ad632002d02eea2e2a464ff
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-128.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
  Run The Division 2 to see if the this fix works. If not, try the next fix to modify your page file.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 6: Modify the paging file size
 
@@ -209,10 +205,6 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-146.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) In the search box, type**advanced** and then click**View advanced system settings** in the list of search results.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-150.png)
@@ -221,20 +213,20 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-151.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  4) Under**the Advanced tab** , click**Change…** in the**Virtual memory** section.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-152.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5)**Check the box** next to**Automatically manage paging file size for all drives** . Then click OK to save the changes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-153.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Do not disable the paging file or modify it to 0 MB or a static value** even if your PC has sufficient RAM, since if you doing that, it usually causes crashes in the game.
@@ -253,6 +245,10 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-155-1024x744.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3)**Turn off Contact Shadows** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-156-1024x776.png)
@@ -261,9 +257,17 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-157-1024x756.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  5) Set**Reflection Quality** to**Low** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-158-1024x758.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  6) Set**Vegetation Quality** to**Medium** .
 
@@ -276,10 +280,6 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
  8) Set**Ambient Occlusion** to**Medium** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-161-1024x777.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  9) Set the value of**Object Detail** to**50** .
 
@@ -312,24 +312,21 @@ Make sure you have disabled Steam Overlay and Ubisoft Overlay.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/armonize-your-preferences-how-to-create-an-engaging-youtube-playlist/"><u>[New] Harmonize Your Preferences How to Create an Engaging YouTube Playlist</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-your-iphones-mp3-fix-6-free-tools-to-convert-youtube-audio/"><u>[New] In 2024, Your iPhone's MP3 Fix 6 Free Tools to Convert YouTube Audio</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-style-the-essential-guide-to-instagram-story-magnification-for-2024/"><u>[New] Insta Style The Essential Guide to Instagram Story Magnification for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-streamline-your-gaming-with-xbox-screen-recorders/"><u>[New] Streamline Your Gaming with Xbox Screen Recorders</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-top-vimeo-downloader-tools/"><u>[Updated] In 2024, Top Vimeo Downloader Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-blueprint-for-social-success-six-proven-steps-toward-verification-and-growth/"><u>[Updated] The Blueprint for Social Success Six Proven Steps Toward Verification and Growth</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-transforming-mundane-footage-into-spectaculair-slow-mo-instareel/"><u>[Updated] Transforming Mundane Footage Into Spectaculair Slow Mo InstaReel</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-how-to-eliminate-your-instagram-existence-a-comprehensive-walkthrough/"><u>2024 Approved How to Eliminate Your Instagram Existence A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/copyright-clarity-for-instagram-beats-for-2024/"><u>Copyright Clarity for Instagram Beats for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/crafting-content-success-top-hashtags-to-follow-today-for-2024/"><u>Crafting Content Success Top #Hashtags to Follow Today for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/gamers-dream-gear-youtube-collection-for-2024/"><u>Gamers' Dream Gear YouTube Collection for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-tecno-pova-5-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Tecno Pova 5 to iPad | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-dominate-digital-space-secure-a-chain-of-1k-fansmonth/"><u>In 2024, Dominate Digital Space Secure a Chain of 1K Fans/Month</u></a></li>
-<li><a href="https://article-posts.techidaily.com/integrating-custom-sounds-into-your-whatsapp-experience/"><u>Integrating Custom Sounds Into Your WhatsApp Experience</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/leveraging-user-feedback-with-instagram-story-questions-for-2024/"><u>Leveraging User Feedback with Instagram Story Questions for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-s-most-popular-free-video-fx-apps-for-iphone-and-android/"><u>New In 2024, S Most Popular Free Video FX Apps for iPhone and Android</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/strategic-showcasing-10-essential-tips-to-improve-your-instagram-highlights/"><u>Strategic Showcasing 10 Essential Tips to Improve Your Instagram Highlights</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-science-behind-sharing-memes-unveiled-for-2024/"><u>The Science Behind Sharing Memes Unveiled for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/unlocking-the-power-of-closed-captions-on-vimeo-for-2024/"><u>Unlocking the Power of Closed Captions on Vimeo for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-exploring-the-eminent-on-niche-focused-instagram-groups-for-2024/"><u>[New] Exploring the Eminent on Niche-Focused Instagram Groups for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-navigating-adobe-cloud-insights-and-best-non-adobe-choices-for-2024/"><u>[New] Navigating Adobe Cloud, Insights & Best Non-Adobe Choices for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-rise-in-popularity-top-10-instagram-hashtags-for-now-for-2024/"><u>[New] Rise in Popularity Top 10 Instagram Hashtags for Now for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-crafting-a-digital-identity-with-inspiring-instagram-captions/"><u>[Updated] 2024 Approved Crafting a Digital Identity with Inspiring Instagram Captions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-boosting-engagement-navigate-to-these-8-best-apps-for-post-timers-for-2024/"><u>[Updated] Boosting Engagement Navigate to These 8 Best Apps for Post Timers for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-tech-savvy-approach-to-saving-your-insta-content/"><u>[Updated] The Tech-Savvy Approach to Saving Your Insta Content</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-analyzing-the-overhaul-of-sony-s6700/"><u>2024 Approved Analyzing the Overhaul of Sony S6700</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-obs-timeline-expertise-crafting-custom-countdown-features/"><u>2024 Approved Obs Timeline Expertise Crafting Custom Countdown Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-content-perfecting-videos-on-instagram/"><u>Elevate Your Content Perfecting Videos on Instagram</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/enhancing-iphone-7-screen-record-capabilities/"><u>Enhancing iPhone 7 Screen Record Capabilities</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/for-novices-a-primer-on-av1-technology/"><u>For Novices A Primer on AV1 Technology</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-online-converter-convert-flv-files-to-wav-format-using-movavi-software/"><u>Free Online Converter: Convert FLV Files To WAV Format Using Movavi Software</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-from-still-shots-to-soundscapes-an-instagram-mp3-journey/"><u>In 2024, From Still Shots to Soundscapes An Instagram-MP3 Journey</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/paww-acoustic-tech-3-evaluation-economical-audio-earpieces/"><u>Paww Acoustic Tech 3 Evaluation: Economical Audio Earpieces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-mirari-ok-to-wake-kids-alarm-clock-expert-reviews-included/"><u>The Ultimate Guide to the Mirari 'OK to Wake!' Kids' Alarm Clock - Expert Reviews Included!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/ultimate-guide-to-top-12-action-cams-with-satellite-based-locators/"><u>Ultimate Guide to Top 12 Action Cams with Satellite-Based Locators</u></a></li>
 </ul></div>
 
