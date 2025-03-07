@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Understanding Instagram's Privacy Controls\""
-date: 2025-02-15T05:40:24.998Z
-updated: 2025-02-17T21:40:40.282Z
+date: 2025-03-03T00:39:12.363Z
+updated: 2025-03-06T18:20:36.342Z
 tags:
   - ai video
   - ai instagram
@@ -53,17 +53,9 @@ Please be informed that when you block someone on Instagram, that person will no
 
 ![Instagram Block options](https://images.wondershare.com/filmora/article-images/click-on-instagram-block-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Instagram will ask you if you want to block the person; click on the block option again.
 
 ![Instagram Block  ](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 2: Using a Web Browser to Block Followers
 
@@ -77,17 +69,9 @@ If you don't want to use your mobile app, you can easily block a person using th
 
 ![Instagram Block  ](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Once you do, you will see the block and cancel options. You need to select the block option,and that's about it.
 
 ![Instagram Block  Confirm](https://images.wondershare.com/filmora/article-images/confirm-the-block-option-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -112,10 +96,6 @@ The steps are the same as explained in part 1.
 **Step 3:** You need to click on the block this user option, confirm it, and it's done.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Where to Find your Instagram Blocklist?
 
@@ -163,10 +143,6 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 ![Instagram Unblock from web  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Click on the unblock option, and Instagram will ask you to confirm your choice. Click on the unblock option again, and it's done.
 
 ## Part 5: Why Can't I Unblock a Person on Instagram?
@@ -174,10 +150,6 @@ Just like blocking an account is possible, unblocking the same account is possib
 If the two-way block has been implemented, then unblocking the same person will become problematic. Let's make it simpler. You have blocked someone recently, but you didn't know that the same person has also done the same thing. Now that you have been blocked when you try to unblock their account, you won't see it because that's how blocked accounts work. You will not see the person's account; their messages will be deleted, every like and comment shared on your profile will be removed too.
 
 So, when the other person blocks a user, their account vanishes and doesn't appear in the blocked list. Even if you try to find their profile by entering their handle on the search bar, you will see the notification "user not found." And this is why you can't unblock that person. Both of you have blocked each other.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About Instagram Block
 
@@ -207,10 +179,6 @@ No, Instagram allows you to block people remotely and won't send any notificatio
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -226,24 +194,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-harness-the-power-of-hashtags-in-instagram-marketing-strategies/"><u>[New] Harness the Power of Hashtags in Instagram Marketing Strategies</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-a-comprehensive-insight-into-benqs-bl2711u-pioneering-the-4k-standard/"><u>[New] In 2024, A Comprehensive Insight Into BenQ’s BL2711U - Pioneering the 4K Standard</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-spotting-instagrams-newly-deactivated-accounts/"><u>[New] Spotting Instagram's Newly Deactivated Accounts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-ultimate-guide-to-the-finest-3d-blu-ray-equipment/"><u>[New] Ultimate Guide to the Finest 3D Blu-Ray Equipment</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-essential-guide-to-creating-beautifully-stretched-time-videos-online/"><u>[Updated] 2024 Approved The Essential Guide to Creating Beautifully Stretched Time Videos Online</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-global-presence-via-instagram-100-inspiring-self-captions/"><u>[Updated] Global Presence via Instagram 100 Inspiring Self-Captions</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-innovative-10-ideas-thatll-boost-your-brand-on-igtv/"><u>[Updated] In 2024, Innovative 10 Ideas That'll Boost Your Brand on IGTV</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instasnap-optimize-images-and-videos-on-ig/"><u>[Updated] InstaSnap Optimize Images & Videos on IG</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-understanding-slug-lines-essentials-and-application-guide/"><u>[Updated] Understanding Slug Lines Essentials & Application Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-boom-in-the-loop-crafting-addictive-ig-videos/"><u>2024 Approved Boom in the Loop Crafting Addictive IG Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-invisible-impact-the-underestimated-toll-of-trick-likes/"><u>2024 Approved Invisible Impact The Underestimated Toll of Trick Likes</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/cam-crossover-showdown-sj6-power-meets-yis-four-k-kickstart/"><u>Cam Crossover Showdown SJ6 Power Meets Yi’s Four-K Kickstart</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-video-performance-in-instagram-reels-mobile/"><u>Enhancing Video Performance in Instagram Reels (Mobile)</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-safety-of-fb-messenger/"><u>Examining the Safety of FB Messenger</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-grading-inshot-does-it-reign-supreme/"><u>In 2024, Grading InShot Does It Reign Supreme?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-elite-selection-of-instagram-image-boosters/"><u>In 2024, The Elite Selection of Instagram Image Boosters</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/is-ai-revolutionizing-education-exploring-chatgpts-role-in-replacing-traditional-student-papers/"><u>Is AI Revolutionizing Education? Exploring ChatGPT's Role in Replacing Traditional Student Papers</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/skys-dynamic-range-wonders-top-10-sites-guide/"><u>Sky's Dynamic Range Wonders - Top 10 Sites Guide</u></a></li>
-<li><a href="https://win-bits.techidaily.com/japana-ma-khaya-gaya-favaratasa-ka-bhal-kasa-kara-sarakashhata-oura-aatharasha-sathana/"><u>जापान में खोया गया फेवरिट्स को बहाली कैसे करें: सुरक्षित और आदर्श स्थान</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-effortless-audio-integration-for-inshot-devices/"><u>[New] 2024 Approved Effortless Audio Integration for InShot Devices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-real-time-unfollowers-detection-on-insta-for-2024/"><u>[New] Real-Time Unfollowers Detection on Insta for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-borders-enhancing-images-with-style-on-social-platforms/"><u>[New] Step By Step Borders Enhancing Images with Style on Social Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-amplify-reach-todays-most-effective-instagram-tag-strategies/"><u>[Updated] In 2024, Amplify Reach Today's Most Effective Instagram Tag Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-projecting-yourself-to-the-world-with-insta-captions/"><u>[Updated] In 2024, Projecting Yourself to the World with Insta Captions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-building-a-profitable-instagram-empire/"><u>[Updated] Step-by-Step Building a Profitable Instagram Empire</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-perfect-frame-a-guide-to-polishing-videos-with-instagram-edits-for-2024/"><u>[Updated] The Perfect Frame A Guide to Polishing Videos with Instagram Edits for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-6-premier-linkedin-video-downloader-tools-for-2024/"><u>[Updated] The Ultimate Guide to 6 Premier LinkedIn Video Downloader Tools for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-powerdirector-unveiled-a-detailed-24-review-and-tutorial/"><u>2024 Approved PowerDirector Unveiled A Detailed '24 Review & Tutorial</u></a></li>
+<li><a href="https://win-blog.techidaily.com/beat-steam-error-code-n130-ultimate-fixes-and-tips-revealed/"><u>Beat Steam Error Code N130: Ultimate Fixes and Tips Revealed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-gadget-hygiene-kit-keep-every-device-sparkling-without-breaking-the-bank/"><u>Budget-Friendly Gadget Hygiene Kit: Keep Every Device Sparkling Without Breaking the Bank</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discovering-your-iphones-top-free-photo-arrangement-and-editing-tools/"><u>Discovering Your iPhone's Top Free Photo Arrangement & Editing Tools</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-the-free-qualcomm-atheros-ar938x-drivers-instantly-get-them-now/"><u>Download the Free Qualcomm Atheros AR938X Drivers Instantly – Get Them Now</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-the-hyper-v-error-0x8009030e-in-windows/"><u>How to Fix the Hyper-V Error 0X8009030E in Windows</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-social-media-metrics-the-igtv-hashtag-connection-for-2024/"><u>Mastering Social Media Metrics The IGTV Hashtag Connection for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-for-restoring-asus-webcam-functionality-under-windows-10/"><u>Troubleshooting Steps for Restoring ASUS Webcam Functionality Under Windows 10</u></a></li>
 </ul></div>
 

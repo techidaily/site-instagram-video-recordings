@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Lenovo Tab 4: Great Value but with Some Downsides in an Android Tablet"
-date: 2025-02-14T07:23:51.209Z
-updated: 2025-02-18T01:43:09.773Z
+date: 2025-03-04T16:49:24.948Z
+updated: 2025-03-06T19:08:37.676Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Lenovo Tab 4: Great Value but with Some Downsides in an Android Tablet"
@@ -75,10 +75,6 @@ Lifewire / Jeremy Laukkonen
 
  I recently unpacked a second-gen Tab M10 HD and used it for about a week for everything from email and web browsing to video conferencing and streaming movies from[apps like Netflix](https://www.lifewire.com/overview-of-the-netflix-streaming-service-1847831) and[HBO Max](https://www.lifewire.com/what-is-hbo-max-how-to-watch-it-4782926) . During my time with the tablet, I tested overall performance, video and audio quality, wireless speeds, and a variety of other factors to see if this budget friendly Android tablet is worth the asking price.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What’s New: Better price, better specs, lower resolution
 
  The first-generation Lenovo Tab M10 hit shelves back in 2019\. It shipped with Android 8.1 and an MSRP just shy of $200\. Right off the top you can see that Lenovo decided to chase a more budget-friendly market segment with the second generation of the hardware.
@@ -95,10 +91,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/pPNbzMq7aB9LY-_koMR-oHoTUHA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_02-1cb2ef47999844eaacd3c03a777faea8-f2d25c46eb184b4c8b7a8667735f2ea9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  On the left side, you’ll find Lenovo’s docking port connector. Unfortunately, there’s no way to make use of this connector if you don’t buy the version of the tablet that includes a dock. Lenovo doesn’t provide the dock as an optional accessory to purchase later. This is a bit of a questionable decision on Lenovo’s part, and it’s likely to lead to some consumer disappointment.
@@ -107,10 +99,6 @@ Lifewire / Jeremy Laukkonen
 
  The rear of the tablet is mostly featureless, aside from the aforementioned cut-outs. The single rear-facing camera is located in the upper left corner, and that’s about it. Due to the metal construction, it does look and feel more premium than you’d expect from the price.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Display: Looks good, but the resolution could be higher
 
  The 10-inch display is surrounded by fairly slim bezels for a budget Android tablet, offering a screen to body ratio of about 82 percent. The aspect ratio is 16:10, which is pretty close to the standard widescreen ratio of 16:9\. It’s a good compromise between being great for media and usable for email and surfing the web.
@@ -118,10 +106,6 @@ Lifewire / Jeremy Laukkonen
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big. The first generation of the Tab M10 hardware had a full HD display, while this one gives you only a resolution of 800 x 1280 for an abysmal pixel density of about 149 ppi on the big 10-inch IPS LCD screen. It looks fine when held at arm's length, but move it any closer and you can make out the individual pixels like you’re looking at the tablet through a screen door.
 
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Depends on the configuration you get
 
@@ -143,10 +127,6 @@ Lifewire / Jeremy Laukkonen
 
  These results aren’t very surprising, but they do indicate that you’re unlikely to have that great experience playing complex games on this tablet. If you’re looking for a tablet to run in Google Kids Space, it will run most of those games pretty well. If you’re looking to play anything that’s demanding on a graphics level, keep looking. Even Lenovo’s similarly-equipped Tab M10 FHD Plus performs significantly better in this department.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Productivity: Best suited to basic tasks
 
  There are two versions of this tablet: the Tab M10 HD, and the Smart Tab M10 HD. They are identical in terms of both internal hardware and external design. The difference is that the Smart Tab M10 HD comes with a dock, and the Tab M10 HD doesn’t. With its dock and integrated[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) voice controls, the Smart Tab M10 HD gets higher marks in terms of productivity than the Tab M10 HD.
@@ -154,10 +134,6 @@ Lifewire / Jeremy Laukkonen
  Taking the dock out of the equation, this hardware isn’t the best for productivity. It’s good for basic tasks like email and browsing the internet, but it isn’t really work-ready. The front-facing webcam will work for video conferencing in a pinch, but it isn’t the best option. This tablet is much better for basic tasks and streaming media than any kind of work usage. It’s also a great option for families with young children, since it includes Google Kids Space.
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/jC-nIsNjG_LVHXw3eP-5D_jO_fY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_03-dad5bfce705b4e0c891a4088b2b77b10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -231,19 +207,11 @@ Lifewire / Jeremy Laukkonen
 
  The Lenovo Tab M10 HD (2020) looks great and feels solid, and the price is right. If you’re looking for a tablet that you’ll primarily use for email and web browsing, with some video streaming thrown in, it’s a very solid option. Thanks to the inclusion of Google Kids Space, it’s also a great choice if you’re looking for a tablet for your kids.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Lenovo P11 Pro](https://www.lifewire.com/lenovo-p11-pro-review-5116910)
 * [Samsung Galaxy Tab S7+](https://www.lifewire.com/samsung-galaxy-tab-s7-review-5088997)
 * [Google Pixel Slate](https://www.lifewire.com/pixel-slate-review-a-chromeos-mess-5072398)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -282,18 +250,18 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-monitoring-your-instagram-exit-strategy/"><u>[New] In 2024, Monitoring Your Instagram Exit Strategy</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-smart-snap-strategies-insta-story-zoom-101-for-2024/"><u>[Updated] Smart Snap Strategies Insta Story Zoom 101 for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-enhance-visual-harmony-editing-for-instagram-standards/"><u>2024 Approved Enhance Visual Harmony Editing for Instagram Standards</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-refinement-of-screen-focus-how-to-zoom-on-microsoft-teams/"><u>2024 Approved Refinement of Screen Focus How to Zoom on Microsoft Teams</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-subtitle-strategies-for-multilingual-instagram-videos/"><u>2024 Approved Subtitle Strategies for Multilingual Instagram Videos</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/2ssd4k/"><u>2つのシンプルな手順でSSD上の4K画像を最適化する</u></a></li>
-<li><a href="https://win-great.techidaily.com/3gp/"><u>3GP形式について学ぶ：ヘッダー情報の理解と再生問題発見後の対策手引き</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/embrace-pc-gaming-with-alternatives-to-traditional-desktops/"><u>Embrace PC Gaming with Alternatives to Traditional Desktops</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-discover-10-secret-followers-on-stories/"><u>In 2024, Discover 10 Secret Followers on Stories</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-fullframe-alliance-how-to-choose-your-mcn-strategically/"><u>In 2024, FullFrame Alliance How to Choose Your MCN Strategically</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-how-to-get-more-nfl-viewers-for-your-sports-live-streaming-channel/"><u>New In 2024, How To Get More NFL Viewers For Your Sports Live Streaming Channel</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/unraveling-the-mystery-behind-unexpected-computer-reboots-and-power-offs-expert-insights-from-yl-computing/"><u>Unraveling the Mystery Behind Unexpected Computer Reboots & Power-Offs: Expert Insights From YL Computing</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unraveling-the-secrets-of-exceptional-green-screen-filming/"><u>Unraveling the Secrets of Exceptional Green Screen Filming</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-captivating-content-crafting-impactful-insta-videos/"><u>[New] 2024 Approved Captivating Content Crafting Impactful Insta-Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-diy-instagram-videos-simple-steps-to-success-for-2024/"><u>[New] DIY Instagram Videos Simple Steps to Success for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instagram-chronicles-expert-tips-for-story-downloads/"><u>[New] In 2024, Instagram Chronicles Expert Tips for Story Downloads</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-elevate-your-online-engagements-with-pc-and-phone-recordings/"><u>[Updated] Elevate Your Online Engagements with PC & Phone Recordings</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/bargain-bins-best-shot-yet-ux-curse-in-nikon-a10/"><u>Bargain Bin's Best Shot - Yet UX Curse in Nikon A10?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/diverse-technology-scrutiny-easeus-edition-for-2024/"><u>Diverse Technology Scrutiny EaseUS Edition for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-cutting-edge-tactics-for-effective-cricket-streaming/"><u>In 2024, Cutting-Edge Tactics for Effective Cricket Streaming</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-exclusive-tips-for-dominating-the-instagram-story-space/"><u>In 2024, Exclusive Tips for Dominating the Instagram Story Space</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-12-pro-max-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 12 Pro Max Lock Screen with Notifications?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-leading-edge-in-mobile-chats-discover-the-top-1-cookie-haven-by-lilys-bakery/"><u>In 2024, Leading Edge in Mobile Chats Discover the Top 1 Cookie Haven by Lily's Bakery</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-social-media-the-finest-6-reel-enhancing-apps-for-2024/"><u>Mastering Social Media The Finest 6 Reel-Enhancing Apps for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/nurturing-network-growth-for-top-tier-subscribers-for-2024/"><u>Nurturing Network Growth for Top-Tier Subscribers for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ultimate-video-transcoder-suite-convert-mpeg-avi-mov-and-more-with-factory-software-for-top-results/"><u>Ultimate Video Transcoder Suite - Convert MPEG, AVI, MOV, and More with Factory Software for Top Results</u></a></li>
 </ul></div>
 
